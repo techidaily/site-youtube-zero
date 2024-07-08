@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Optimize Your Channels  An Introduction to YouTube Statistics\""
-date: 2024-06-22T11:26:24.463Z
-updated: 2024-06-23T11:26:24.463Z
+date: 2024-07-07T13:32:49.162Z
+updated: 2024-07-08T13:32:49.162Z
 tags:
   - ai video
   - ai youtube
@@ -63,7 +63,7 @@ Alongside watch time you can see the average duration individual viewers are wat
 
 In the watch time reports for individual videos, you will be able to see data on where your views are coming from and which demographics are watching the most. Where your viewers are watching, in terms of desktop or mobile, is also interesting data that is available in this section.
 
-Click here for more tips on[increasing your views](https://www.filmora.io/community-blog/12-proven-ways-to-increase-youtube-views-315.html).
+Click here for more tips on [increasing your views](https://www.filmora.io/community-blog/12-proven-ways-to-increase-youtube-views-315.html).
 
 ### 2. Interpreting YouTube Interaction Reports
 

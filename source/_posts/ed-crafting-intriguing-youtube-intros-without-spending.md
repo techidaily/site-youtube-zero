@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Crafting Intriguing YouTube Intros Without Spending"
-date: 2024-06-22T10:47:56.191Z
-updated: 2024-06-23T10:47:56.191Z
+date: 2024-07-07T13:32:51.629Z
+updated: 2024-07-08T13:32:51.629Z
 tags:
   - ai video
   - ai youtube
@@ -120,7 +120,7 @@ Step 8: The default length of the filter is 5 seconds that can be extended by dr
 
 ![how to make an intro by Filmora step](https://images.wondershare.com/filmora/article-images/filmora-export-mp4.jpg)
 
-It's very easy right? Download Filmora and make a click-driven intro now![![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+It's very easy right? Download Filmora and make a click-driven intro now ![![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ## Key Takeaways to Create Great Attractive YouTube Intro
 
