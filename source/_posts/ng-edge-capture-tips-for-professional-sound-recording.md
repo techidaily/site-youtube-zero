@@ -1,0 +1,135 @@
+---
+title: "\"Cutting Edge Capture  Tips for Professional Sound Recording\""
+date: 2024-06-22T11:36:03.680Z
+updated: 2024-06-23T11:36:03.680Z
+tags:
+  - ai video
+  - ai youtube
+categories:
+  - ai
+  - youtube
+description: "\"This Article Describes Cutting Edge Capture: Tips for Professional Sound Recording\""
+excerpt: "\"This Article Describes Cutting Edge Capture: Tips for Professional Sound Recording\""
+keywords: "\"Sound Recording Pros,Audio Techniques,Studio Setup Guide,High-Quality Recordings,Capture Clear Sounds,Audio Editing Basics,Professional Microphones\""
+thumbnail: https://thmb.techidaily.com/0c4c453f95a612f76b387ff712305941e5398ae6df028882ef27bbdd6859fdde.jpg
+---
+
+## Cutting Edge Capture: Tips for Professional Sound Recording
+
+# 10 Recording Tips for Recording Audio with High Quality
+
+![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+Getting the best sound for your recording is not as simplistic as buying an expensive microphone. There are many different things you can do to record your audio more clearly. Here are 10 recording tips to record high-quality audio.
+
+[**1\. Silence everything you don’t want your microphone to record**](#Silence)  
+[**2\. Put your mobile phone in airplane mode**](#airplane-mode)  
+[**3\. Minimize echo**](#Minimize-echo)  
+[**4\. Block wind from reaching your microphone**](#Block-wind)  
+[**5\. Upgrade your microphone**](#Upgrade-your-microphone)  
+[**6\. Adjust your levels**](#Adjust-your-levels)  
+[**7\. Start with a sound cue if you’re planning to do some syncing in post**](#sound-cue)  
+[**8\. Get close to the sound**](#Get-close-to-the-sound)  
+[**9\. ADR**](#ADR)  
+[**10\. Record Ambient Sound**](#Record-Ambient-Sound)
+
+### Bonus Tip-Record Your Audio with Wondershare Filmora
+
+Wondershare Filmora has great recording features that enable you to [record screen](https://tools.techidaily.com/wondershare/filmora/download/), voiceover, and webcam. Just connect the recording device to your computer, and start the recording in Wondershare Filmora and you will get high-quality audio. And you can also easily pick a song from the royalty-free music library on Wondershare Filmora. These audio features on Filmora are rare and very simple to use, you only need to click a few times and your video will have a new sound and background song.
+
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+### **1\. Silence everything you don’t want your microphone to record**
+
+When you’re recording audio, you have to be more aware of the subtle sounds that drone on in your background. These sounds may include humming from machines with fans, buzzing from lights, and jingling from your pet’s collar. Observe your recording space and find ways to silence everything that you don’t want in your audio recording.
+
+### **2\. Put your mobile phone in airplane mode**
+
+Although it may be quite obvious to turn your phone’s ring tone off when you’re recording, it may not be as obvious to put your phone in airplane mode. When phones receive calls or perform searches as part of their background processes, they emit signals that can get picked up by your recording system. Avoid ruining good takes with unwanted sounds of phone signals by putting your phones in airplane mode.
+
+### **3\. Minimize echo**
+
+If you are recording yourself talk or sing, make sure to set up your recording space in a way where the sound projected from your voice bounces minimally off the walls and back to your microphone. Bare walls and hardwood floors will cause a lot of bouncing. Make use of materials that will absorb your sound rather than bounce it, like a thick rug or a comforter. If you want your voice to echo, that’s something you should do in post-production.
+
+### **4\. Block wind from reaching your microphone**
+
+Although it might not sound so loud and distracting to the naked ear, wind sounds terribly loud through a microphone recording and can cause your audio to clip (distortion of waveform due to output of sound exceeding maximum capacity or 0 dB point). This includes the “wind” that comes out of your mouth when you pronounce words starting with the letter “p.” Use pop filters, windscreens, and deadcats to block wind from reaching your microphone.
+
+### **5\. Upgrade your microphone**
+
+As much as you try to control all the noise in your surroundings, your greatest recording limitation will come from the hardware that you use. Improve your recordings by plugging in an external microphone into your camera’s microphone jack or record audio completely separately with a professional microphone.
+
+Need help with deciding on a microphone to buy? Check out our recommended list of microphones.
+
+### **6\. Adjust your levels**
+
+Before pressing the record button, see how loudly your microphone picks up the sound you wish to record. Adjust your levels (sensitivity of your microphone) until the sound sits in between -6 dBs and -12dBs. This range gives the source of your sound some room to get louder without the recorded audio getting clipped. When you first listen to audio recorded within this range, it may sound very quiet. No need to worry though because you can increase the volume later in editing.
+
+### **7\. Start with a sound cue if you’re planning to do some syncing in post**
+
+If you’re recording separate audio that you plan to sync to your video later in editing, start your recording with a short and loud sound cue like a clap or a high pitched “beep” tone. Later, when you’re editing, it’ll be much easier for you to find the section where your video and additional audio match.
+
+### **8\. Get close to the sound**
+
+Unless you’re aiming to record ambient sound, bring your microphone close to the source of sound you are wanting to record. The closer your microphone is to the source of sound, the lower your sensitivity setting can be on your microphone. As a result of lowering your levels, sounds you are not meaning to record will also sound fainter.
+
+### **9\. ADR**
+
+When you need to record a scene in a loud setting where you have very little control over the noise, record additional vocals later and replace the original vocals through a process called automated dialogue replacement.
+
+### **10\. Record Ambient Sound**
+
+Remember to record ambient sound or “room tone.” You can use these recordings to fill in the blanks if you run out of audio and also smooth out parts of your audio where you hear pops, clicks, and other unwanted noise.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-elevate-your-content-strategy-with-social-blade-and-youtube-stats/"><u>[New] 2024 Approved  Elevate Your Content Strategy with Social Blade and YouTube Stats</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-the-beginners-blueprint-to-building-top-10-easy-to-create-biz-youtubes/"><u>In 2024, The Beginner's Blueprint to Building Top 10 Easy-to-Create Biz YouTubes</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-a-deep-dive-into-youtube-content-ownership-laws/"><u>2024 Approved  A Deep Dive Into YouTube Content Ownership Laws</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/deal-asmr-channel-selections-for-2024/"><u>[New] Ideal ASMR Channel Selections for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/youtube-image-saver-compilation-for-2024/"><u>Free YouTube Image Saver Compilation for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ligning-spotify-selections-for-a-unified-youtube-music-experience/"><u>[New] Aligning Spotify Selections for a Unified YouTube Music Experience</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/cle-community-standards-on-youtube-for-2024/"><u>Pinnacle Community Standards on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nleash-joy-with-9-complete-uncut-films-celebrating-christmas-day-online-for-2024/"><u>[New] Unleash Joy with 9 Complete, Uncut Films Celebrating Christmas Day Online for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-ensuring-correct-ad-revenue-a-comprehensive-guide-to-yt-channel-earnings/"><u>[Updated] In 2024, Ensuring Correct Ad Revenue  A Comprehensive Guide to YT Channel Earnings</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/unlock-your-device-icloud-dns-bypass-explained-and-tested-plus-easy-alternatives-from-iphone-14-by-drfone-ios/"><u>Unlock Your Device iCloud DNS Bypass Explained and Tested, Plus Easy Alternatives From iPhone 14</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-incorporating-melodic-essence-into-your-creative-videos-with-premiere-pro/"><u>[New] Incorporating Melodic Essence Into Your Creative Videos with Premiere Pro</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-composing-the-unseen-background-sounds-for-movie-teasers/"><u>2024 Approved  Composing the Unseen  Background Sounds for Movie Teasers</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-2024-approved-exploring-the-mysteries-of-omegle-usage-and-assessing-risks-for-safe-interaction/"><u>Updated 2024 Approved Exploring the Mysteries of Omegle Usage & Assessing Risks for Safe Interaction</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-enhance-visibility-amplify-impact-video-seo-for-2024/"><u>[Updated] Enhance Visibility, Amplify Impact (Video SEO) for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-reversing-a-youtube-strike-a-guide-for-2024/"><u>[Updated] Reversing a YouTube Strike  A Guide for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-explore-and-understand-what-does-pfp-mean-on-tiktok/"><u>In 2024, Explore and Understand  What Does PFP Mean on TikTok?</u></a></li>
+<li><a href="https://review-topics.techidaily.com/4-feasible-ways-to-fake-location-on-facebook-for-your-xiaomi-redmi-note-13-pro-5g-drfone-by-drfone-virtual-android/"><u>4 Feasible Ways to Fake Location on Facebook For your Xiaomi Redmi Note 13 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-the-social-lift-transform-from-zero-to-millionth-follower-in-months/"><u>[Updated] The Social Lift  Transform From Zero to Millionth Follower in Months</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-unplugging-pauses-from-social-streams-a-2023-approach-to-fixing-livestream-issues-for-2024/"><u>[New] Unplugging Pauses From Social Streams  A 2023 Approach to Fixing Livestream Issues for 2024</u></a></li>
+</ul></div>
