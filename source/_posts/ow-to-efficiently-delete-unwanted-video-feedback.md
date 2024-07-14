@@ -1,7 +1,7 @@
 ---
 title: "[New] How to Efficiently Delete Unwanted Video Feedback"
-date: 2024-06-22T10:45:46.502Z
-updated: 2024-06-23T10:45:46.502Z
+date: 2024-07-13T00:06:26.249Z
+updated: 2024-07-14T00:06:26.249Z
 tags:
   - ai video
   - ai youtube
@@ -40,7 +40,7 @@ So how do you delete all YouTube comments? In this how-to blog, we will show you
 
 In this section, we will tell you how you can do it from your desktop.
 
-1. Go to[https://www.youtube.com/](https://www.youtube.com/) from your desktop browser and log in.
+1. Go to [https://www.youtube.com/](https://www.youtube.com/) from your desktop browser and log in.
 2. Once you log in, you need to go to your channel. For this, you can select the My Channel option from the upper-left side of your YouTube home page.
 3. From the list of your videos, select the one you need and scroll down to reach the comment you want to delete.
 4. When you locate the comment, click on the three vertical dots on the right-hand side of the comment. From the drop-down list, click on Remove. The process is complete, and YouTube will remove your comment.
@@ -63,9 +63,9 @@ Have you accidentally posted something on a YouTuber’s channel? Are you anxiou
 
 Fear not. Read on to know how to **delete all comments you posted on someone else’s YouTube channel** from your desktop.
 
-1. Visit[https://www.youtube.com/](https://www.youtube.com/) from your desktop and then sign in YouTube channel.
+1. Visit [https://www.youtube.com/](https://www.youtube.com/) from your desktop and then sign in YouTube channel.
 2. If your YouTube account is not open, tap on Sign in and enter your email and password to log in to your account.
-3. Once there, you need to access your Comment History page. To do this, you can click on the three horizontal lines at the top left corner of your YouTube homepage. Click on History. On the page that opens, click Comments from the panel on the right. It will direct you to your Comment History page. You can also access the YouTube comment history from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
+3. Once there, you need to access your Comment History page. To do this, you can click on the three horizontal lines at the top left corner of your YouTube homepage. Click on History. On the page that opens, click Comments from the panel on the right. It will direct you to your Comment History page. You can also access the YouTube comment history from [here](https://www.youtube.com/feed/history/comment%5Fhistory).
 1. When you reach the Comment History page, you will be able to find all comments you have ever posted. Scroll down to the comment you want to delete.
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
 
@@ -112,7 +112,7 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
-1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
+1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from [here](https://www.youtube.com/account%5Fadvanced).
 
 ![YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
 
@@ -151,3 +151,41 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/24-leveraging-youtubes-ecosystem-for-financial-gain/"><u>In 2024, Leveraging YouTube's Ecosystem for Financial Gain</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-ig-upgrade-starts-here-top-tools-for-follower-growth-for-2024/"><u>[New] IG Upgrade Starts Here  Top Tools for Follower Growth for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-expert-strategies-on-calculating-your-youtube-audience-impact-and-revenue/"><u>[Updated] In 2024, Expert Strategies on Calculating Your YouTube Audience Impact and Revenue</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-boost-video-quality-on-youtube-the-essential-webcams-guide/"><u>[Updated] In 2024, Boost Video Quality on YouTube - The Essential Webcams Guide</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/e-streaming-hierarchy-who-rises-above-vimeo-or-giants-like-youtubes-and-dailymotions/"><u>Online Streaming Hierarchy  Who Rises Above – Vimeo or Giants Like YouTubes and DailyMotions?</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-accelerate-engagement-the-best-12-ways-to-increase-video-popularity/"><u>[Updated] In 2024, Accelerate Engagement - The Best 12 Ways to Increase Video Popularity</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-farm-frontier-the-best-seed-to-sow-in-gaming/"><u>[Updated] In 2024, Farm Frontier  The Best Seed to Sow in Gaming</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-expert-strategies-on-calculating-your-youtube-audience-impact-and-revenue/"><u>[Updated] Expert Strategies on Calculating Your YouTube Audience Impact and Revenue</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-a-spectrum-of-screams-the-best-places-to-download-terrifying-tones-online-for-2024/"><u>Updated A Spectrum of Screams The Best Places to Download Terrifying Tones Online for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/leveraging-youtube-and-apple-tv-integration-for-enhanced-fb-video-watching-for-2024/"><u>Leveraging YouTube & Apple TV Integration for Enhanced FB Video Watching for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-tech-savvy-gamers-hosting-smarter-views/"><u>In 2024, Tech-Savvy Gamers Hosting Smarter Views</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-from-noob-to-pro-selecting-webcams-that-make-a-difference-in-youtube-livestreams/"><u>[Updated] From Noob to Pro  Selecting Webcams That Make a Difference in YouTube Livestreams</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/d-the-look-celebrity-beauty-gurus-of-2024/"><u>Behind the Look  Celebrity Beauty Gurus of 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ac-users-guide-to-premium-mp4-slicer-apps-for-2024/"><u>[New] Mac Users' Guide to Premium MP4 Slicer Apps for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-guidelines-to-erase-youtube-recordings-on-pc/"><u>[Updated] Guidelines to Erase YouTube Recordings on PC</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-professional-video-editing-simplified-with-mac-mp4-cutters/"><u>[Updated] In 2024, Professional Video Editing Simplified with Mac MP4 Cutters</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-mastering-youtube-a-guide-for-gamers-live-broadcasts/"><u>In 2024, Mastering YouTube  A Guide for Gamers' Live Broadcasts</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ast-paced-artistry-expert-valorant-thumbnails-in-a-blink-for-2024/"><u>[New] Fast-Paced Artistry  Expert Valorant Thumbnails in a Blink for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-seeking-outstanding-user-contributions/"><u>[Updated] 2024 Approved  Seeking Outstanding User Contributions</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-eras-endwatchers-top-youtube-viewership/"><u>2024 Approved  Era's Endwatchers  Top YouTube Viewership</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-realme-narzo-n55-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Realme Narzo N55 without Losing Data | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-infinite-views-looping-videos-on-your-iphone/"><u>[Updated] 2024 Approved  Infinite Views  Looping Videos on Your iPhone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-bypass-activation-lock-on-apple-watch-or-iphone-11-pro-by-drfone-ios/"><u>How To Bypass Activation Lock On Apple Watch Or iPhone 11 Pro?</u></a></li>
+<li><a href="https://some-tips.techidaily.com/in-2024-understanding-pixel-performance-from-a-start/"><u>In 2024, Understanding Pixel Performance From a Start</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-hashtag-heroes-the-ultimate-list-for-popularizing-your-youtube-snippets/"><u>[New] Hashtag Heroes  The Ultimate List for Popularizing Your YouTube Snippets</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-enhance-editing-unlimited-free-audio-samples/"><u>[Updated] 2024 Approved  Enhance Editing  Unlimited Free Audio Samples!</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-managing-who-accesses-your-youtube-videography/"><u>In 2024, Managing Who Accesses Your YouTube Videography</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-elevate-your-visibility-with-youtube-branding-techniques/"><u>2024 Approved  Elevate Your Visibility with YouTube Branding Techniques</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-flickr-profile-picture-breakdown-area-codec-timeframe/"><u>[New] 2024 Approved  Flickr Profile Picture Breakdown  Area, Codec, Timeframe</u></a></li>
+<li><a href="https://techidaily.com/solutions-to-restore-deleted-files-from-xiaomi-redmi-12-5g-by-fonelab-android-recover-data/"><u>Solutions to restore deleted files from Xiaomi Redmi 12 5G</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-controlling-who-sees-your-youtube-productions/"><u>[Updated] 2024 Approved  Controlling Who Sees Your Youtube Productions</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-youtubes-first-visual-hook-creating-personalized-thumbnails/"><u>2024 Approved  YouTube's First Visual Hook  Creating Personalized Thumbnails</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-maximizing-video-moolah-anywhere-via-youtube-studios-tools/"><u>In 2024, Maximizing Video Moolah Anywhere via YouTube Studio's Tools</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-instantaneous-instagram-video-experience/"><u>[Updated] In 2024, Instantaneous Instagram Video Experience</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Techniques for Rapid Deletion of Youtube Feedback\""
-date: 2024-06-22T11:42:50.623Z
-updated: 2024-06-23T11:42:50.623Z
+date: 2024-07-13T01:05:34.378Z
+updated: 2024-07-14T01:05:34.378Z
 tags:
   - ai video
   - ai youtube
@@ -40,7 +40,7 @@ So how do you delete all YouTube comments? In this how-to blog, we will show you
 
 In this section, we will tell you how you can do it from your desktop.
 
-1. Go to[https://www.youtube.com/](https://www.youtube.com/) from your desktop browser and log in.
+1. Go to [https://www.youtube.com/](https://www.youtube.com/) from your desktop browser and log in.
 2. Once you log in, you need to go to your channel. For this, you can select the My Channel option from the upper-left side of your YouTube home page.
 3. From the list of your videos, select the one you need and scroll down to reach the comment you want to delete.
 4. When you locate the comment, click on the three vertical dots on the right-hand side of the comment. From the drop-down list, click on Remove. The process is complete, and YouTube will remove your comment.
@@ -63,9 +63,9 @@ Have you accidentally posted something on a YouTuber’s channel? Are you anxiou
 
 Fear not. Read on to know how to **delete all comments you posted on someone else’s YouTube channel** from your desktop.
 
-1. Visit[https://www.youtube.com/](https://www.youtube.com/) from your desktop and then sign in YouTube channel.
+1. Visit [https://www.youtube.com/](https://www.youtube.com/) from your desktop and then sign in YouTube channel.
 2. If your YouTube account is not open, tap on Sign in and enter your email and password to log in to your account.
-3. Once there, you need to access your Comment History page. To do this, you can click on the three horizontal lines at the top left corner of your YouTube homepage. Click on History. On the page that opens, click Comments from the panel on the right. It will direct you to your Comment History page. You can also access the YouTube comment history from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
+3. Once there, you need to access your Comment History page. To do this, you can click on the three horizontal lines at the top left corner of your YouTube homepage. Click on History. On the page that opens, click Comments from the panel on the right. It will direct you to your Comment History page. You can also access the YouTube comment history from [here](https://www.youtube.com/feed/history/comment%5Fhistory).
 1. When you reach the Comment History page, you will be able to find all comments you have ever posted. Scroll down to the comment you want to delete.
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
 
@@ -112,7 +112,7 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
-1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
+1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from [here](https://www.youtube.com/account%5Fadvanced).
 
 ![YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
 
@@ -151,3 +151,67 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-branding-excellence-youtube-naming-masterclass/"><u>[Updated] 2024 Approved  Branding Excellence  YouTube Naming Masterclass</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-proven-techniques-for-extracting-youtube-clip-sections/"><u>[New] 2024 Approved  Proven Techniques for Extracting YouTube Clip Sections</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/urate-a-perfect-playlist-on-youtube-a-step-by-step-guide-for-2024/"><u>[New] Curate a Perfect Playlist on YouTube  A Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-innovators-amalgamating-photography-plus-music-into-videography/"><u>[Updated] 2024 Approved  Innovators Amalgamating Photography + Music Into Videography</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/g-into-your-youtube-watches-3-methods-50-chars/"><u>Easing Into Your YouTube Watches  3 Methods (50 Chars)</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/eciphering-youtubes-featured-comment-selection/"><u>[New] Deciphering YouTube's Featured Comment Selection</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-turn-off-google-location-to-stop-tracking-you-on-xiaomi-redmi-k70-drfone-by-drfone-virtual-android/"><u>In 2024, How to Turn Off Google Location to Stop Tracking You on Xiaomi Redmi K70 | Dr.fone</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/2024-approved-5-interesting-voice-changer-to-make-your-call-funny/"><u>2024 Approved 5 Interesting Voice Changer to Make Your Call Funny</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-photovideo-letter-artistry/"><u>In 2024, Photo/Video Letter Artistry</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-your-youtubian-beginnings-establishing-your-channel-earning-earnings/"><u>2024 Approved  Your Youtubian Beginnings  Establishing Your Channel, Earning Earnings</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ideo-content-transcriber-for-2024/"><u>[New] Video Content Transcriber for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-learning-the-process-of-acquiring-movie-maker-6/"><u>2024 Approved  Learning the Process of Acquiring Movie Maker 6</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/treamline-your-watch-party-multi-video-views-made-easy/"><u>[New] Streamline Your Watch Party  Multi-Video Views Made Easy</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-maximize-creativity-with-no-investment-explore-these-8-video-editors/"><u>[Updated] 2024 Approved  Maximize Creativity with No Investment  Explore These 8 Video Editors</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-conquer-massive-content-views-on-youtube-efficiently-for-2024/"><u>[Updated] Conquer Massive Content Views on YouTube Efficiently for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/hart-toppers-unveiled-top-youtube-stars-and-their-subs-for-2024/"><u>[New] Chart-Toppers Unveiled  Top YouTube Stars and Their Subs for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/con-and-logo-havens-a-guide-to-6-unique-online-resources/"><u>[New] Icon & Logo Havens  A Guide to 6 Unique Online Resources</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-top-6-appsservices-to-trace-any-apple-iphone-15-plus-location-by-mobile-number-drfone-by-drfone-virtual-ios/"><u>In 2024, Top 6 Apps/Services to Trace Any Apple iPhone 15 Plus Location By Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nfographic-8-ways-to-make-money-on-youtube-for-beginners-for-2024/"><u>[New] Infographic - 8 Ways to Make Money on YouTube for Beginners for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-stream-anything-from-tecno-spark-20-proplus-to-apple-tv-drfone-by-drfone-android/"><u>How To Stream Anything From Tecno Spark 20 Pro+ to Apple TV | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ransformative-tips-making-an-indelible-mark-in-the-digital-world-for-2024/"><u>[New] Transformative Tips  Making an Indelible Mark in the Digital World for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-key-techniques-for-capturing-youtube-streaming-content/"><u>[New] Key Techniques for Capturing YouTube Streaming Content</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-best-practices-boosting-your-game-videos-with-tags/"><u>[Updated] In 2024, Best Practices  Boosting Your Game Videos with Tags</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-best-free-youtube-video-editing-apps-for-iphone-and-ipad-and-how-tos-for-2024/"><u>[Updated] Best Free YouTube Video Editing Apps for iPhone & iPad & How-Tos for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/getting-started-with-your-youtube-channel-essentials-for-2024/"><u>Getting Started with Your YouTube Channel – Essentials for 2024</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-2024-approved-the-best-free-webm-video-editors-you-need-to-try/"><u>Updated 2024 Approved The Best Free WebM Video Editors You Need to Try</u></a></li>
+<li><a href="https://win11.techidaily.com/understanding-and-troubleshooting-winerror-0x80071a90/"><u>Understanding & Troubleshooting WinError 0X80071A90</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/captioning-in-fcpx-a-beginners-guide-to-adding-subtitles/"><u>Captioning in FCPX A Beginners Guide to Adding Subtitles</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-fake-the-location-to-get-around-the-mlb-blackouts-on-apple-iphone-12-mini-drfone-by-drfone-virtual-ios/"><u>In 2024, Fake the Location to Get Around the MLB Blackouts on Apple iPhone 12 mini | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/urning-time-on-its-ear-unique-approaches-to-reversed-youtube-content/"><u>[New] Turning Time on Its Ear  Unique Approaches to Reversed YouTube Content</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-optimal-sony-ps3-reproduction-tools-ranked-pc/"><u>In 2024, Optimal Sony PS3 Reproduction Tools Ranked (PC)</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/eauty-vlogs-from-basics-to-brilliance-launching-a-youtube-channel/"><u>[New] Beauty Vlogs From Basics to Brilliance  Launching a YouTube Channel</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/cing-views-with-these-premium-tools-for-youtube-seo/"><u>Enhancing Views with These Premium Tools for YouTube SEO</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-strategies-for-amplifying-your-yt-viewership-quickly/"><u>[Updated] In 2024, Strategies for Amplifying Your YT Viewership Quickly</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/mlined-simplicity-ayts-quick-ways-to-blur-background/"><u>Streamlined Simplicity  AYT's Quick Ways to Blur Background</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/charge-your-channel-with-smart-youtube-collaborations/"><u>Supercharge Your Channel with Smart YouTube Collaborations</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-engaging-essentials-leading-ig-filters/"><u>[New] 2024 Approved  Engaging Essentials  Leading IG Filters</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-purchasing-options-choosing-premium-vs-standard-fixtures-and-whether-they-are-integrated-or-retrofit-options-can-alter-costs/"><u>[Updated] __Purchasing Options__  Choosing Premium Vs. Standard Fixtures and Whether They Are Integrated or Retrofit Options Can Alter Costs</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ting-your-vlog-with-proper-tripod-angles/"><u>Elevating Your Vlog with Proper Tripod Angles</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/cting-video-segmentation-for-enhanced-viewing-experience-on-youtube/"><u>Perfecting Video Segmentation for Enhanced Viewing Experience on YouTube</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-step-by-step-perfecting-iphones-audio-captures/"><u>[Updated] 2024 Approved  Step-by-Step  Perfecting iPhone's Audio Captures</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/latest-guide-how-to-bypass-xiaomi-redmi-note-12-pro-5g-frp-without-computer-by-drfone-android/"><u>Latest Guide How To Bypass Xiaomi Redmi Note 12 Pro 5G FRP Without Computer</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-charting-social-media-trends-with-data-graphics/"><u>[New] 2024 Approved  Charting Social Media Trends with Data Graphics</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/remium-10-volume-enhancers-windows-apple-android/"><u>[New] Premium 10 Volume Enhancers  Windows, Apple, Android</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-2024-approved-choosing-reliable-partners-for-legitimate-tiktok-following/"><u>[Updated] 2024 Approved  Choosing Reliable Partners for Legitimate TikTok Following</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-a-time-travelers-guide-to-youtube-queue-watch-from-end-to-start/"><u>[New] 2024 Approved  A Time Traveler’s Guide to YouTube Queue  Watch From End to Start</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-tamil-tunes-steps-for-ringtones-and-editing-songs-as-alerts/"><u>[Updated] Tamil Tunes  Steps for Ringtones & Editing Songs as Alerts</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-understanding-aspect-ratios-5-key-insights-into-16x9-calculators/"><u>New Understanding Aspect Ratios 5 Key Insights Into 16X9 Calculators</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/triumph-over-the-printer-after-updating-woes/"><u>Triumph over the Printer After Updating Woes</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-expand-your-horizon-best-15-online-science-platforms/"><u>[New] In 2024, Expand Your Horizon  Best 15 Online Science Platforms</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/secrets-of-successful-youtube-promotions/"><u>Secrets of Successful YouTube Promotions</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-initiating-a-thriving-youtube-channel-avoid-these-8-essential-blunders/"><u>2024 Approved  Initiating a Thriving YouTube Channel? Avoid These 8 Essential Blunders!</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-premier-10-layouts-ae-text-edition/"><u>2024 Approved  Premier 10 Layouts  AE Text Edition</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-the-viral-trend-you-need-to-try-here-it-is-for-2024/"><u>[Updated] The Viral Trend You Need to Try - Here It Is for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-enhance-video-appeal-with-filmmaker-friendly-subscribe-button-tutorials-filmora/"><u>[Updated] 2024 Approved  Enhance Video Appeal with Filmmaker-Friendly Subscribe Button Tutorials (Filmora)</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/2024-approved-top-10-complimentary-ios-and-android-music-to-visual-applications/"><u>2024 Approved Top 10 Complimentary iOS & Android Music-to-Visual Applications</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-bypass-icloud-activation-lock-on-ipod-and-iphone-11-the-right-way-by-drfone-ios/"><u>How To Bypass iCloud Activation Lock On iPod and iPhone 11 The Right Way</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/tick-suggestions-a-guide-to-hilarious-short-form-videography/"><u>Slapstick Suggestions  A Guide to Hilarious Short-Form Videography</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-popularitys-palette-ig-story-filter-guide/"><u>[New] In 2024, Popularity's Palette  IG Story Filter Guide</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-effortless-guide-to-adding-banners-on-gaming-channels/"><u>[Updated] Effortless Guide to Adding Banners on Gaming Channels</u></a></li>
+</ul></div>

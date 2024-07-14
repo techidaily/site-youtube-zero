@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Optimized Approach to Delete Unwanted YouTube Posts\""
-date: 2024-06-22T11:50:15.940Z
-updated: 2024-06-23T11:50:15.940Z
+date: 2024-07-13T01:13:23.766Z
+updated: 2024-07-14T01:13:23.766Z
 tags:
   - ai video
   - ai youtube
@@ -40,7 +40,7 @@ So how do you delete all YouTube comments? In this how-to blog, we will show you
 
 In this section, we will tell you how you can do it from your desktop.
 
-1. Go to[https://www.youtube.com/](https://www.youtube.com/) from your desktop browser and log in.
+1. Go to [https://www.youtube.com/](https://www.youtube.com/) from your desktop browser and log in.
 2. Once you log in, you need to go to your channel. For this, you can select the My Channel option from the upper-left side of your YouTube home page.
 3. From the list of your videos, select the one you need and scroll down to reach the comment you want to delete.
 4. When you locate the comment, click on the three vertical dots on the right-hand side of the comment. From the drop-down list, click on Remove. The process is complete, and YouTube will remove your comment.
@@ -63,9 +63,9 @@ Have you accidentally posted something on a YouTuber’s channel? Are you anxiou
 
 Fear not. Read on to know how to **delete all comments you posted on someone else’s YouTube channel** from your desktop.
 
-1. Visit[https://www.youtube.com/](https://www.youtube.com/) from your desktop and then sign in YouTube channel.
+1. Visit [https://www.youtube.com/](https://www.youtube.com/) from your desktop and then sign in YouTube channel.
 2. If your YouTube account is not open, tap on Sign in and enter your email and password to log in to your account.
-3. Once there, you need to access your Comment History page. To do this, you can click on the three horizontal lines at the top left corner of your YouTube homepage. Click on History. On the page that opens, click Comments from the panel on the right. It will direct you to your Comment History page. You can also access the YouTube comment history from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
+3. Once there, you need to access your Comment History page. To do this, you can click on the three horizontal lines at the top left corner of your YouTube homepage. Click on History. On the page that opens, click Comments from the panel on the right. It will direct you to your Comment History page. You can also access the YouTube comment history from [here](https://www.youtube.com/feed/history/comment%5Fhistory).
 1. When you reach the Comment History page, you will be able to find all comments you have ever posted. Scroll down to the comment you want to delete.
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
 
@@ -112,7 +112,7 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
-1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
+1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from [here](https://www.youtube.com/account%5Fadvanced).
 
 ![YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
 
@@ -151,3 +151,54 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/iscover-the-secrets-to-youtubes-rankings-with-keywords/"><u>[New] Discover the Secrets to YouTube's Rankings with Keywords</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-best-screen-replayer-for-high-impact-youtubing-experience/"><u>[Updated] In 2024, Best Screen Replayer for High-Impact YouTubing Experience</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-elevate-visibility-maximize-views-seo-for-videos/"><u>[Updated] In 2024, Elevate Visibility, Maximize Views - SEO for Videos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-eliminating-grey-edges-on-video-a-youtube-fix-guide/"><u>[Updated] In 2024, Eliminating Grey Edges on Video  A YouTube Fix Guide</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-the-hidden-prowess-in-locating-elusive-youtube-videos/"><u>[Updated] In 2024, The Hidden Prowess in Locating Elusive YouTube Videos</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-immerse-audiences-integrating-sound-effectively-in-canva-films/"><u>In 2024, Immerse Audiences  Integrating Sound Effectively in Canva Films</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-joyful-views-essential-15-comical-youtubers-to-relax-with/"><u>[Updated] 2024 Approved  Joyful Views  Essential 15 Comical YouTubers to Relax With</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/he-right-tools-for-your-youtube-journey-camera-lenses-explained/"><u>[New] The Right Tools For Your YouTube Journey - Camera Lenses Explained</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/freshest-beats-newly-trending-music-for-youtube-short-videos-for-2024/"><u>Freshest Beats  Newly Trending Music for YouTube Short Videos for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-androids-low-cost-video-communication-guide/"><u>In 2024, Android's Low-Cost Video Communication Guide</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/eam-it-up-a-step-by-step-approach-to-youtube-video-luminance/"><u>[New] Beam It Up  A Step-By-Step Approach to YouTube Video Luminance</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-honor-90-gt-to-laptop-without-usb-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos from Honor 90 GT to Laptop Without USB | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-elevate-your-channels-aesthetics-free-banners-available/"><u>[New] 2024 Approved  Elevate Your Channel's Aesthetics - Free Banners Available</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-thriving-on-both-sides-work-and-youtubing-tips/"><u>[Updated] 2024 Approved  Thriving on Both Sides  Work and YouTubing Tips</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nhancing-youtube-videos-with-professional-techniques-using-wmm/"><u>[New] Enhancing YouTube Videos with Professional Techniques Using WMM</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-2024-approved-from-zero-to-hero-9-best-intro-video-creators-for-movies/"><u>Updated 2024 Approved From Zero to Hero 9 Best Intro Video Creators for Movies</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-face-fluidity-techniques-implementing-motion-blur-effects/"><u>2024 Approved  Face Fluidity Techniques  Implementing Motion Blur Effects</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-content-creation-evolution-studio-vs-innovative-beta-for-2024/"><u>[Updated] Content Creation Evolution  Studio Vs. Innovative Beta for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/standing-youtube-short-videos/"><u>Understanding YouTube Short Videos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-effortless-music-extraction-choose-the-right-apps-for-youtube-and-mp3/"><u>[New] 2024 Approved  Effortless Music Extraction  Choose the Right Apps for YouTube & MP3</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-audiovisual-symphony-adding-music-to-your-youtube-masterpieces/"><u>[Updated] In 2024, Audiovisual Symphony  Adding Music to Your YouTube Masterpieces</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/iscover-the-best-3-platforms-for-video-consumption-post-youtube-for-2024/"><u>[New] Discover the Best 3 Platforms for Video Consumption (Post-YouTube) for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-imagemorph-magic/"><u>[New] 2024 Approved  ImageMorph Magic</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-step-guide-to-ascertain-googles-profitable-potential-youtube-analysis/"><u>[New] 3-Step Guide to Ascertain Google's Profitable Potential  YouTube Analysis</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-mastering-the-visual-storyteller-youtube-cinematic-training/"><u>[Updated] 2024 Approved  Mastering the Visual Storyteller  YouTube Cinematic Training</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ing-yt-masterpieces-for-igtv-showcase-for-2024/"><u>Crafting YT Masterpieces for IGTV Showcase for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-free-thumbnail-extract-from-youtube-videos-today/"><u>[Updated] Free Thumbnail Extract From YouTube Videos Today!</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/hannel-finale-101-insider-tricks-for-successful-outros-for-2024/"><u>[New] Channel Finale 101  Insider Tricks for Successful Outros for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-screen-saviors-ranked-top-8-for-ios-filmmaking-apps/"><u>[New] Screen Saviors  Ranked Top 8 for iOS Filmmaking Apps</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-pranks-and-puns-playbook-7-clever-gags-for-video-virtuosos/"><u>[Updated] 2024 Approved  Pranks & Puns Playbook  7 Clever Gags for Video Virtuosos</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-from-lurker-to-influencer-enhancing-your-facebook-experience/"><u>[Updated] From Lurker to Influencer  Enhancing Your Facebook Experience</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ecrets-of-sending-short-videos-to-youtube-tech-for-mobile-and-laptops/"><u>[New] Secrets of Sending Short Videos to YouTube - Tech for Mobile & Laptops</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-pros-guide-to-clearing-backdrops-in-figma-design/"><u>[Updated] The Pro's Guide to Clearing Backdrops in Figma Design</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-pictureforge-hub/"><u>[Updated] 2024 Approved  PictureForge Hub</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-quiet-your-screen-three-strategies-to-slow-youtube-videos-down-57-chars/"><u>[Updated] 2024 Approved  Quiet Your Screen  Three Strategies to Slow YouTube Videos Down (57 Chars)</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-proven-techniques-for-captivating-viewers-with-live-video-graphics/"><u>In 2024, Proven Techniques for Captivating Viewers with Live Video Graphics</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-event-harmony-sourcing-perfect-dj-video-templates/"><u>[Updated] 2024 Approved  Event Harmony  Sourcing Perfect DJ Video Templates</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ransform-clips-into-content-from-premiere-to-youtube-for-2024/"><u>[New] Transform Clips Into Content  From Premiere to YouTube for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-the-chefs-roadmap-creating-culinary-content/"><u>[Updated] In 2024, The Chef's Roadmap  Creating Culinary Content</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ssential-editing-techniques-for-yt-channel-summaries-for-2024/"><u>[New] Essential Editing Techniques for YT Channel Summaries for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-12-unparalleled-youtube-gamers-intros-revealed-free-or-fee/"><u>[New] In 2024, 12 Unparalleled YouTube Gamers' Intros Revealed  Free or Fee?</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ne-entertainment-how-to-load-youtube-video-onto-your-apple-gear-for-2024/"><u>Offline Entertainment  How to Load YouTube Video Onto Your Apple Gear for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-track-imei-number-of-poco-through-google-earth-by-drfone-android/"><u>In 2024, How To Track IMEI Number Of Poco Through Google Earth?</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-high-quality-youtube-images-download-without-any-cost/"><u>[Updated] 2024 Approved  High-Quality YouTube Images  Download Without Any Cost!</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/does-redmi-note-12t-pro-support-mkv-video-files-by-aiseesoft-video-converter-play-mkv-on-android/"><u>Does Redmi Note 12T Pro support MKV video files?</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-digital-artisans-gathering-haven/"><u>[New] 2024 Approved  Digital Artisans Gathering Haven</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/echniques-for-assessing-youtube-engagement-and-profitability/"><u>Key Techniques for Assessing YouTube Engagement and Profitability</u></a></li>
+</ul></div>

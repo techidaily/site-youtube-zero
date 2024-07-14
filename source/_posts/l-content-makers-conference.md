@@ -1,7 +1,7 @@
 ---
 title: "Global Content Makers' Conference"
-date: 2024-06-22T11:08:40.133Z
-updated: 2024-06-23T11:08:40.133Z
+date: 2024-07-13T00:30:07.742Z
+updated: 2024-07-14T00:30:07.742Z
 tags:
   - ai video
   - ai youtube
@@ -43,7 +43,7 @@ The Creator Summit is invite-only, and only 120 YouTubers attended including Gra
 
 ![YouTube Creator Summit Group Photo](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-2017.jpg)
 
-_Will Smith was one of the speakers at the summit. Turns out_ [_he’s a big fan of Lilly Singh_](https://www.youtube.com/watch?v=AGlcsogbAQY)_._
+_Will Smith was one of the speakers at the summit. Turns out_ [_he’s a big fan of Lilly Singh_](https://www.youtube.com/watch?v=AGlcsogbAQY) _._
 
 Thanks to Nick from nickatnyte, for example, we have a pretty clear picture of the kinds of swag YouTube was giving away.
 
@@ -83,7 +83,7 @@ There were numerous custom pins available at different events at the summit. Asi
 
 A denim jacket with a play button on it was also in the box. The idea was that creators would collect pins and display them on their new jackets. At the end of the week, they would have a great souvenir reminding them of every event they attended at the summit.
 
-_![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
+_ ![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg) _
 
 _Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
 
@@ -118,3 +118,48 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/evealing-featured-comment-spots/"><u>[New] Revealing Featured Comment Spots</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ring-the-finest-no-cost-video-editing-software-for-2024/"><u>Exploring the Finest No-Cost Video Editing Software for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/5-crucial-windows-apps-making-mac-to-windows-swap-a-breeze/"><u>5 Crucial Windows Apps Making Mac to Windows Swap a Breeze</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-nikon-j5-sets-new-standards-in-4k-video-capture/"><u>2024 Approved  Nikon J5 Sets New Standards in 4K Video Capture</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/shing-revenue-with-review-videos-of-household-items-for-2024/"><u>Unleashing Revenue with Review Videos of Household Items for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/he-ultimate-guide-to-saving-youtube-tracks-and-dialogues/"><u>[New] The Ultimate Guide to Saving YouTube Tracks & Dialogues</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-break-free-from-adobe-top-4-premiere-rush-alternatives-for-video-creators/"><u>Updated Break Free From Adobe Top 4 Premiere Rush Alternatives for Video Creators</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/how-to-download-vimeo-videos-withwithout-software-100-useful-for-2024/"><u>How to Download Vimeo Videos With/Without Software [100%% Useful] for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/tep-by-step-backlink-blueprint-for-channel-growth-for-2024/"><u>[New] Step-by-Step Backlink Blueprint for Channel Growth for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-who-holds-sway-over-youtube-subscribers/"><u>[New] In 2024, Who Holds Sway Over YouTube Subscribers?</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/levate-your-youtube-presence-featuring-essential-channels-tutorial-for-2024/"><u>[New] Elevate Your Youtube Presence  Featuring Essential Channels Tutorial for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/astering-short-form-trimming-videos-for-youtube/"><u>[New] Mastering Short-Form  Trimming Videos for YouTube</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-2023s-leading-pc-vr-headsets-revealed/"><u>[Updated] 2023'S Leading PC VR Headsets Revealed</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-eluding-youtube-ban-protective-measures/"><u>[Updated] 2024 Approved  Eluding YouTube Ban  Protective Measures</u></a></li>
+<li><a href="https://location-social.techidaily.com/change-location-on-yik-yak-for-your-vivo-y100i-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>Change Location on Yik Yak For your Vivo Y100i to Enjoy More Fun | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ct-size-crafting-engaging-thumbnails-for-2024/"><u>Perfect Size  Crafting Engaging Thumbnails for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/harvesting-high-returns-ginger-valley-farming-tips/"><u>Harvesting High Returns  Ginger Valley Farming Tips</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-find-ispoofer-pro-activation-key-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>How to Find iSpoofer Pro Activation Key On Realme 11X 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/pth-analysis-of-youtube-adrevenue-average-payout-per-1000-viewers-engagement-for-2024/"><u>In-Depth Analysis of YouTube AdRevenue  Average Payout per 1,000 Viewers' Engagement for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-curate-a-perfect-playlist-on-youtube-a-step-by-step-guide/"><u>[New] In 2024, Curate a Perfect Playlist on YouTube  A Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-say-goodbye-to-interruptions-youtube-adblocking-made-simple/"><u>[Updated] 2024 Approved  Say Goodbye to Interruptions  YouTube Adblocking Made Simple</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/egies-for-securely-amassing-one-million-video-watches-for-2024/"><u>Strategies for Securely Amassing One Million Video Watches for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-does-the-sub4sub-strategy-improve-content-consumption/"><u>[New] In 2024, Does the Sub4Sub Strategy Improve Content Consumption?</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ing-size-for-2024/"><u>Building Size for 2024</u></a></li>
+<li><a href="https://animation-videos.techidaily.com/new-samples-of-cartoon-character-face-to-inspire-you-for-2024/"><u>New Samples of Cartoon Character Face to Inspire You for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-exploring-the-world-of-youtube-where-are-my-comments/"><u>[Updated] 2024 Approved  Exploring the World of YouTube  Where Are My Comments?</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-securing-virtual-triumphs-mastering-screen-captures-in-pc-games/"><u>[New] In 2024, Securing Virtual Triumphs - Mastering Screen Captures in PC Games</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/imply-saver-top-mobile-apps-for-downloading-youtube-series-and-songs-for-2024/"><u>[New] Simply Saver  Top Mobile Apps for Downloading YouTube Series & Songs for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-strategies-for-deleting-watch-later-items-on-youtube/"><u>2024 Approved  Strategies for Deleting Watch Later Items on YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/iscover-keyword-power-30-must-use-hashtags-for-freegame-content-for-2024/"><u>[New] Discover Keyword Power  30 Must-Use Hashtags for FreeGame Content for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-fifa-visuals-key-youtube-video-trends/"><u>[Updated] FIFA Visuals  Key YouTube Video Trends</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-migrating-from-spotify-to-a-personalized-youtube-music-list/"><u>[Updated] In 2024, Migrating From Spotify to a Personalized YouTube Music List</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/levate-your-youtube-presence-filmmaking-with-filmora-for-2024/"><u>[New] Elevate Your YouTube Presence  Filmmaking with Filmora for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-unbeatable-bargain-video-content-websites/"><u>[Updated] In 2024, Unbeatable Bargain Video Content Websites</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/iently-isolate-key-moments-in-youtube-footage/"><u>Efficiently Isolate Key Moments in YouTube Footage</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/op-8-access-free-eco-friendly-vfx-backdrops-online/"><u>[New] Top 8  Access Free Eco-Friendly VFX Backdrops Online</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/he-smooth-watchers-guide-to-pacing-down-videos-on-youtube-60-chars-minor-exception-due-to-title-length-but-provides-rich-context/"><u>[New] The Smooth Watcher's Guide to Pacing Down Videos on YouTube (60 Chars, Minor Exception Due to Title Length but Provides Rich Context)</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-the-ultimate-blueprint-for-your-mobile-youtube-businesspersonal-platform/"><u>[Updated] 2024 Approved  The Ultimate Blueprint for Your Mobile YouTube Business/Personal Platform</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-oneplus-ace-2-pro-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On OnePlus Ace 2 Pro? | Dr.fone</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-the-exclusion-dilemma-is-someone-hidden-on-snapchat/"><u>2024 Approved  The Exclusion Dilemma  Is Someone Hidden On Snapchat?</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-dominating-the-digital-space-5-tips-for-video-visibility-victory/"><u>[Updated] In 2024, Dominating the Digital Space  5 Tips for Video Visibility Victory</u></a></li>
+</ul></div>
