@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Humor Hits  The Best Funny YouTube Short Ideas on the Block\""
-date: 2024-07-13T00:06:24.125Z
-updated: 2024-07-14T00:06:24.125Z
+date: 2024-07-29T08:23:51.298Z
+updated: 2024-07-30T08:23:51.298Z
 tags:
   - ai video
   - ai youtube
@@ -26,10 +26,16 @@ thumbnail: https://thmb.techidaily.com/4e313b1018e0c2499cbd20182728d1887cb747f9b
 
 YouTube is a well-known brand for videos globally. This time, it comes with its extension feature with YouTube Shorts. It is a short video version of 15 to 60 seconds duration using a short camera present in the YouTube application and your smartphone. So, you can use YouTube Shorts ideas for watching and creating those funny and interesting short videos right from your mobile camera with ease.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<!-- affiliate ads end -->
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-1.jpg)
 
 That sounds great, doesn’t it? Let’s move ahead to get a good grab over some funny, engaging, and eye-catching ideas to have YouTube Shorts videos here. No need for a lengthy tutorial to become the real YouTube Shorts champion with the following tips. Let’s roll on, guys!
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 1: Top 10 Funny YouTube Shorts Video Ideas
 
 Your wait gets over here. Yes, you heard it right. If you are eager to explore the world of YouTube Shorts Channel and some funny ideas, take a big leap towards your journey.
@@ -48,6 +54,9 @@ Also, you can discuss different sorts of dreams that the human genre has been dr
 
 Who doesn’t love the stories? Everyone is somewhat fond of listening to different kinds of stories. And, if you can trim those long stories into small ones or can create some short stories. Then, you can make the best YouTube Shorts stories ideas that will go a long way, not only kids but unique and exciting stories loved by all.
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-3.jpg)
 
 So, pen down some compelling stories that do not need long writing work. But, like a comic strip, you need to create and join such a series under YouTube Shorts ideas.
@@ -74,6 +83,9 @@ Living every moment creates a wonder. Let others also make a part of this journe
 
 If experimenting with chemicals or anything that surrounds you makes you out of the world, then there is the chance that you can come out as YouTube Shorts ideas Star. By just showing how one chemical, when mixed with another, creates something new and marvelous to see, look or feel.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-6.jpg)
 
 Just review all your collection of experiments you did and combine them under YouTube Shorts Channel ideas. And make a big bust with such chemical/physical experiments.
@@ -82,6 +94,13 @@ Just review all your collection of experiments you did and combine them under Yo
 
 Competition creates a zeal to lead, and if you add some flavor to it. Then, people will love to take part in it. So, waiting for what? Just come out with YouTube Shorts funny Video Competition ideas to grab the audience to watch the videos and become active participants.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Monthly Membership</a>
+<!-- affiliate ads end -->
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-7.jpg)
 
 Funny competition can vary from a weird hairstyle, odd season festival celebration, or anything that you think of interesting, different, and eye-catching.
@@ -106,6 +125,9 @@ Mixing some comedy flavor to life will add more fun and enjoyment to all those s
 
 Pets are the favorite of those who own them. They are excellent; they play, dance, and do different kinds of fun activities. Have you ever noticed that, if not, they must take notice now?
 
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-10.jpg)
 
 You will be surprised to see how much fun-loving these cute pets are—so, geared up to capture the funny acts of pets through YouTube Shorts ideas. It will bring a smile to everyone’s face.
@@ -114,6 +136,9 @@ You will be surprised to see how much fun-loving these cute pets are—so, geare
 
 Everybody holds some unique talent. You just need to identify it. If you have some talent, then showcasing talent ideas for YouTube Shorts will apt you. The whole world is waiting to see something unique that only you can do. So, shred your shyness and let the world see how talented you are.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-11.jpg)
 
 Here, you got to know about the top 10 funny ideas for YouTube Shorts videos. Choose the one that fits you and start creating YouTube Shorts Channel with these ideas.
@@ -191,3 +216,40 @@ Follow @Shanoon Cox
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-your-secret-to-popularity-choosing-best-thumbnail-fonts/"><u>[New] 2024 Approved  Your Secret to Popularity  Choosing Best Thumbnail Fonts</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-youtube-revenue-breakdown-cpm-insights/"><u>[New] 2024 Approved  YouTube Revenue Breakdown  CPM Insights</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ehind-the-scenes-creating-successful-youtube-shorts-videos/"><u>[New] Behind the Scenes  Creating Successful YouTube Shorts Videos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/apture-stillness-on-the-go-without-tripods/"><u>[New] Capture Stillness on the Go without Tripods</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-digital-duo-dynamics-joining-instagram-and-tiktok-powerfully/"><u>[New] Digital Duo Dynamics  Joining Instagram and TikTok Powerfully</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ow-to-loop-videos-on-iphone-in-2024/"><u>[New] How to Loop Videos on iPhone, In 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-mac-studios-for-top-quality-recordings/"><u>[New] In 2024, Mac Studios for Top-Quality Recordings</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ivoting-with-purpose-rotate-and-rethink-with-youtubes-latest-tools-for-2024/"><u>[New] Pivoting with Purpose  Rotate and Rethink with YouTube's Latest Tools for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/tudy-aids-top-10-educational-history-channels/"><u>[New] Study Aids  Top 10 Educational History Channels</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nveiling-top-asmr-for-iphone-users-for-2024/"><u>[New] Unveiling Top ASMR for iPhone Users for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-micro-enterprises-guide-to-viral-video-promotion/"><u>[Updated] 2024 Approved  Micro-Enterprises' Guide to Viral Video Promotion</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-is-recording-youtube-videos-prohibited-by-law/"><u>[Updated] In 2024, Is Recording YouTube Videos Prohibited by Law?</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-mastering-deleted-yt-content-two-simplified-approaches/"><u>[Updated] In 2024, Mastering Deleted YT Content  Two Simplified Approaches</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-unlock-your-best-freefire-videos-with-key-insights/"><u>[Updated] In 2024, Unlock Your Best FreeFire Videos with Key Insights</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-quick-and-reliable-vimeo-file-retrievers-for-2024/"><u>[Updated] Quick and Reliable Vimeo File Retrievers for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/st-have-openers-for-maximum-youtube-engagement-for-2024/"><u>15 Must-Have Openers for Maximum YouTube Engagement for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-master-guide-to-online-video-calls-free-edition-best/"><u>2024 Approved  Master Guide to Online Video Calls  Free Edition Best</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-onscreen-excellence-flexible-talent-access/"><u>2024 Approved  Onscreen Excellence  Flexible Talent Access</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-professional-rapid-thumbnail-artistry-for-valorant-games/"><u>2024 Approved  Professional Rapid Thumbnail Artistry for Valorant Games</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-unleash-your-photo-potential-with-instagram-filters/"><u>2024 Approved  Unleash Your Photo Potential with Instagram Filters</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/comprelevant-listings-best-free-tools-to-watch-webm-videos-for-2024/"><u>Comprelevant Listings  Best Free Tools to Watch WebM Videos for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/exploring-the-depths-of-firefox-pip-feature-for-2024/"><u>Exploring the Depths of Firefox PIP Feature for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-sharefake-gps-on-uber-for-honor-magic-5-drfone-by-drfone-virtual-android/"><u>How to share/fake gps on Uber for Honor Magic 5 | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-everything-you-need-to-know-about-unlocked-iphone-6s-plus-by-drfone-ios/"><u>In 2024, Everything You Need To Know About Unlocked iPhone 6s Plus</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-instant-adjustment-match-youtube-to-mac-aspects/"><u>In 2024, Instant Adjustment  Match YouTube to Mac Aspects</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-mastering-the-art-of-youtube-thumbnail-capture/"><u>In 2024, Mastering the Art of YouTube Thumbnail Capture</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ative-tips-to-create-effective-free-video-advertisements-on-youtube-for-2024/"><u>Innovative Tips to Create Effective Free Video Advertisements on YouTube for 2024</u></a></li>
+<li><a href="https://driver-error.techidaily.com/resolving-missing-driver-issues-on-your-device-fixes-for-windows-11-8-and-7/"><u>Resolving Missing Driver Issues on Your Device: Fixes for Windows 11, 8 & 7</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/m-like-a-pro-optimizing-your-360-youtube-broadcasts/"><u>Stream Like a Pro  Optimizing Your 360° Youtube Broadcasts</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/lueprint-for-successful-valorant-thumbnails-on-social-media-platforms-for-2024/"><u>The Blueprint for Successful Valorant Thumbnails on Social Media Platforms for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/the-ultimate-app-review-for-crafting-unique-reels/"><u>The Ultimate App Review for Crafting Unique Reels</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-apple-iphone-se-2020-drfone-by-drfone-virtual-ios/"><u>The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Apple iPhone SE (2020) | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/transform-your-phone-personalizing-the-ios-alert-sound-for-2024/"><u>Transform Your Phone  Personalizing the iOS Alert Sound for 2024</u></a></li>
+</ul></div>

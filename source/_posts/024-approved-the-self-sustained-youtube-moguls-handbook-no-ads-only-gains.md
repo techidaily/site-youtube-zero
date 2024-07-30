@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  The Self-Sustained YouTube Mogul’s Handbook  No Ads, Only Gains\""
-date: 2024-07-13T00:05:48.781Z
-updated: 2024-07-14T00:05:48.781Z
+date: 2024-07-29T08:23:25.216Z
+updated: 2024-07-30T08:23:25.216Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/ef756af67baaa63e6513047560b51e7a06317e95c
 
 # How to Make Money on YouTube Without Ads
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -54,6 +57,9 @@ This is a general estimate of how much a YouTuber can make from ads once they qu
 
 \- 1000 video views will equal between $2-$5
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Why It’s So Hard for YouTubers to Make Money From Ads**
 
 For new YouTubers, it is getting harder and harder to get to that point where their sole income can be from YouTube ads. Before they can make a penny, they must first qualify.
@@ -68,6 +74,9 @@ For new YouTubers, it is getting harder and harder to get to that point where th
 
 That is why it is essential to have alternative ways to make money on YouTube, and not rely on the ads shown on your videos. So, without further ado, here are 4 other ways to make money on YouTube:
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## **1\. Sell Your Product or Service:**
 
 YouTube is one of the most effective means of marketing and selling your products and services if you are able to use it effectively and drive people to click and buy.
@@ -130,18 +139,27 @@ The video is over 9 minutes long and not once does he tell his audience to buy a
 
 **Link in the description box:**
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![link in the description box](https://images.wondershare.com/filmora/article-images/link-in-description-box4.jpg)
 
 **The YouTube Card:**
 
 ![youtube card tutorial](https://images.wondershare.com/filmora/article-images/youtube-card-tutorial5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 ![youtube card details](https://images.wondershare.com/filmora/article-images/youtube-card-details6.jpg)
 
 You can add one or multiple cards to direct viewers to your website or to another related video.
 
  **Call to action button:**
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
+<!-- affiliate ads end -->
 **![call to action button](https://images.wondershare.com/filmora/article-images/call-to-action-button7.jpg)**
 
 Once the viewer is on your website, make sure the path is apparent as well. Have a clear call to action somewhere on your website. This is where your viewers become customers.
@@ -166,6 +184,9 @@ As a YouTuber, you can share your thoughts on products or services, and if there
 
 The average affiliate commission rate is between 5% to 30%, with a lot of variables. Some low price range items will have a higher commission, while higher-priced items will have lower commissions.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![affiliate links](https://images.wondershare.com/filmora/article-images/affiliat-link8.jpg)
 
 _Travel YouTuber,_ [_Sorelle Amore_](https://www.youtube.com/user/SorelleIAm) _’s affiliate links to her vlogging gears._
@@ -241,6 +262,9 @@ Steps to getting a brand deal:
 
  Unlike celebrity marketing, YouTube creators have shown brands over the years that they are inventive and clever with how they can present the brand to the audience to drive the best results. This type of independence is what makes YouTube influencer marketing special.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##  
 
 ## **4\. Crowdfunding:**
@@ -277,6 +301,9 @@ If you have a pie in the sky goal, you aren’t going to fully leverage the mess
 
 When it comes to crowdfunding for YouTubers, [Patreon](https://www.patreon.com/) is the platform of choice. While other platforms such as Kickstarter or GoFundMe are focused on entrepreneurial pursuits, large projects, or charitable causes, Patreon is designed to support creatives and reward and incentivize donors.
 
+<!-- affiliate ads begin -->
+<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Key Takeaways:**
 
 There are many ways to make money off of YouTube, I encourage you to try a few of these different strategies and see how they perform and which one suits your channel and your audience the best.
@@ -288,6 +315,9 @@ There are many ways to make money off of YouTube, I encourage you to try a few o
 
 Got questions about making money on YouTube? Leave a comment below. We love to help you get paid for the videos you create.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -315,3 +345,47 @@ Follow @Richard Bennett
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-defeat-synthetic-followers-for-true-popularity-peak/"><u>[New] 2024 Approved  Defeat Synthetic Followers for True Popularity Peak</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-high-definition-hardware-unveiled-by-gamers/"><u>[New] 2024 Approved  High-Definition Hardware Unveiled by Gamers</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-mastering-mobile-thumbnail-creation-for-youtube/"><u>[New] 2024 Approved  Mastering Mobile Thumbnail Creation for YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-navigating-the-world-of-youtube-content-creation-with-flair/"><u>[New] 2024 Approved  Navigating the World of YouTube Content Creation with Flair</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-starting-offright-how-to-register-with-youtube/"><u>[New] 2024 Approved  Starting Offright  How to Register With YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/inancial-flourishing-with-glamour-vlogs/"><u>[New] Financial Flourishing with Glamour Vlogs</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-enjoy-every-frame-best-free-download-apps-for-mobile-devices/"><u>[New] In 2024, Enjoy Every Frame  Best Free Download Apps for Mobile Devices</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-how-to-light-your-youtube-video/"><u>[New] In 2024, How To Light Your YouTube Video</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ey-points-to-remember-a-comprehensive-look-at-youtube-tv/"><u>[New] Key Points to Remember  A Comprehensive Look at YouTube TV</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/treamlining-content-creation-with-youtube-rules-for-2024/"><u>[New] Streamlining Content Creation with YouTube Rules for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/he-art-of-edible-media-recipe-tutorials/"><u>[New] The Art of Edible Media  Recipe Tutorials</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-enhance-team-engagement-with-microsoft-teams-snap-camera-feature/"><u>[Updated] 2024 Approved  Enhance Team Engagement with Microsoft Teams' Snap Camera Feature</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-unlocking-video-popularity-a-comprehensive-guide-to-tagging-on-youtube/"><u>[Updated] 2024 Approved  Unlocking Video Popularity  A Comprehensive Guide to Tagging on YouTube</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-best-in-class-android-storage-in-the-cloud/"><u>[Updated] Best-in-Class Android Storage in the Cloud</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-chart-toppers-on-screen-uploading-songs-methodically/"><u>[Updated] Chart-Toppers on Screen  Uploading Songs Methodically</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-crafting-captivating-asmr-scenes-techniques-for-successful-recording-for-2024/"><u>[Updated] Crafting Captivating ASMR Scenes  Techniques for Successful Recording for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-hover-and-watch-utilizing-the-float-feature-on-netflix/"><u>[Updated] Hover & Watch  Utilizing the Float Feature on Netflix</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-maximize-engagement-a-comprehensive-thumbnail-guidebook/"><u>[Updated] In 2024, Maximize Engagement  A Comprehensive Thumbnail Guidebook</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-unleashing-creativity-how-to-make-dynamic-gifs-with-youtube-tracks-pcmobile/"><u>[Updated] In 2024, Unleashing Creativity  How to Make Dynamic GIFs with YouTube Tracks (PC/Mobile)</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-unlocking-superior-sound-recordings-minus-the-mic/"><u>[Updated] In 2024, Unlocking Superior Sound Recordings  Minus the Mic</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-sizing-up-how-to-make-videos-work-in-instagram-bests-for-2024/"><u>[Updated] Sizing Up  How to Make Videos Work in Instagram Bests for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-crafting-comfortable-cinematography-amidst-the-chill/"><u>2024 Approved  Crafting Comfortable Cinematography Amidst the Chill</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-pc-hdr-optimization-made-simple/"><u>2024 Approved  PC HDR Optimization Made Simple</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-subtitles-that-shine-discover-the-best-free-online-tools/"><u>2024 Approved  Subtitles That Shine - Discover the Best Free Online Tools</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-youtube-copyright-claims-and-how-to-deal-with-a-strike/"><u>2024 Approved  YouTube Copyright Claims and How to Deal with a Strike?</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ing-an-engaging-online-presence-the-complete-guide-to-youtube-submissions-for-2024/"><u>Crafting an Engaging Online Presence  The Complete Guide to YouTube Submissions for 2024</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/eliminate-video-card-errors-from-minecraft/"><u>Eliminate Video Card Errors From Minecraft</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-change-lava-blaze-2-lock-screen-password-by-drfone-android/"><u>How To Change Lava Blaze 2 Lock Screen Password?</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-open-your-apple-iphone-12-pro-max-without-a-home-button-by-drfone-ios/"><u>How To Open Your Apple iPhone 12 Pro Max Without a Home Button</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-8-premier-mp3-downloaders-for-android-devices/"><u>In 2024, 8 Premier MP3 Downloaders for Android Devices</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-best-practices-for-free-clipart-use-in-projects/"><u>In 2024, Best Practices for Free Clipart Use in Projects</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-can-i-use-a-fake-gps-without-mock-location-on-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Use a Fake GPS Without Mock Location On Google Pixel Fold? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-oneplus-12r-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On OnePlus 12R? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-vivo-s17-pro-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Vivo S17 Pro to Samsung Phone | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-nokia-g42-5g-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos From Nokia G42 5G to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
+<li><a href="https://fox-that.techidaily.com/overcoming-siri-problems-a-step-by-step-guide-for-iphoneipad-owners/"><u>Overcoming Siri Problems: A Step-by-Step Guide for iPhone/iPad Owners</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/picture-in-progressive-screen-mastery-for-chrome-users-across-platforms-for-2024/"><u>Picture in Progressive Screen Mastery for Chrome Users Across Platforms for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-guide-to-free-youtube-closure-creation-for-2024/"><u>Quick Guide to Free YouTube Closure Creation for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/revolutionize-your-recording-experience-top-18-cam-tools-showcase/"><u>Revolutionize Your Recording Experience - Top 18 Cam Tools Showcase</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/what-you-want-to-know-about-two-factor-authentication-for-icloud-on-your-iphone-14-plus-by-drfone-ios/"><u>What You Want To Know About Two-Factor Authentication for iCloud On your iPhone 14 Plus</u></a></li>
+</ul></div>

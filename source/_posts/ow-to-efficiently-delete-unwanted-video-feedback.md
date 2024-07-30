@@ -1,7 +1,7 @@
 ---
 title: "[New] How to Efficiently Delete Unwanted Video Feedback"
-date: 2024-07-13T00:06:26.249Z
-updated: 2024-07-14T00:06:26.249Z
+date: 2024-07-29T08:23:52.792Z
+updated: 2024-07-30T08:23:52.792Z
 tags:
   - ai video
   - ai youtube
@@ -69,6 +69,10 @@ Fear not. Read on to know how to **delete all comments you posted on someone els
 1. When you reach the Comment History page, you will be able to find all comments you have ever posted. Scroll down to the comment you want to delete.
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ## How Do You Delete Your Comments from Your Phone?
 
 Don’t have a desktop handy? This section will tell you how you can delete your comments you posted on your or someone else’s YouTube video from your mobile.
@@ -83,6 +87,9 @@ If it is your video where the comment to be removed is, you can go to My Channel
 1. Once you locate the video, you need to find the comment you want to delete. On the YouTube app, you may need to scroll down for a while to do this.
 2. When you reach it, click on the three vertical dots at the bottom corner of your comment. You should see an option called Delete. Click on that. You need to confirm once more that you want to delete it, and the process will be complete.
 
+<!-- affiliate ads begin -->
+<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
+<!-- affiliate ads end -->
 ## Delete Other People’s Comments on Others’ Channels
 
 Did you see a hate comment on your favorite creator’s video? Sadly, you cannot delete the comment. But, you can report it, and YouTube will hide or take it down.
@@ -101,8 +108,14 @@ To find your History from your desktop, you need to click on the three horizonta
 2. Once you find your target comment, click on the three vertical dots that appear on its right side. You will find the Report option from the pop-up menu. Click on that.
 3. When you tap Report, another dialogue box will appear. From the list of options, choose the most appropriate option, tap on Report at the lower right corner of the pop-up, and complete the process. YouTube will do the rest.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Delete All Your Posted YouTube Comments?
 
 You can also delete all comments you ever posted on any YouTube video by hiding your channel. When you do this, you can hide your video content temporarily. But it will irreversibly erase all your comments throughout YouTube. If you are curious, read on to know how you can do it.
@@ -110,6 +123,9 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 1. You need to go to YouTube from your desktop and sign in to your account.
 2. Next, you can either click on the profile icon at the top right corner or the three horizontal lines beside the YouTube logo on your homepage. From the list of options, click Settings.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<!-- affiliate ads end -->
 ![YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from [here](https://www.youtube.com/account%5Fadvanced).
@@ -118,6 +134,9 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
@@ -153,3 +172,43 @@ Follow @Richard Bennett
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/0-free-youtube-playlist-downloaders-onlinepcandroidios2/"><u>[New] 10 FREE YouTube Playlist Downloaders [Online/PC/Android/iOS]2</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-exploring-your-choices-with-youtube-tv-plans/"><u>[New] 2024 Approved  Exploring Your Choices with YouTube TV Plans</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-optimize-your-channels-an-introduction-to-youtube-statistics/"><u>[New] 2024 Approved  Optimize Your Channels  An Introduction to YouTube Statistics</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-youtubes-buzzing-titles-roundup-1-8/"><u>[New] 2024 Approved  YouTube's Buzzing Titles Roundup  #1-#8</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-digital-frontiers-how-vr-transforms-leisure-for-2024/"><u>[New] Digital Frontiers  How VR Transforms Leisure for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ow-to-get-youtube-sponsorship-for-small-channels-easy-for-2024/"><u>[New] How to Get YouTube Sponsorship for Small Channels (Easy) for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-elevate-your-videos-discoverability-mastering-tags/"><u>[New] In 2024, Elevate Your Video's Discoverability - Mastering Tags</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nlocking-the-full-potential-of-your-youtube-channel-with-right-video-settings-for-2024/"><u>[New] Unlocking the Full Potential of Your YouTube Channel with Right Video Settings for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-elevating-gameplay-streaming-mastery-for-youtubers/"><u>[Updated] 2024 Approved  Elevating Gameplay  Streaming Mastery for YouTubers</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-professional-thumbnail-creation-for-youtube-macos-style/"><u>[Updated] 2024 Approved  Professional Thumbnail Creation for YouTube (macOS Style)</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-skyrocketing-traffic-the-ultimate-guide-to-youtube-outros-partnerships/"><u>[Updated] In 2024, Skyrocketing Traffic  The Ultimate Guide to YouTube Outros Partnerships</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-optimize-your-videos-for-instagram-mac-resizing-guide-for-2024/"><u>[Updated] Optimize Your Videos for Instagram  Mac Resizing Guide for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-no-limit-story-saving-at-the-tap-of-a-button/"><u>2024 Approved  No-Limit Story Saving at the Tap of a Button</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-strategies-to-create-gripping-documentary-scenes/"><u>2024 Approved  Strategies to Create Gripping Documentary Scenes</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-unlocking-the-power-of-preview-a-complete-user-guide-for-mac/"><u>2024 Approved  Unlocking the Power of Preview  A Complete User Guide for Mac</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-visual-dialogue-maker/"><u>2024 Approved  Visual Dialogue Maker</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-yt-portals-for-trend-tracking-and-analysis/"><u>2024 Approved  YT Portals for Trend-Tracking and Analysis</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/inners-blueprint-setting-up-on-youtube/"><u>A Beginner's Blueprint  Setting Up on YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/tial-steps-for-starting-a-youtube-channel-for-2024/"><u>Essential Steps for Starting a YouTube Channel for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/forgot-your-infinix-zero-30-5g-lock-screen-pattern-pin-or-password-here-s-what-to-do-by-drfone-android-unlock-android-unlock/"><u>Forgot your Infinix Zero 30 5G lock screen pattern, PIN or password? Here’s what to do</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-spy-on-text-messages-from-computer-and-xiaomi-14-drfone-by-drfone-virtual-android/"><u>How to Spy on Text Messages from Computer & Xiaomi 14 | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-4-feasible-ways-to-fake-location-on-facebook-for-your-honor-x50-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Feasible Ways to Fake Location on Facebook For your Honor X50 | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-bespoke-urls-for-youtube-channels-an-easy-way/"><u>In 2024, Bespoke URLs for YouTube Channels  An Easy Way</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-easy-techniques-for-snagging-youtube-songs-and-commentary/"><u>In 2024, Easy Techniques for Snagging YouTube Songs and Commentary</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-perfecting-yt-aesthetics-in-depth-guide-to-banner-and-art-sizing/"><u>In 2024, Perfecting YT Aesthetics  In-Depth Guide to Banner & Art Sizing</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-streamline-income-tracking-essential-steps-in-gauging-youtube-earnings/"><u>In 2024, Streamline Income Tracking  Essential Steps in Gauging YouTube Earnings</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nalized-music-collection-enhancement-from-spotify-to-youtube-music/"><u>Personalized Music Collection Enhancement From Spotify to YouTube Music</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/streamline-your-viewing-turn-onoff-picture-in-picture-on-iphones-for-2024/"><u>Streamline Your Viewing  Turn On/Off Picture in Picture on iPhones for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-lava-blaze-2-5g-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Lava Blaze 2 5G? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/things-you-must-know-for-screen-mirroring-apple-iphone-8-plus-drfone-by-drfone-ios/"><u>Things You Must Know for Screen Mirroring Apple iPhone 8 Plus | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/top-7-icloud-activation-bypass-tools-for-your-apple-iphone-8-by-drfone-ios/"><u>Top 7 iCloud Activation Bypass Tools For your Apple iPhone 8</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/ultimate-3d-experience-guide-to-top-blu-ray-players/"><u>Ultimate 3D Experience Guide to Top Blu-Ray Players</u></a></li>
+<li><a href="https://techidaily.com/undelete-lost-pictures-from-redmi-note-12-pro-4g-by-fonelab-android-recover-pictures/"><u>Undelete lost pictures from Redmi Note 12 Pro 4G.</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/standing-and-proficiently-implementing-cc-rights-for-2024/"><u>Understanding and Proficiently Implementing CC Rights for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/unlocking-made-easy-the-best-10-apps-for-unlocking-your-vivo-s18e-device-by-drfone-android/"><u>Unlocking Made Easy The Best 10 Apps for Unlocking Your Vivo S18e Device</u></a></li>
+<li><a href="https://techidaily.com/y100i-power-5g-unlock-tool-remove-android-phone-password-pin-pattern-and-fingerprint-by-drfone-android-unlock-android-unlock/"><u>Y100i Power 5G Unlock Tool - Remove android phone password, PIN, Pattern and fingerprint</u></a></li>
+</ul></div>
