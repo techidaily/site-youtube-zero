@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Optimizing YouTube Closures  A Comprehensive Guide to Crafting Effective End Screens and Cards\""
-date: 2024-07-13T01:42:02.600Z
-updated: 2024-07-14T01:42:02.600Z
+date: 2024-08-08T15:32:48.981Z
+updated: 2024-08-09T15:32:48.981Z
 tags:
   - ai video
   - ai youtube
@@ -32,6 +32,9 @@ The traditional annotation’s features are replaced by its successor YouTube Ca
 
 [Wondershare Filmstock Gaming Video Editing Skils](https://images.wondershare.com/filmora/article-images/learn-gaming-video-editing-skills-banner.png)](https://filmstock.wondershare.com/creative-theme-game?source%5Fchannel=seo%5Farticle&spm=rs.filmora%5Fweb)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 1: Why You Need to Add End Screens and Cards to Videos
 
 There are several reasons that make the YouTube end screen and cards a great tool when added to the videos. The new channel builtin features, donation choices, embedded polls and more are some of the best interactive and powerful features of YouTube end screen that’s when added to the video can drive in users to your channel. It is a strong tool to build viewership of your channel. When you use YouTube end screen at the end of the video, it helps in directing the users to other channels, playlists, and videos and also helps in promoting crowdfunding campaigns, merchandise and website. The YouTube end screen is a part of the video and to have an end screen on your video, it must be around 25seconds long.
@@ -55,6 +58,9 @@ Do you wish to add YouTube end screen to your video? Just follow the steps and g
 
 **Link**\- This element helps in sending the users directly to your website. Although, Google has restricted other link addition in the video. In order to add, you must have an Adsense account and permit monetization.
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
+<!-- affiliate ads end -->
 ## Part 3: How To Use Youtube Cards
 
 YouTube Cards is more interactive. Users can add images and other linkes. Here are the steps.
@@ -64,6 +70,9 @@ YouTube Cards is more interactive. Users can add images and other linkes. Here a
 * Choose the cards type you want to make on "Add Card" drop down menu.
 * Click “create” button. Select the timeline. In the end, apply.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### The types of YouTube cards
 
 * **Video or playlist**: links to other videos/the complete palylist on YouTube related or non-related to that specific videolinks to further purchase websites or specific product.
@@ -71,6 +80,10 @@ YouTube Cards is more interactive. Users can add images and other linkes. Here a
 * **Poll**: Encourage viewers to participate in a poll (vote)
 * **Link**: links to a website which compliments whatever content is in the video.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ### 4 Tips for Using YouTube Cards
 
 **1\.** You might be used to pointing to the part of your screen where you intend to put an annotation, but when you use YouTube Cards they might switch locations depending on what device a viewer is watching on.
@@ -81,10 +94,16 @@ YouTube Cards is more interactive. Users can add images and other linkes. Here a
 
  **4.** The end of your video is always a great place to link viewers to another of your videos, whether you use a card or an end screen. If somebody liked your video enough to watch until the end they’ll probably welcome a chance to consume similar content.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 Now, that you are aware how to add YouTube end screen to your video, make use of the amazing features of YouTube end screen and cards and let driving in traffic to your site be easy and fruitful.
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -110,3 +129,38 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-android-and-ios-the-best-sound-distortion-tools/"><u>[New] 2024 Approved  Android & iOS  The Best Sound Distortion Tools</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-transforming-standard-tweets-into-hd-spectacles/"><u>[New] 2024 Approved  Transforming Standard Tweets Into HD Spectacles</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-unlocking-youtube-wealth-strategies-for-a-non-ad-earnings-model/"><u>[New] 2024 Approved  Unlocking YouTube Wealth  Strategies for a Non-Ad Earnings Model</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-breakthrough-tactics-for-optimal-iptv-screening/"><u>[New] Breakthrough Tactics for Optimal IPTV Screening</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/igital-audience-accolades-for-content-makers/"><u>[New] Digital Audience Accolades for Content Makers</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-flawless-foundations-top-youtube-skincare-routines-for-2024/"><u>[New] Flawless Foundations  Top YouTube Skincare Routines for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/oing-against-gravity-reversing-your-vids/"><u>[New] Going Against Gravity  Reversing Your Vids</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-clear-the-chaos-edit-and-cull-your-bulky-tiktok-collections/"><u>[Updated] Clear the Chaos  Edit & Cull Your Bulky TikTok Collections</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-delving-deep-youtubes-revenue-system-from-publisher-to-you/"><u>[Updated] Delving Deep  YouTube's Revenue System From Publisher to You</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-elevate-your-biz-game-youtube-channels-that-succeeded/"><u>[Updated] Elevate Your Biz Game  YouTube Channels That Succeeded</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-expert-advice-on-crafting-effective-youtube-video-tags/"><u>[Updated] Expert Advice on Crafting Effective YouTube Video Tags</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-from-idea-to-action-creating-engaging-gifs/"><u>[Updated] From Idea to Action  Creating Engaging GIFs</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-a-complete-list-of-creative-and-catchy-youtube-channel-titles-for-modern-blogging-maximum-length-156-characters/"><u>[Updated] In 2024, A Complete List of Creative and Catchy YouTube Channel Titles for Modern Blogging (Maximum Length  156 Characters)</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-astonishing-critique-and-comparable-products/"><u>[Updated] In 2024, Astonishing Critique & Comparable Products</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-no-longer-a-mystery-shorts-now-showing-up/"><u>[Updated] In 2024, No Longer a Mystery  Shorts Now Showing Up</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-pro-tips-for-effortless-youtube-content-export-through-gmail-id/"><u>[Updated] In 2024, Pro-Tips for Effortless YouTube Content Export Through Gmail ID</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-step-by-step-embedding-youtube-content-in-slideshows/"><u>[Updated] In 2024, Step-by-Step  Embedding YouTube Content in Slideshows</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-essential-tools-for-efficient-mp4-segmentation-on-mac/"><u>2024 Approved  Essential Tools for Efficient MP4 Segmentation on Mac</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-gamers-guide-to-high-quality-live-recording/"><u>2024 Approved  Gamers' Guide to High-Quality Live Recording</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-leaders-in-education-top-15-sci-yt-innovators/"><u>2024 Approved  Leaders in Education  Top 15 Sci-YT Innovators</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-perfecting-the-craft-of-youtube-short-video-making/"><u>2024 Approved  Perfecting the Craft of YouTube Short Video Making</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-simplified-playlist-crafting-for-youtube-fans-on-desktop-and-mobile-devices/"><u>2024 Approved  Simplified Playlist Crafting for YouTube Fans on Desktop & Mobile Devices</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-the-beginners-blueprint-to-free-youtube-audio-to-text/"><u>2024 Approved  The Beginner's Blueprint to Free YouTube Audio to Text</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-11-best-location-changers-for-vivo-t2-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 11 Best Location Changers for Vivo T2 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-how-to-enhance-clarity-of-online-video-content/"><u>In 2024, How to Enhance Clarity of Online Video Content</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-maximizing-impact-video-marketing-on-youtube/"><u>In 2024, Maximizing Impact  Video Marketing on YouTube</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Apple iPhone 15 Plus | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/izing-video-impact-with-youtube-cards/"><u>Maximizing Video Impact with YouTube Cards</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/by-step-guide-to-scripting-engaging-youtube-videos-for-2024/"><u>Step-by-Step Guide to Scripting Engaging YouTube Videos for 2024</u></a></li>
+<li><a href="https://win-dash.techidaily.com/troubleshooting-the-arduino-unos-drivers-in-windows-a-step-by-step-guide/"><u>Troubleshooting the Arduino Uno's Drivers in Windows: A Step-by-Step Guide</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/unlock-your-boost-mobile-iphone-15-pro-max-before-the-plan-expires-by-drfone-ios/"><u>Unlock Your Boost Mobile iPhone 15 Pro Max Before the Plan Expires</u></a></li>
+</ul></div>

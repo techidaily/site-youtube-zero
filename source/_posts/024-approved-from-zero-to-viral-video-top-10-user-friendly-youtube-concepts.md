@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  From Zero to Viral Video  Top 10 User-Friendly YouTube Concepts\""
-date: 2024-07-13T01:40:18.564Z
-updated: 2024-07-14T01:40:18.564Z
+date: 2024-08-08T15:34:31.941Z
+updated: 2024-08-09T15:34:31.941Z
 tags:
   - ai video
   - ai youtube
@@ -47,6 +47,9 @@ Let the world know who you are and what you do. If you are planning on starting 
 
 These kinds of videos make great channel trailers, and they’re a good way to highlight the topics you'll be covering on your channel in the future.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 2\. Vlog About Your Day
 
 Anything that happens during your day can become a topic for your YouTube vlog. Traffic jams, treacherous pets who keep stealing your shoes, or the ridiculous amount of things you had to do in a single day can all become topics for videos you upload to your YouTube channel. Being candid and spontaneous is a sure way to grab the attention of a viewer, but limiting the duration of a vlog to a few minutes is key to ensuring that viewers watch the video until the end.
@@ -73,18 +76,27 @@ Are you a Tarantino fan? Why not? When you are struggling to find inspiration fo
 
 You can do a ‘my 5 favorite songs’ type of video, or talk in detail about just one favorite.
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 6\. What’s on Your Phone?
 
 There were over two billion smartphone users worldwide in 2017, and this number is only going to continue rising in the next couple of years. Furthermore, thousands of YouTubers are already producing unimaginable amounts of videos about the latest apps or smartphone devices.
 
 Finding a way to talk about the apps you like to use the most can be a good idea if you want to attract more visitors to your YouTube channel. However, you need to be clear about whether this is a lifestyle or vlog-style video covering a topic that usually exists in the tech genre, or if you are a tech YouTuber, so as not to confuse your audience (you don’t want people to start expecting app reviews if that’s not what you usually do).
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
 ## 7\. Make a Slideshow
 
 There's no need to constantly produce new videos because you can just take some royalty-free music and create a slideshow from your old or new photos. The slideshow format will certainly allow you to try something different on your YouTube channel, while the photos you use in the slideshow can create a clear picture of who you are and what you do for your viewers.
 
 If you are a photography enthusiast you can also plan the entire slideshow in advance and then make a short video about how you created the images in the slideshow.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 8\. Make a Tutorial
 
 Education is our only hope for a better world so if you know how to do something well, don't be afraid to share your knowledge. A tutorial is a powerful educational tool that enables you to guide people through the entire process of making origami, solving a complicated video editing problem, maintaining a motorcycle, or anything else.
@@ -97,6 +109,9 @@ Being open is important, so why not share 10 things about yourself you think you
 
 These types of videos tend to create a better relationship with your audience because they make the viewer feel as if they know the person on the screen.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 10\. Video Rant
 
 Doing things when you are angry is usually a bad idea, but if you feel so strongly about a particular subject then creating a video rant can be a great idea. Rants don’t even have to be angry, they can be about something that puzzles you or something so great you just can’t get over it. These kinds of videos can get your YouTube channel a lot of comments, likes, and subscribers.
@@ -105,12 +120,19 @@ Don't try to fake a rant, because they only work if they are natural. Scripting 
 
 Do you have any [easy video ideas for other creators](https://tools.techidaily.com/wondershare/filmora/download/) to try?
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Start Editing Videos with Beginner-friendly Software
 
 If you start your YouTube channel but have no video editing experience, Wondershare Filmora will definitely help you get over the problems. Download Filmora now!
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
+DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -138,3 +160,40 @@ Follow @Richard Bennett
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-earning-streaming-strategies-8-beginners-tips/"><u>[New] 2024 Approved  Earning Streaming Strategies - 8 Beginners' Tips</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-step-guide-to-ascertain-googles-profitable-potential-youtube-analysis/"><u>[New] 3-Step Guide to Ascertain Google's Profitable Potential  YouTube Analysis</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-apowersoft-free-screen-recorder-review-for-2024/"><u>[New] Apowersoft Free Screen Recorder Review for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-12-ideal-video-cameras-for-aspiring-and-seasoned-vloggers/"><u>[New] In 2024, 12 Ideal Video Cameras for Aspiring and Seasoned Vloggers</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-guide-to-streamline-yt-playlist-integration-in-htmlcss/"><u>[New] In 2024, Guide to Streamline YT Playlist Integration in HTML/CSS</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-intrepid-selection-best-slow-mo-cameras/"><u>[New] Intrepid Selection  Best Slow-Mo Cameras</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/remier-microphone-picks-for-blogging-pros-for-2024/"><u>[New] Premier Microphone Picks for Blogging Pros for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-spark-your-imagination-with-14-stunning-text-animations/"><u>[New] Spark Your Imagination with 14 Stunning Text Animations</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/taying-within-the-limits-key-youtube-policies/"><u>[New] Staying Within the Limits  Key YouTube Policies</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-cut-the-cost-not-the-creativity-best-free-editing-tools-top-9/"><u>[Updated] 2024 Approved  Cut The Cost, Not The Creativity  Best Free Editing Tools (Top 9)</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-peak-viewing-valor-youtubes-daily-top-ten-highlights/"><u>[Updated] 2024 Approved  Peak Viewing Valor  YouTube's Daily Top Ten Highlights</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-quash-unwanted-youtube-suggested-videos/"><u>[Updated] 2024 Approved  Quash Unwanted YouTube Suggested Videos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-your-compreran-guide-to-creating-viral-ad-videos-for-free/"><u>[Updated] 2024 Approved  Your Compreran Guide to Creating Viral Ad Videos for Free</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-bringing-heartwarmth-to-the-winter-5-snug-cinematographic-tips-for-2024/"><u>[Updated] Bringing Heartwarmth to the Winter  5 Snug Cinematographic Tips for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-hand-to-hand-heroes-the-definitive-switch-fighting-game-countdown-for-2024/"><u>[Updated] Hand-to-Hand Heroes  The Definitive Switch Fighting Game Countdown for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-best-youtube-to-gif-makers-you-should-use-online-and-desktop/"><u>[Updated] In 2024, Best YouTube To GIF Makers You Should Use (Online & Desktop)</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-behind-the-scenes-how-ajey-monetizes-content/"><u>2024 Approved  Behind the Scenes  How Ajey Monetizes Content</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-capture-the-thrill-essential-recording-tips-for-overwatch/"><u>2024 Approved  Capture the Thrill  Essential Recording Tips for Overwatch</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-concealed-chronicle-watchers-5-premier-application-choices/"><u>2024 Approved  Concealed Chronicle Watchers  5 Premier Application Choices</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-smart-video-tactics-for-small-enterprises/"><u>2024 Approved  SMART Video Tactics for Small Enterprises</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-ultimate-microphone-selection-for-high-res-video-shooting/"><u>2024 Approved  Ultimate Microphone Selection for High-Res Video Shooting</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/connecting-and-utilizing-external-storage-with-your-xbox-one-a-step-by-step-guide/"><u>Connecting and Utilizing External Storage with Your Xbox One: A Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/raw-footage-to-highlight-hits/"><u>From Raw Footage to Highlight Hits</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nizing-youtube-content-a-guide-to-blending-files-for-2024/"><u>Harmonizing YouTube Content  A Guide to Blending Files for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/how-can-you-easily-send-a-steam-game-credit-as-gifts/"><u>How Can You Easily Send A Steam Game Credit as Gifts?</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-8-safe-and-effective-methods-to-unlock-your-iphone-15-pro-without-a-passcode-by-drfone-ios/"><u>In 2024, 8 Safe and Effective Methods to Unlock Your iPhone 15 Pro Without a Passcode</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-copyright-concerns-with-recording-youtube-content/"><u>In 2024, Copyright Concerns with Recording YouTube Content</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-high-definition-heroes-10-in-4ktvs/"><u>In 2024, High Definition Heroes – #10 in 4KTVs</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/step-by-step-freeipodcasts-downloads-on-iphone-for-2024/"><u>Step-by-Step  FreeiPodcasts Downloads on iPhone for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ilmmakers-blueprint-making-youtube-splitscreen-magic-for-2024/"><u>The Filmmaker's Blueprint  Making YouTube Splitscreen Magic for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/eal-score-of-youtube-video-success-beyond-basic-view-counts-for-2024/"><u>The Real Score of YouTube Video Success  Beyond Basic View Counts for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/unbelievable-examination-and-replacement-ideas/"><u>Unbelievable Examination & Replacement Ideas</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/sh-your-videos-potential-the-perfect-post-schedule-for-2024/"><u>Unleash Your Videos' Potential  The Perfect Post Schedule for 2024</u></a></li>
+</ul></div>
