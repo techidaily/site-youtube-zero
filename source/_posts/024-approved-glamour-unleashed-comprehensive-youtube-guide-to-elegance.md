@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Glamour Unleashed  Comprehensive YouTube Guide to Elegance\""
-date: 2024-07-13T01:37:43.885Z
-updated: 2024-07-14T01:37:43.885Z
+date: 2024-08-16T04:09:21.142Z
+updated: 2024-08-17T04:09:21.142Z
 tags:
   - ai video
   - ai youtube
@@ -57,6 +57,9 @@ Another way you could find a niche is by taking on a specific area of interest, 
 
   SunKissAlba has a lifestyle channel that focuses on a ‘natural’ niche. She posts videos about every aspect of her lifestyle from putting on makeup to cooking, but natural/non-toxic products are a constant theme through everything she does. By niching her channel she hasn’t limited what kinds of videos she can do at all - she posts a huge variety of different types of videos. What she has done is to make her channel particularly valuable to audiences interested in things that are natural or organic.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## **Types of Beauty Videos – Your Content Strategy**
 
 It’s a lot easier to come up with weekly video ideas when you have an overarching strategy.
@@ -116,6 +119,9 @@ Here are 4 tips for getting free products for review:
 Make sure to link to your channel so they can verify what you say (do not hide your subscriber count).  
 Emphasize what value you could provide the brand with (i.e. ‘I’ve had a lot of success with videos on managing acne and I’m sure my subscribers would love to see a review of your cream’) and outline what kind of video you’d like to make (i.e. a five-minute review focusing on the product, or a short feature in a longer makeup tutorial).
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Simple Camera Setup for Beauty Vloggers**
 
 There are a lot of different ways to set up your camera for a ‘talking head’ video (anything that is primarily you talking to the camera). Keep reading to learn about a popular ring-light setup for beauty videos, or [click here to learn 4 different camera setups](https://www.filmora.io/community-blog/4-ways-to-set-up-your-talking-head-shots-for-youtube-431.html).
@@ -140,6 +146,9 @@ You might want to experiment with sitting at different distances to see how the 
 **_Step 2:_** Set your camera up a bit higher than your face and tilt it down towards yourself (shooting from slightly above is always more flattering). It should be set up at about a 15° angle to you.
 
 ![tilt down your camera](https://images.wondershare.com/filmora/article-images/tilt-down-camera1.jpg)
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **_Step 3:_** Check your frame (this is easiest if your camera has a screen that flips out) to make sure there’s not too much empty space in your shot.
 
@@ -174,6 +183,9 @@ There are, however, some reasons you might want additional light:
 If you only have a ring light/front light then you may end up looking like you’re surrounded by shadows. If you want more light for your space you can use windows, household lamps, or professional video lights like softboxes or LED panels.
 
  ![light background](https://images.wondershare.com/filmora/article-images/light-background4.jpg)
+<!-- affiliate ads begin -->
+<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### **To Stand Out Against your Background (‘Backlighting’)**
 
@@ -197,6 +209,9 @@ You can use softboxes, LED panels, clamp lights, household lamps, or any other l
 * **_Clamp lights ($10 each) and paper lanterns ($10 each) provide great lighting and are much more affordable than professional lighting kits._ The paper lanterns will provide even, diffused, light and the clamp lights will be easy to set up wherever you need them.**
 * **_Check out these [DIY tips for creating your own reflectors and diffusers](https://www.filmora.io/community-blog/save-money-with-clever-diy-youtube-gear%21-462.html)._**
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Top Ring Lights for YouTube**
 
 ####  
@@ -215,6 +230,9 @@ This lightweight ring light is easy to transport, set up, and mount your phone o
 
 This light is dimmable, so you can turn it down if it’s too bright, and the Prismatic Light Stand will allow you to tilt your light to the perfect angle. This will be handy if you’re mounting your camera inside the ring but want to place it slightly above your face instead of having it look at you head on.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Build Your Own Diva Ring Light**
 
 A ring light is an important tool for a lot of beauty YouTubers, but it doesn’t fit into everyone’s budget. Here’s one popular way to create your own ring light for about $20\.
@@ -252,6 +270,9 @@ Before you start recording your makeup tutorial there are a few things you shoul
  4. **_Do a video test._** Before you start your video for real, start recording and shoot some test footage. Watch that back to make sure you like the look of your frame, your face is never blurry, and you’re happy with the overall look of things.
  5. **_Do an audio test._** If you’re going to be talking in your video instead of recording a voiceover after, do an audio test to make sure your audience will be able to hear you clearly.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **How to Make a Makeup Tutorial – Recording**
 
 Here are some things to keep in mind while you record your makeup tutorial:
@@ -276,6 +297,9 @@ Remember to include what type of video you made, i.e. ‘tutorial’, ‘review�
  Are you already making beauty videos? If so, let us know if you have any of your own tips!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -302,3 +326,42 @@ Follow @Richard Bennett
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/chieving-youtube-financial-goals-via-viewer-statistics/"><u>[New] Achieving Youtube Financial Goals via Viewer Statistics</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/onquering-the-labyrinth-of-lesser-known-youtube-content-for-2024/"><u>[New] Conquering the Labyrinth of Lesser-Known YouTube Content for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/rafting-captivating-youtube-closures-expert-guides-included-for-2024/"><u>[New] Crafting Captivating YouTube Closures - Expert Guides Included for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/utting-edge-top-8-free-online-video-tools-for-2024/"><u>[New] Cutting Edge  Top 8 Free Online Video Tools for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-hilarityhub-online-tool-for-funny-image-crafting/"><u>[New] HilarityHub  Online Tool for Funny Image Crafting</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ow-to-get-started-signing-up-for-a-youtube-channel/"><u>[New] How to Get Started  Signing Up for a YouTube Channel</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-explore-deep-with-these-immersive-vr-clips/"><u>[New] In 2024, Explore Deep with These Immersive VR Clips</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/astering-freefire-gameplay-essential-youtube-tips-for-2024/"><u>[New] Mastering FreeFire Gameplay  Essential YouTube Tips for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-premier-platforms-for-personalized-present-packaging/"><u>[New] Premier Platforms for Personalized Present Packaging</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ailored-soundtracks-at-your-fingertips-constructing-youtube-music-collections-webmobile-for-2024/"><u>[New] Tailored Soundtracks at Your Fingertips  Constructing YouTube Music Collections (Web/Mobile) for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/he-ultimate-list-of-virtual-journeys-by-channel-for-2024/"><u>[New] The Ultimate List of Virtual Journeys, By Channel for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/our-go-to-list-asmr-on-phone-platforms/"><u>[New] Your Go-To List  ASMR on Phone Platforms</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-digital-diving-into-youtubes-veiled-video-vaults/"><u>[Updated] 2024 Approved  Digital Diving Into YouTube’s Veiled Video Vaults</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-guide-to-quick-eradication-of-online-youtube-discussions/"><u>[Updated] 2024 Approved  Guide to Quick Eradication of Online YouTube Discussions</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-the-complete-guide-to-earnings-via-video-ads-on-youtube/"><u>[Updated] 2024 Approved  The Complete Guide to Earnings via Video Ads on YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-a-year-in-the-market-top-15-finance-videos-for-2024/"><u>[Updated] A Year in the Market  Top 15 Finance Videos for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-compact-guide-to-free-live-streaming-apps-on-mobile-devices/"><u>[Updated] Compact Guide to Free Live Streaming Apps on Mobile Devices</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-leverage-audience-engagement-through-strategic-posting/"><u>[Updated] In 2024, Leverage Audience Engagement Through Strategic Posting</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-profile-pictures-download-for-free/"><u>[Updated] In 2024, Profile Pictures - Download for FREE!</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-style-sleuths-influential-beauty-creators/"><u>[Updated] In 2024, Style Sleuths  Influential Beauty Creators</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-the-best-gif-maker-applications-for-creative-freedom/"><u>2024 Approved  The Best GIF Maker Applications for Creative Freedom</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-best-route-generator-apps-you-should-try-on-oppo-find-x6-pro-drfone-by-drfone-virtual-android/"><u>5 Best Route Generator Apps You Should Try On Oppo Find X6 Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ing-viewership-responsibly-strategies-that-work/"><u>Boosting Viewership Responsibly  Strategies That Work</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-vivo-y28-5g-by-drfone-android/"><u>In 2024, Complete Review & Guide to Techeligible FRP Bypass and More For Vivo Y28 5G</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-efficiently-uploading-youtube-vids-to-insta-profile/"><u>In 2024, Efficiently Uploading YouTube Vids to Insta Profile</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-enhancing-social-reach-youtube-videos-on-facebook-sites/"><u>In 2024, Enhancing Social Reach  YouTube Videos on Facebook Sites</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-music-from-vivo-y100i-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Music from Vivo Y100i to iPod | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-organize-soundtracks-on-youtube-the-playlist-guide/"><u>In 2024, Organize Soundtracks on Youtube  The Playlist Guide</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-spinning-tales-embracing-the-full-rotational-vision/"><u>In 2024, Spinning Tales  Embracing the Full Rotational Vision</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-the-ultimate-guide-to-vivo-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>In 2024, The Ultimate Guide to Vivo Pattern Lock Screen Everything You Need to Know</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-motorola-edge-40-pro-device-by-drfone-android/"><u>In 2024, What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Motorola Edge 40 Pro Device</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ating-youtube-markets-the-quest-for-a-targeted-niche-for-2024/"><u>Navigating YouTube Markets  The Quest for a Targeted Niche for 2024</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/proven-ways-to-fix-there-was-a-problem-parsing-the-package-on-oppo-f23-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Proven Ways to Fix There Was A Problem Parsing the Package on Oppo F23 5G | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/resolving-d3dx925dll-a-step-by-step-guide/"><u>Resolving d3dx9_25.dll: A Step-by-Step Guide</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-best-android-sim-unlock-code-generators-unlock-your-vivo-y200-phone-hassle-free-by-drfone-android/"><u>The Best Android SIM Unlock Code Generators Unlock Your Vivo Y200 Phone Hassle-Free</u></a></li>
+</ul></div>

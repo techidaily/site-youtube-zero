@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  From Speech to Text  A Complete, FREE Workshop on YouTube Transcription\""
-date: 2024-07-13T01:38:15.174Z
-updated: 2024-07-14T01:38:15.174Z
+date: 2024-08-16T04:08:50.868Z
+updated: 2024-08-17T04:08:50.868Z
 tags:
   - ai video
   - ai youtube
@@ -46,6 +46,9 @@ As the name suggests, YouTube automatic transcription service works automaticall
 Sign in to your YouTube account, click your profile picture from the top-right corner, and click **YouTube Studio** from the menu. Next, click **CREATE** from the upper-right corner, click **Upload videos** from the menu, and drag and drop a video from your computer to the **Upload videos** box that appears next.
 
 ![Upload YouTube videos](https://images.wondershare.com/filmora/article-images/youtube-upload-video.jpg)
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 
 #### Step 2  Select Transcription Language
 
@@ -70,12 +73,18 @@ While on the **YouTube Studio** page, click **Subtitles** from the left pane to 
 In the video subtitle page of the target video, hover mouse on the **Published Automatic** status under the **Subtitles** column, click the **Options** icon (with three vertical dots) that appears, and click **Edit on Classic Studio**.
 
 ![YouTube Classic Studio](https://images.wondershare.com/filmora/article-images/youtube-edit-on-classic-studio.jpg)
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 1. **Download Transcription File**
 
 Click and open the **Actions** drop-down list from the top-left corner of the left pane, click your preferred transcription format including .vtt, .srt and .sbv from the list, and save the file on your local hard disk.
 
 ![YouTube videos transcription](https://images.wondershare.com/filmora/article-images/download-youtube-video-transcription.jpg)
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Method 2: Get YouTube Transcription when Watching
 
@@ -108,6 +117,9 @@ Copy the URL of YouTube video you want to transcribe, go to <https://www.kapwing
 Click **Auto-generate** from the right window, and follow the on-screen instructions to **transcribe YouTube video to text**.
 
 ![Kapwing Auto Generate Subtitles](https://images.wondershare.com/filmora/article-images/kapwing-auto-generate-subtitles.jpg)
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<!-- affiliate ads end -->
 
 **Step 3: Download the Transcription File**
 
@@ -136,6 +148,9 @@ Copy the URL of YouTube video you want to transcribe, go to <https://www.kapwing
 Click **Auto-generate** from the right window, and follow the on-screen instructions to **transcribe YouTube video to text**.
 
 ![Kapwing Auto Generate Subtitles](https://images.wondershare.com/filmora/article-images/kapwing-auto-generate-subtitles.jpg)
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<!-- affiliate ads end -->
 
 **Step 3: Download the Transcription File**
 
@@ -153,6 +168,10 @@ Click **Download SRT** from the left pane, and follow the instructions from ther
 
 * The auto-transcribed text might lack accuracy as the task is done by the speech-to-text tools that work in the background
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
+The ultimate burning program for all your needs!</a>
+<!-- affiliate ads end -->
 ## Part 3: Benefits of Transcribing YouTube Videos
 
 You may need video transcriptions for several reasons, such as analyzing the summary of the entire speech in the video, extracting a single phrase or quote that was spoken in the clip, or making the video helpful even for those suffering from hearing impairment. When you **transcribe a YouTube video**, the transcript can be useful in many ways. Some of the most common benefits of transcribing a video include:
@@ -169,6 +188,9 @@ If the speaker in the video is from a different region and is using an accent th
 
 If you own a blog that you have embedded your video to, the transcription could be used to add text to it so the target audience can get a fair idea of what the video is all about. This is useful because many people prefer reading over watching.
 
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
 ### YouTube Video Transcription FAQs
 
 #### 1. How to Transcribe YouTube Video to Text
@@ -232,3 +254,61 @@ Follow @Richard Bennett
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-a-comprehensive-guide-to-online-podcast-recording-for-2024/"><u>[New] A Comprehensive Guide to Online Podcast Recording for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-dissecting-biggest-fifa-footage-trends-in-graphs-for-2024/"><u>[New] Dissecting Biggest FIFA Footage Trends in Graphs for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ree-traffic-on-youtube-tips-that-actually-work-for-2024/"><u>[New] Free Traffic on YouTube  Tips That Actually Work for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-insta-marketing-dynamo-crafting-winning-strategies-with-videos-on-social-media-for-2024/"><u>[New] Insta-Marketing Dynamo  Crafting Winning Strategies with Videos on Social Media for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-social-media-savvy-your-guide-to-success/"><u>[New] Social Media Savvy  Your Guide to Success</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/iming-of-youtube-earnings-a-closer-insight/"><u>[New] Timing of YouTube Earnings  A Closer Insight</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/riple-trouble-how-to-handle-three-tubes-of-content-at-once/"><u>[New] Triple Trouble  How to Handle Three Tubes of Content at Once</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-decoding-the-functionality-of-youtubes-media-hub/"><u>[Updated] 2024 Approved  Decoding the Functionality of YouTube's Media Hub</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-elevate-storytelling-free-soundtrack-options-available/"><u>[Updated] 2024 Approved  Elevate Storytelling - Free Soundtrack Options Available!</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-match-your-mentality-unveil-your-youtuber-type-through-6-quizzes/"><u>[Updated] 2024 Approved  Match Your Mentality  Unveil Your YouTuber Type Through 6 Quizzes</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-seamless-video-upload-the-best-10-flv-to-youtubes-tools/"><u>[Updated] 2024 Approved  Seamless Video Upload  The Best 10 Flv to YouTubes Tools</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-the-ultimate-resource-for-youtube-studio-edition-crafting/"><u>[Updated] 2024 Approved  The Ultimate Resource for YouTube Studio Edition Crafting</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-dont-overlook-tags-in-video-description-for-2024/"><u>[Updated] Don't Overlook Tags in Video Description for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-engaging-everyone-quickly-which-platform-triumphs-for-shorter-videos/"><u>[Updated] Engaging Everyone Quickly  Which Platform Triumphs for Shorter Videos?</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-fine-tuning-focus-on-youtube-threads-for-2024/"><u>[Updated] Fine-Tuning Focus on YouTube Threads for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-from-free-to-fortune-the-500-sub-club/"><u>[Updated] From Free to Fortune  The 500-Sub Club</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-hack-your-way-to-speedy-youtube-video-processing/"><u>[Updated] Hack Your Way to Speedy YouTube Video Processing</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-high-quality-youtube-recording-techniques-for-2024/"><u>[Updated] High-Quality YouTube Recording Techniques for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-capture-and-store-videos-effortlessly-with-our-top-list/"><u>[Updated] In 2024, Capture & Store Videos Effortlessly with Our Top List</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-embark-into-the-best-youtube-vr-content-ever/"><u>[Updated] In 2024, Embark Into the Best YouTube VR Content Ever!</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-mastering-video-captioning-on-youtube/"><u>[Updated] In 2024, Mastering Video Captioning on YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-maximize-traffic-with-these-must-use-freefire-tags-for-videos/"><u>[Updated] In 2024, Maximize Traffic with These Must-Use FreeFire Tags for Videos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-peak-playtime-power-yts-top-10-by-view-count/"><u>[Updated] In 2024, Peak Playtime Power  YT's Top 10 by View Count</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-transform-your-streaming-journey-by-activating-youtubes-av1/"><u>[Updated] In 2024, Transform Your Streaming Journey by Activating YouTube's AV1</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-mend-iphones-facebook-video-displays-for-2024/"><u>[Updated] Mend iPhones' Facebook Video Displays for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-discover-top-affordable-video-editors-of-2023-today/"><u>2024 Approved  Discover Top Affordable Video Editors of 2023 Today!</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-dividing-opinions-is-mirrorless-better-than-dslr-for-vids/"><u>2024 Approved  Dividing Opinions  Is Mirrorless Better than DSLR for Vids?</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-experience-the-thrill-of-kinemaster-and-rank-10-online-alternatives-alike/"><u>2024 Approved  Experience the Thrill of KineMaster and Rank 10 Online Alternatives Alike</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-flashy-flashes-prime-picks-for-lightning-laptopmobile-games/"><u>2024 Approved  Flashy Flashes  Prime Picks for Lightning Laptop/Mobile Games</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-key-editing-solutions-in-app-development/"><u>2024 Approved  Key Editing Solutions in App Development</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-pioneering-play-integrating-vr-in-recreation/"><u>2024 Approved  Pioneering Play  Integrating VR in Recreation</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/7-ways-to-unlock-a-locked-samsung-galaxy-a23-5g-phone-by-drfone-android/"><u>7 Ways to Unlock a Locked Samsung Galaxy A23 5G Phone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/best-igtv-sources-for-daily-inspiration-for-2024/"><u>Best IGTV Sources for Daily Inspiration for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/e-the-web-of-counterfeit-subscriber-networks-online-for-2024/"><u>Beware the Web of Counterfeit Subscriber Networks Online for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/1722974584286-bluetooth-compatibility-upgrade-premium-msi-driver-software-tailored-for-windows-11-and-10-free-download/"><u>Bluetooth Compatibility Upgrade: Premium MSI Driver Software Tailored for Windows 11 & 10 - Free Download</u></a></li>
+<li><a href="https://driver-install.techidaily.com/drive-upgrade-conexant-hd-compatible-with-win11/"><u>Drive Upgrade: Conexant HD Compatible with Win11</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/te-video-appeal-crafting-unforgettable-thumbnail-images/"><u>Elevate Video Appeal  Crafting Unforgettable Thumbnail Images</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/te-viewership-must-use-youtube-seo-tools/"><u>Elevate Viewership  Must-Use YouTube SEO Tools</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/cenes-unlocked-tutorials-to-enhance-viewing-experience/"><u>End Scenes Unlocked  Tutorials to Enhance Viewing Experience</u></a></li>
+<li><a href="https://driver-error.techidaily.com/gtx-950-cuda-compute-capability-mistake-in-windows-10-fixes/"><u>GTX 950 CUDA Compute Capability Mistake in Windows 10 - Fixes</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/how-does-ai-driven-chatbot-filtering-influence-you-an-insight-into-digital-communication-controls/"><u>How Does AI-Driven Chatbot Filtering Influence You? An Insight Into Digital Communication Controls</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/o-add-logowatermark-to-youtube-video-for-2024/"><u>How to Add Logo/Watermark to YouTube Video for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/o-add-music-to-imovie-from-youtube-for-2024/"><u>How to Add Music to iMovie From YouTube for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-pc-to-apple-iphone-x-drfone-by-drfone-ios/"><u>How to Mirror PC to Apple iPhone X? | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-lost-data-from-v30-by-fonelab-android-recover-data/"><u>How to recover lost data from V30?</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-music-on-motorola-moto-g73-5g-by-fonelab-android-recover-music/"><u>How to restore wiped music on Motorola Moto G73 5G</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-acquiring-vivid-clipart-without-investment/"><u>In 2024, Acquiring Vivid Clipart Without Investment</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-enhancing-beauty-on-streams-via-color-grading/"><u>In 2024, Enhancing Beauty on Streams via Color Grading</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-remove-a-previously-synced-google-account-from-your-zte-blade-a73-5g-by-drfone-android/"><u>In 2024, How to Remove a Previously Synced Google Account from Your ZTE Blade A73 5G</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/izing-youtube-auditory-experience-for-viewers/"><u>Optimizing YouTube Auditory Experience for Viewers</u></a></li>
+<li><a href="https://win-blog.techidaily.com/overcoming-tormented-souls-pc-bugs-a-step-by-step-guide-to-preventing-game-crashes/"><u>Overcoming Tormented Souls PC Bugs: A Step-by-Step Guide to Preventing Game Crashes</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ing-over-youtube-top-proven-steps-for-prominence-for-2024/"><u>Reigning Over YouTube  Top Proven Steps for Prominence for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-imei-unlokers-for-your-vivo-s18-pro-phone-by-drfone-android/"><u>Top IMEI Unlokers for Your Vivo S18 Pro Phone</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-windows-11-night-light-not-responding-errors/"><u>Troubleshooting Windows 11 Night Light Not Responding Errors</u></a></li>
+</ul></div>
