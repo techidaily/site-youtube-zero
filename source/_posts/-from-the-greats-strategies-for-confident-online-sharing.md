@@ -1,7 +1,7 @@
 ---
 title: "\"Learn From the Greats  Strategies for Confident Online Sharing\""
-date: 2024-07-13T01:29:09.783Z
-updated: 2024-07-14T01:29:09.783Z
+date: 2024-08-23T08:22:02.621Z
+updated: 2024-08-24T08:22:02.621Z
 tags:
   - ai video
   - ai youtube
@@ -58,6 +58,9 @@ The ending needs to be justified even if there is a twist. Everything before tha
 
 The gold standard example of a surprising, yet inevitable end is Casey Neistat's bike lane video. Everything in the video is leading up to the end, but when you watch it the first time it’s unexpected, and that’s why it’s so good.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **4\. Be Inviting**
 
 A common trait of successful vloggers is that they are welcoming. They share their passion and encourage others to join in. Vlogging is about being a guide. It doesn’t matter if you are leading a tour of your home or showing your viewer an interesting new skill, it is important for you to approach the whole process with open arms.
@@ -66,6 +69,10 @@ Unlike being invited to a party, there is no obligation when it comes to YouTube
 
 The opposite of inviting is rejecting, and when you are a vlogger, you don’t want to reject anyone from enjoying your videos.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ## **5\. Compose the Shot**
 
 Vlogging is a visual medium, and while the story is important, what is captured in the frame will play an impactful role in the video as well.
@@ -78,6 +85,14 @@ Check out this example from [Rosanna Pansino](https://www.youtube.com/channel/UC
 
  The camera follows her fluidly throughout the video, but it is her eyes that guide both the camera moves and what she wants our attention to be directed to. Don’t hesitate to let the viewer know what you want them to see.
 
+<!-- affiliate ads begin -->
+<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
+<span class="text-ad-content">
+	#1 Rated Parental Control Software.<br/>
+	Monitor & Control all PC Activity!<br/>
+		<cite style="color:green">sentrypc.com/parental-controls/</cite>
+	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **6\. Be Prepared**
 
 While you can pick up a camera and start vlogging on the fly, being prepared enables you to produce the best video possible. Take a few minutes before you hit record simply to outline the key points you want to talk about and how the video will end, ensuring that after filming you haven’t forgotten a crucial part.
@@ -98,6 +113,9 @@ Consider your audience: they are coming home from school or work, where there we
 
 Want to see a vlogger that is awesome at being expressive on camera? Check out [Emma Chamberlain](https://www.youtube.com/channel/UC78cxCAcp7JfQPgKxYdyGrg), if you haven’t already. Every word she says in her video is layered with emotion. We know exactly how she feels.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **8\. Stay Organized**
 
 The same way you should prepare before filming, it’s also important to be organized comes the editing phase. Editing is arguably the most time-consuming part of the vlogging process, so have a system for categorizing and finding your footages.
@@ -122,8 +140,15 @@ If you want to find a video editing solution that empowers your imagination and 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -149,3 +174,39 @@ Follow @Richard Bennett
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/reating-captivating-thumbnails-for-youtube/"><u>[New] Creating Captivating Thumbnails for YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-a-comprehensible-walkthrough-finding-your-youtube-remarks/"><u>[New] In 2024, A Comprehensible Walkthrough  Finding Your YouTube Remarks</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-explore-the-10-fastest-expanding-yt-hubs-for-wisdom/"><u>[New] In 2024, Explore the 10 Fastest-Expanding YT Hubs for Wisdom</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/trategic-release-dates-for-peak-youtube-engagement-for-2024/"><u>[New] Strategic Release Dates for Peak YouTube Engagement for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-breakthrough-techniques-in-youtube-content-creation/"><u>[Updated] 2024 Approved  Breakthrough Techniques in YouTube Content Creation</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-step-by-step-transferring-snapshots-from-social-platform-to-device/"><u>[Updated] 2024 Approved  Step-by-Step  Transferring Snapshots From Social Platform to Device</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-comparing-the-costs-and-advantages-of-various-youtube-plans-for-2024/"><u>[Updated] Comparing the Costs and Advantages of Various YouTube Plans for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-discover-your-rhythm-assembling-tailored-youtube-playlists-for-the-digital-age-webmobile-for-2024/"><u>[Updated] Discover Your Rhythm  Assembling Tailored YouTube Playlists for the Digital Age (Web/Mobile) for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-humor-hubbub-top-7-cheeky-content-concepts-for-laughter-lovers-for-2024/"><u>[Updated] Humor Hubbub  Top 7 Cheeky Content Concepts for Laughter Lovers for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-digital-recorder-snap-your-screen-upload-to-youtube-onlinepcmac/"><u>[Updated] In 2024, Digital Recorder  Snap Your Screen, Upload to YouTube Online/PC/Mac</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-step-up-your-game-free-software-for-professional-thumbnails/"><u>[Updated] In 2024, Step Up Your Game  Free Software for Professional Thumbnails</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-unveiling-top-5-strategies-boosting-your-brand-via-youtube-marketing/"><u>[Updated] In 2024, Unveiling Top 5 Strategies  Boosting Your Brand via YouTube Marketing</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-a-comprehensively-reviewed-list-of-youtube-video-extractor-apps-android/"><u>2024 Approved  A Comprehensively Reviewed List of YouTube Video Extractor Apps (Android)</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-defeat-synthetic-followers-for-true-popularity-peak/"><u>2024 Approved  Defeat Synthetic Followers for True Popularity Peak</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-discover-7-unforgettable-marriage-videos-on-vimeo/"><u>2024 Approved  Discover 7 Unforgettable Marriage Videos on Vimeo</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-experts-picks-the-best-10-photography-lenses/"><u>2024 Approved  Expert's Picks  The Best 10 Photography Lenses</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-global-gross-earnings-of-youtube-luminaries/"><u>2024 Approved  Global Gross Earnings of YouTube Luminaries</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-how-to-edit-youtube-videos-ultimate-guide/"><u>2024 Approved  How To Edit YouTube Videos [Ultimate Guide]</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-music-mastery-essentials-high-quality-dj-video-samples/"><u>2024 Approved  Music Mastery Essentials  High-Quality DJ Video Samples</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-the-role-of-analytics-in-amplifying-your-youtube-presence/"><u>2024 Approved  The Role of Analytics in Amplifying Your YouTube Presence</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/2024-approved-the-ultimate-blueprint-for-successful-discord-live-streams/"><u>2024 Approved  The Ultimate Blueprint for Successful Discord Live Streams</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-ultimate-low-cost-cameras-list/"><u>2024 Approved  The Ultimate Low-Cost Cameras List</u></a></li>
+<li><a href="https://android-location.techidaily.com/3-effective-methods-to-fake-gps-location-on-android-for-your-xiaomi-13t-drfone-by-drfone-virtual/"><u>3 Effective Methods to Fake GPS location on Android For your Xiaomi 13T | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ce-videos-at-no-extra-cost-best-editors-ranked-top-9/"><u>Enhance Videos at No Extra Cost  Best Editors Ranked (Top 9)</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/fixing-the-constant-crashes-in-tower-of-fantasy-for-your-windows-computer/"><u>Fixing the Constant Crashes in Tower of Fantasy for Your Windows Computer</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/forgot-locked-iphone-8-plus-password-learn-the-best-methods-to-unlock-drfone-by-drfone-ios/"><u>Forgot Locked iPhone 8 Plus Password? Learn the Best Methods To Unlock | Dr.fone</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/how-to-use-chatgpt-the-ultimate-guide-to-reducing-tech-diversions-top-8-prompts/"><u>How to Use ChatGPT: The Ultimate Guide to Reducing Tech Diversions (Top 8 Prompts)</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ating-to-youtubes-video-editor-interface/"><u>Navigating to YouTube's Video Editor Interface</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/quick-fixes-screen-capturing-on-instagrams-feed-for-2024/"><u>Quick Fixes  Screen Capturing on Instagram's Feed for 2024</u></a></li>
+<li><a href="https://techidaily.com/simple-ways-to-get-lost-videos-back-from-infinix-note-30-vip-racing-edition-by-fonelab-android-recover-video/"><u>Simple ways to get lost videos back from Infinix Note 30 VIP Racing Edition</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/step-by-step-tutorial-how-to-bypass-samsung-galaxy-a15-5g-frp-by-drfone-android/"><u>Step-by-Step Tutorial How To Bypass Samsung Galaxy A15 5G FRP</u></a></li>
+<li><a href="https://driver-install.techidaily.com/streamline-your-device-new-dell-system-drivers-release/"><u>Streamline Your Device: New Dell System Drivers Release</u></a></li>
+</ul></div>
