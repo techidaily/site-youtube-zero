@@ -1,9 +1,11 @@
 Sitemap: https://youtube-zero.techidaily.com/sitemap_index.xml
 User-agent: Googlebot
-Disallow:
-
+Disallow: 
 User-agent: Googlebot-image
 Disallow: 
+
+
+
 
 User-agent: *
 Disallow: /scripts
