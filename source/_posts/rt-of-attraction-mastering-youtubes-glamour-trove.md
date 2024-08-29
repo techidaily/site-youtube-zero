@@ -1,7 +1,7 @@
 ---
 title: "\"The Art of Attraction  Mastering Youtube's Glamour Trove\""
-date: 2024-07-13T01:20:34.334Z
-updated: 2024-07-14T01:20:34.334Z
+date: 2024-08-28T12:59:53.530Z
+updated: 2024-08-29T12:59:53.530Z
 tags:
   - ai video
   - ai youtube
@@ -116,6 +116,9 @@ Here are 4 tips for getting free products for review:
 Make sure to link to your channel so they can verify what you say (do not hide your subscriber count).  
 Emphasize what value you could provide the brand with (i.e. ‘I’ve had a lot of success with videos on managing acne and I’m sure my subscribers would love to see a review of your cream’) and outline what kind of video you’d like to make (i.e. a five-minute review focusing on the product, or a short feature in a longer makeup tutorial).
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## **Simple Camera Setup for Beauty Vloggers**
 
 There are a lot of different ways to set up your camera for a ‘talking head’ video (anything that is primarily you talking to the camera). Keep reading to learn about a popular ring-light setup for beauty videos, or [click here to learn 4 different camera setups](https://www.filmora.io/community-blog/4-ways-to-set-up-your-talking-head-shots-for-youtube-431.html).
@@ -153,12 +156,18 @@ An aperture of f/5.0 is good if you’re going to be moving around a lot, but if
 
 ![set f stop](https://images.wondershare.com/filmora/article-images/set-f-stop2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 **Step 6:** Set your ISO (film speed). A lower ISO will give you a darker, but higher quality, image. A higher ISO will lower your quality and give you a brighter image.
 
 ISO 400 should be a happy medium for shooting inside with your ring light, but you may need to try out a couple of settings to find one perfect for your situation.
 
 ![set film speed](https://images.wondershare.com/filmora/article-images/set-film-speed3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 For more info on [camera settings for beauty videos, click here](https://www.filmora.io/video-tutorials/how-to-set-up-your-camera-%E2%80%93-the-makeup-series-12.html).
 
 ## **Lighting for Beauty**
@@ -207,6 +216,9 @@ One cool feature of the Neewer Ring Light is that you can choose between dayligh
 
 ![Neewer Ring Light](https://images.wondershare.com/filmora/article-images/neewer-ring-light5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 This light is dimmable and can be adjusted to the angle that suits your shot. That’s true of our number 2 pick too, and the second place light actually has a slight edge over the Neewer light because its color temperature is 5400K which is slightly closer to daylight than Neewer’s 5500K, but that’s honestly not super important for YouTube. They’re close enough that you won’t be able to tell the difference, and this light is over $100 more affordable.
 
 #### 2\. **Prismatic Halo Ring Light**
@@ -252,6 +264,9 @@ Before you start recording your makeup tutorial there are a few things you shoul
  4. **_Do a video test._** Before you start your video for real, start recording and shoot some test footage. Watch that back to make sure you like the look of your frame, your face is never blurry, and you’re happy with the overall look of things.
  5. **_Do an audio test._** If you’re going to be talking in your video instead of recording a voiceover after, do an audio test to make sure your audience will be able to hear you clearly.
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **How to Make a Makeup Tutorial – Recording**
 
 Here are some things to keep in mind while you record your makeup tutorial:
@@ -261,6 +276,9 @@ If you’re using autofocus, you can hold products up to the screen and wait for
 2. **_Highlight small details._** Describe what you’re doing in a lot of detail and don’t gloss over anything. Assume the person watching your tutorial doesn’t know anything about putting on makeup.
 3. **_Take stills for your thumbnail._** Remember to take some still photos of your finished makeup to use in your YouTube thumbnail.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **How to Make a Makeup Tutorial – After Shooting**
 
 Once you’ve finished recording and put away all your camera gear, there’s still work to do. You still need to edit your video and post it on YouTube. Here are some tips for that:
@@ -277,6 +295,9 @@ Remember to include what type of video you made, i.e. ‘tutorial’, ‘review�
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -302,3 +323,53 @@ Follow @Richard Bennett
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-a-step-by-step-guide-how-to-record-save-and-share-youtube-video-for-no-cost/"><u>[New] 2024 Approved  A Step-by-Step Guide  How To Record, Save & Share YouTube Video for No Cost</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-balancing-act-proper-techniques-for-stable-photos/"><u>[New] 2024 Approved  Balancing Act  Proper Techniques for Stable Photos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-boost-your-channels-a-guide-to-best-youtube-seo-resources/"><u>[New] 2024 Approved  Boost Your Channels  A Guide to Best YouTube SEO Resources</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-breakthrough-youtube-success-essential-tips-from-creator-studio-guide/"><u>[New] 2024 Approved  Breakthrough YouTube Success  Essential Tips From Creator Studio Guide</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-demystifying-the-process-of-checking-subs/"><u>[New] 2024 Approved  Demystifying The Process of Checking Subs</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-elevate-your-video-presence-mastery-of-channel-art-and-banner-sizes/"><u>[New] 2024 Approved  Elevate Your Video Presence  Mastery of Channel Art and Banner Sizes</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-enhance-visibility-amplify-impact-video-seo/"><u>[New] 2024 Approved  Enhance Visibility, Amplify Impact (Video SEO)</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-from-couch-to-camera-earning-through-personal-vlogging/"><u>[New] 2024 Approved  From Couch-to-Camera  Earning Through Personal Vlogging</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-in-depth-walkthrough-editing-youtube-videos-in-wmm/"><u>[New] 2024 Approved  In-Depth Walkthrough  Editing YouTube Videos in WMM</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-increasing-video-visibility-with-engaging-youtube-images/"><u>[New] 2024 Approved  Increasing Video Visibility with Engaging Youtube Images</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-insider-tips-for-getting-the-most-out-of-youtube-tv/"><u>[New] 2024 Approved  Insider Tips for Getting the Most Out of YouTube TV</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-is-hasty-subscription-a-gateway-to-better-viewing-habits/"><u>[New] 2024 Approved  Is Hasty Subscription a Gateway to Better Viewing Habits?</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-mapping-out-the-next-wave-of-social-media-graphs/"><u>[New] 2024 Approved  Mapping Out the Next Wave of Social Media Graphs</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-masterclass-refining-youtube-videos-through-imovie/"><u>[New] 2024 Approved  Masterclass  Refining YouTube Videos Through iMovie</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-mastering-online-channel-name-creation-tips-and-tricks/"><u>[New] 2024 Approved  Mastering Online Channel Name Creation  Tips & Tricks</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-mastering-view-counts-by-upholding-youtubes-cc-license/"><u>[New] 2024 Approved  Mastering View Counts by Upholding YouTube's CC License</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-mastering-youtube-videos-without-spending-a-dime-with-the-8-best-tools/"><u>[New] 2024 Approved  Mastering YouTube Videos Without Spending A Dime - With the 8 Best Tools</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-optimizing-your-yt-ad-revenue-with-effective-monetization-audits/"><u>[New] 2024 Approved  Optimizing Your YT Ad Revenue with Effective Monetization Audits</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-pixels-to-perfection-youtubes-beauty-color-techniques/"><u>[New] 2024 Approved  Pixels to Perfection  Youtube's Beauty Color Techniques</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-quick-step-by-step-guide-for-youtube-audio-in-imovie/"><u>[New] 2024 Approved  Quick Step-by-Step Guide for YouTube Audio in iMovie</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-say-goodbye-to-vertical-and-horizontal-bars-in-youtube-movies/"><u>[New] 2024 Approved  Say Goodbye to Vertical and Horizontal Bars in YouTube Movies</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/0-must-have-youtube-intros-tools-for-beginners-all-free-for-2024/"><u>[New] 30 Must-Have YouTube Intros Tools for Beginners, All Free for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-chill-out-guide-selecting-inviting-winter-backgrounds/"><u>[New] A Chill-Out Guide  Selecting Inviting Winter Backgrounds</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-elevating-your-instagram-presence-with-watermarks/"><u>[New] Elevating Your Instagram Presence with Watermarks</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-tailoring-content-to-engage-an-igtv-video-dimension-blueprint/"><u>[New] In 2024, Tailoring Content to Engage  An IGTV Video Dimension Blueprint</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-drone-racing-mastery-basic-knowledge-and-quintessential-fpv-models/"><u>[Updated] 2024 Approved  Drone Racing Mastery  Basic Knowledge & Quintessential FPV Models</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-auditory-aesthetics-guide-media-sound-choices-for-2024/"><u>[Updated] Auditory Aesthetics Guide  Media Sound Choices for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-capturing-victories-effective-strategies-with-w11/"><u>2024 Approved  Capturing Victories  Effective Strategies with W11</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/a-perfect-guide-to-remove-or-disable-google-smart-lock-on-honor-magic5-ultimate-by-drfone-android/"><u>A Perfect Guide To Remove or Disable Google Smart Lock On Honor Magic5 Ultimate</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-you-when-your-nokia-c12-plus-is-off-drfone-by-drfone-virtual-android/"><u>Can Life360 Track You When Your Nokia C12 Plus is off? | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-success-using-youtube-statistics-to-grow-engagement/"><u>Chart Success  Using YouTube Statistics to Grow Engagement</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-a-unique-channel-look-for-free-for-2024/"><u>Craft a Unique Channel Look for Free for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/easy-tips-for-engaging-in-live-messages-within-mozilla-thunderbird/"><u>Easy Tips for Engaging in Live Messages Within Mozilla Thunderbird</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-offset-guide-affordable-channel-buys-to-monetize/"><u>First Offset Guide  Affordable Channel Buys to Monetize</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-overcome-write-failures-on-0x-addressed-memories-a-comprehensive-guide/"><u>How to Overcome Write Failures on 0X Addressed Memories: A Comprehensive Guide</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-remove-activation-lock-on-the-iphone-14-pro-without-previous-owner-by-drfone-ios/"><u>How to Remove Activation Lock On the iPhone 14 Pro Without Previous Owner?</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-text-messages-from-oppo-a56s-5g-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Text Messages from Oppo A56s 5G to New Phone | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-your-motorola-defy-2-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Your Motorola Defy 2 Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-mastering-webcam-recording-for-slideshows/"><u>In 2024, Mastering Webcam Recording for Slideshows</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-lumafusion-for-mac-install-it-or-get-alternatives-for-2024/"><u>New Lumafusion for Mac Install It or Get Alternatives for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/pinnacle-posts-on-reddit-celebrating-the-most-popular-10-for-2024/"><u>Pinnacle Posts on Reddit  Celebrating the Most Popular (10) for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-platforms-securing-partnerships-with-youtube-content-creators-for-2024/"><u>Scout Platforms  Securing Partnerships with YouTube Content Creators for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/swift-transfer-methods-getting-files-onto-computers/"><u>Swift Transfer Methods  Getting Files Onto Computers</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-video-and-photography-mobile-apps-for-iphoneandroid-users/"><u>Top 5 Video & Photography Mobile Apps for iPhone/Android Users</u></a></li>
+<li><a href="https://techidaily.com/undelete-lost-pictures-from-oppo-reno-11-5g-by-fonelab-android-recover-pictures/"><u>Undelete lost pictures from Oppo Reno 11 5G.</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/unlocking-made-easy-the-best-10-apps-for-unlocking-your-zte-nubia-flip-5g-device-by-drfone-android/"><u>Unlocking Made Easy The Best 10 Apps for Unlocking Your ZTE Nubia Flip 5G Device</u></a></li>
+</ul></div>

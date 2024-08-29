@@ -1,0 +1,167 @@
+---
+title: "\"[Updated] 2024 Approved  Mastering Video Lighting Techniques\""
+date: 2024-08-28T13:05:04.696Z
+updated: 2024-08-29T13:05:04.696Z
+tags:
+  - ai video
+  - ai youtube
+categories:
+  - ai
+  - youtube
+description: "\"This Article Describes [Updated] 2024 Approved: Mastering Video Lighting Techniques\""
+excerpt: "\"This Article Describes [Updated] 2024 Approved: Mastering Video Lighting Techniques\""
+keywords: "\"Video Lights Mastery,Lighting for Videos,Pro Video Illumination,Enhance Video Brightness,Advanced Video Lighting,Expert Video Techniques,High-Quality Video Light\""
+thumbnail: https://thmb.techidaily.com/0770f30dd9bee193a5501427eba7dec20121fd86c94f50442733727b65ca9aad.jpg
+---
+
+## Mastering Video Lighting Techniques
+
+# Lighting Tips for Vlogging: How to Light
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+One of the best things you can do for your video quality is to ensure you have great lighting. Viewers find poor lighting distracting and it's hard for them to see how great your content is if they are busy thinking about why your video is so dark. By creating a great lighting set up you can ensure that the people watching your videos are only thinking about how much they're enjoying them.
+
+Going outside and using natural light is the cheapest way to get a lot of light for your videos. If your vlog is not suited to the great outdoors then you need to get more strategic. You can turn on all the lights in your living room and still end up with a dark, grainy, video.
+
+## Video Lighting Basics: Three Point Lighting
+
+![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
+
+The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
+
+The brightest source of light is also known as the **key light** which need to be high quality. A window will work, but if you do not have access to one where you are filming then consider an LED panel light or a softbox light like the ones used in portrait photography.
+
+This first light will create a dramatic shadow across half of your face. You want to reduce this shadow, but not get rid of it completely.
+
+Rather than setting up another light source on the opposite side of the camera, put up a reflector to bounce some light back onto your face. This reflector is called your **'Fill Light'**.
+
+The **fill light** is less bright than the primary source of light and it is placed on the side opposite to the key light. Its purpose is to reduce shadows produced by the key light and the reflector will need to be mounted on a stand.
+
+The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
+
+### Watch Video! Top Lighting Tips for Vlogging
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
+## Lightning Tips for Aspiring YouTube Videographers
+
+Becoming the master of light will take some time and practice, so it is crucial to remain curious and anxious to learn new tricks throughout that process if you want to continually become better. These tips will help you make the first steps on that journey.
+
+#### 1\.  Focus Your Key Light
+
+Try to focus your Key Light so that it lights only you and not your background. Do this by mounting anything that can cast a shadow onto your Key Light to control the area where the light hits. If you are using a window for your Key Light then you can use a curtain. If you use a softbox light then your light will already be somewhat focused.
+
+#### 2\. Use Natural Lighting
+
+The light provided by the Sun is still the best light source, you can have in your video. The trouble is that natural light changes quickly, which makes it highly unpredictable. The best way to deal with this challenge is to come prepared to the set and to get the shot you want as quickly as you can.
+
+#### 3\.  Try DIY Lightning
+
+Literally, anything from candles to LED light bulbs can serve as a source of light in a shot. You just need to pay attention to the light temperature, because warmer light sources may highlight reds and yellows that can make your footage look less realistic.
+
+#### 4\. Use Lightning Kits
+
+This is by far the best option if you want to be in complete control of the light on your set. You can adjust the intensity of the lights, use filters, diffusers and all sorts of other accessories to create the light that flatters the subjects of your videos. The only downside is that you'll have to spend a considerable amount of money if you want to have a professional lighting kit.
+
+#### 5\.  Set up reflectors
+
+Sets of reflectors are often under $50, so they are fairly affordable. However, some vloggers choose to forgo purchasing reflectors and make their own out of tinfoil.
+
+![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
+If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
+
+If you are hosting a **beauty vlog** then you might consider a slightly different set up. Instead of having your main light off to one side set it up directly in front of you so your entire face is lit evenly. It is still a good idea to use fill lights in this set up to give you some dimension, and a backlight is even more essential for helping you stand out from the background. The even light hitting your face will also make you look flat if you do not use a backlight.
+
+![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
+<!-- affiliate ads end -->
+If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
+
+If you are stuck shooting in **low light conditions** it is best to use a lens with a wider aperture/lower f-stop. This will make the best of the light you do have.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-in-depth-explanation-implementing-cc-license-types/"><u>[New] 2024 Approved  In-Depth Explanation  Implementing CC License Types</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-subtitled-freely-top-10-tools-for-youtubes-text-extractors/"><u>[New] 2024 Approved  Subtitled Freely  Top 10 Tools for YouTube's Text Extractors</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-top-vlog-concepts-for-daily-engagement/"><u>[New] 2024 Approved  Top Vlog Concepts for Daily Engagement</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/oost-engagement-top-8-youtube-video-trackers-unveiled-for-2024/"><u>[New] Boost Engagement - Top 8 YouTube Video Trackers Unveiled for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/rafting-content-that-captivates-youtube-keyword-mastery/"><u>[New] Crafting Content that Captivates  YouTube Keyword Mastery</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/oes-your-channel-benefit-from-regular-youtube-payments-for-2024/"><u>[New] Does Your Channel Benefit From Regular YouTube Payments for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/rom-good-to-great-videos-the-20-essential-shortcuts-for-success-for-2024/"><u>[New] From Good to Great Videos  The 20 Essential Shortcuts for Success for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-crafting-a-customized-soundscape-youtube-playlist-building-on-the-internetapps/"><u>[New] In 2024, Crafting a Customized Soundscape  YouTube Playlist Building on the Internet/Apps</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-essential-chromes-leading-fb-video-grabs/"><u>[New] In 2024, Essential Chromes  Leading FB Video Grabs</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/astering-tags-a-must-read-before-uploading-for-2024/"><u>[New] Mastering Tags  A Must-Read Before Uploading for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/innacle-partnership-portrayal-picking-an-ideal-mcn-for-2024/"><u>[New] Pinnacle Partnership Portrayal  Picking an Ideal MCN for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/anking-the-top-12-streamlined-screen-swivel-cams-for-content-for-2024/"><u>[New] Ranking the Top 12 Streamlined Screen-Swivel Cams for Content for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/crutinizing-youtubes-top-viewed-community-inputs/"><u>[New] Scrutinizing YouTube's Top Viewed Community Inputs</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ocial-media-integration-for-amplified-youtube-shorts-reach/"><u>[New] Social Media Integration for Amplified YouTube Shorts Reach</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/op-10-video-capture-tools-for-blogging-platforms/"><u>[New] Top 10 Video Capture Tools for Blogging Platforms</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-amplify-your-snapchat-experience-with-easy-voice-customization/"><u>[Updated] 2024 Approved  Amplify Your Snapchat Experience with Easy Voice Customization</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-first-footsteps-in-youtube-landscape-setting-up-shop-and-earning-profitably/"><u>[Updated] 2024 Approved  First Footsteps in YouTube Landscape  Setting Up Shop and Earning Profitably</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-improve-your-channels-meta-description-powerfully/"><u>[Updated] 2024 Approved  Improve Your Channel's Meta Description Powerfully</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-skyrocketing-view-count-on-youtube-two-hacks/"><u>[Updated] 2024 Approved  Skyrocketing View Count on YouTube (Two Hacks)</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-step-by-step-to-youtube-fame-excellence-in-music-video-reactions/"><u>[Updated] 2024 Approved  Step-by-Step to YouTube Fame  Excellence in Music Video Reactions</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-the-complete-guide-to-youtube-ad-free-viewing-chrome-and-safari/"><u>[Updated] 2024 Approved  The Complete Guide to YouTube Ad-Free Viewing (Chrome & Safari)</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-the-small-business-video-marketing-playbook/"><u>[Updated] 2024 Approved  The Small Business Video Marketing Playbook</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-25-top-free-tips-to-stream-online-learning-events-effectively/"><u>[Updated] 25 Top Free Tips to Stream Online Learning Events Effectively</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-elevating-your-contents-impact-an-in-depth-look-at-youtube-thumbnail-size-for-2024/"><u>[Updated] Elevating Your Content's Impact  An In-Depth Look at YouTube Thumbnail Size for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-gamers-picks-best-recording-software/"><u>[Updated] Gamers' Picks  Best Recording Software</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-highlighting-youtubes-creme-de-la-creme-makeup-influencers/"><u>[Updated] Highlighting YouTube's Crème De La Crème Makeup Influencers</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-how-to-add-emojis-on-youtube-comments/"><u>[Updated] How to Add Emojis on YouTube Comments</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-accelerating-or-slowing-down-youtube-videos-playback/"><u>2024 Approved  Accelerating or Slowing Down YouTube Videos Playback</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-best-microphone-for-different-youtube-channel-types/"><u>2024 Approved  Best Microphone for Different YouTube Channel Types</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-unleashing-your-contents-potential-viral-short-tags/"><u>2024 Approved  Unleashing Your Content’s Potential  Viral Short Tags</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-your-ultimate-youtube-to-avi-transformation-guidebook/"><u>2024 Approved  Your Ultimate YouTube-to-AVI Transformation Guidebook</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/actionable-guide-xml-to-srt-conversion-techniques-for-2024/"><u>Actionable Guide  XMl-to-Srt Conversion Techniques for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/g-deep-youtubes-best-immersive-experiences/"><u>Diving Deep  YouTube's Best Immersive Experiences</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/stir-to-screen-masterful-cooking-videos/"><u>From Stir to Screen  Masterful Cooking Videos</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-can-you-cast-your-apple-iphone-8-to-windows-pc-with-ease-drfone-by-drfone-ios/"><u>How Can You Cast Your Apple iPhone 8 to Windows PC With Ease? | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-iphone-13-pro-without-passcode-4-easy-methods-by-drfone-ios/"><u>How To Unlock iPhone 13 Pro Without Passcode? 4 Easy Methods</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-guide-to-swiftly-eliminate-unwanted-youtube-comments/"><u>In 2024, Guide to Swiftly Eliminate Unwanted YouTube Comments</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-history-enthusiasts-guide-to-inspiring-youtube-channels/"><u>In 2024, History Enthusiasts' Guide to Inspiring YouTube Channels</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-smooth-scene-transitions-with-premieres-fades/"><u>In 2024, Smooth Scene Transitions with Premiere's Fades</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/hts-into-youtube-shorts-business-model-for-2024/"><u>Insights Into YouTube Shorts Business Model for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/izing-moolah-on-youtube-a-creators-handbook/"><u>Maximizing Moolah on YouTube  A Creator's Handbook</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-harnessing-hidden-auditory-elements-in-videos-a-2023-approach-to-enhanced-sound-recovery/"><u>New Harnessing Hidden Auditory Elements in Videos A 2023 Approach to Enhanced Sound Recovery</u></a></li>
+<li><a href="https://techtrends.techidaily.com/top-techniques-for-successful-imagery-discovery-on-facebook-enhancing-your-search-skills/"><u>Top Techniques for Successful Imagery Discovery on Facebook: Enhancing Your Search Skills</u></a></li>
+</ul></div>
