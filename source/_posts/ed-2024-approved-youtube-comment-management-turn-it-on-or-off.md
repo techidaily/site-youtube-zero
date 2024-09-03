@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  YouTube Comment Management  Turn It On or Off\""
-date: 2024-07-13T01:16:46.532Z
-updated: 2024-07-14T01:16:46.532Z
+date: 2024-09-02T02:57:56.807Z
+updated: 2024-09-03T02:57:56.807Z
 tags:
   - ai video
   - ai youtube
@@ -112,6 +112,9 @@ From under the **Audience** section in the right window of the **Video details**
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ## FAQs About YouTube Comments
 
 #### 1\. Why can’t I comment on the YouTube video?
@@ -128,6 +131,9 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 
 ![Block YouTube   commnets](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
+<!-- affiliate ads end -->
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
 Yes. When you turn off the comments, the existing comments disappear. When you turn them back on, all the previous comments reappear, and become visible to the audience.
@@ -142,6 +148,10 @@ It is easy to understand **how to turn on comments on YouTube**. The best thing 
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
+LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -167,3 +177,49 @@ Follow @Liza Brown
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-innovating-conference-calls-with-google-meet-backdrop-shuffling/"><u>[New] 2024 Approved  Innovating Conference Calls with Google Meet Backdrop Shuffling</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-revolutionary-techniques-for-high-quality-sound-recording-no-microphone-required/"><u>[New] 2024 Approved  Revolutionary Techniques for High-Quality Sound Recording, No Microphone Required</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ultivating-eco-diversity-in-metropolitan-land-use-for-2024/"><u>[New] Cultivating Eco-Diversity in Metropolitan Land Use for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/iving-into-the-world-of-youtubers-starting-your-channel-earning-cash/"><u>[New] Diving Into the World of Youtubers  Starting Your Channel, Earning Cash</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-effective-usage-of-hashtags-by-advertisers-on-fb-for-2024/"><u>[New] Effective Usage of Hashtags by Advertisers on FB for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-effortless-guide-to-share-your-videos-as-shorts-on-computers-and-phones/"><u>[New] In 2024, Effortless Guide to Share Your Videos as Shorts on Computers & Phones</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/aking-monetization-measurable-joining-youtubes-2024-partnership/"><u>[New] Making Monetization Measurable  Joining YouTube's 2024 Partnership</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/eleased-caught-in-the-web-of-missing-shorts/"><u>[New] Released  Caught in the Web of Missing Shorts</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/he-pathway-to-crafting-a-viral-video-introduction-for-2024/"><u>[New] The Pathway to Crafting a Viral Video Introduction for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-thors-fury-legends-of-the-ragnarok-for-2024/"><u>[New] Thor's Fury  Legends of the Ragnarök for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ideo-text-synthesizer-for-2024/"><u>[New] Video Text Synthesizer for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-deciphering-digital-dominance-youtube-content-strategy-comparison/"><u>[Updated] 2024 Approved  Deciphering Digital Dominance  YouTube Content Strategy Comparison</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-discovering-your-customized-youtube-playlist/"><u>[Updated] 2024 Approved  Discovering Your Customized YouTube Playlist</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-elite-streaming-sensations-worlds-most-popular-video-content-makers/"><u>[Updated] 2024 Approved  Elite Streaming Sensations  World's Most Popular Video Content Makers</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-explore-the-world-of-frames-5-free-youtube-tips-for-you/"><u>[Updated] 2024 Approved  Explore the World of Frames  5 Free YouTube Tips for You</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-how-to-record-screencast-from-youtube-for-free/"><u>[Updated] 2024 Approved  How To Record Screencast From YouTube For Free</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-uncover-unique-user-understanding/"><u>[Updated] 2024 Approved  Uncover Unique User Understanding</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-unleash-your-inner-editor-with-these-premium-androidpc-apps/"><u>[Updated] 2024 Approved  Unleash Your Inner Editor with These Premium Android/PC Apps</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-decipher-high-impact-content-selecting-premier-rank-trackers-for-youtubers/"><u>[Updated] Decipher High-Impact Content  Selecting Premier Rank Trackers for YouTubers</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-efficiency-in-action-rapid-removal-of-youtube-discussions/"><u>[Updated] Efficiency in Action  Rapid Removal of YouTube Discussions</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-frame-by-frame-building-a-filmmaking-foundation-on-youtube/"><u>[Updated] Frame by Frame  Building a Filmmaking Foundation on YouTube</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-essential-tips-on-calculating-your-youtube-traffic-and-earnings/"><u>[Updated] In 2024, Essential Tips on Calculating Your YouTube Traffic & Earnings</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-jake-paul-unveiled-charting-the-path-of-youtube-stardom/"><u>[Updated] In 2024, Jake Paul Unveiled  Charting the Path of YouTube Stardom</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-learn-the-art-of-crafting-short-youtube-videos/"><u>[Updated] In 2024, Learn the Art of Crafting Short YouTube Videos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-navigating-through-time-the-finest-history-youtube-sources-for-students/"><u>[Updated] In 2024, Navigating Through Time  The Finest History YouTube Sources for Students</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-rise-above-the-crowd-10-proven-techniques-for-video-standout/"><u>[Updated] In 2024, Rise Above the Crowd  10 Proven Techniques for Video Standout</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-startup-steps-for-successful-youtubers-setting-up-channels-securing-sales/"><u>[Updated] In 2024, Startup Steps for Successful Youtubers  Setting Up Channels, Securing Sales</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-the-mechanics-behind-youtube-once-a-video-goes-live/"><u>2024 Approved  The Mechanics Behind YouTube Once a Video Goes Live</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-top-15-instagram-videophoto-downloaders/"><u>2024 Approved  Top 15 Instagram Video/Photo Downloaders</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ing-a-strong-visual-narrative-in-youtube-videos-for-2024/"><u>Building a Strong Visual Narrative in YouTube Videos for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/e-youtube-shorts-a-complete-breakdown/"><u>Decode YouTube Shorts  A Complete Breakdown</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/te-your-video-presentation-with-these-7-free-makers/"><u>Elevate Your Video Presentation with These 7 Free Makers</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ce-yt-experience-the-most-outstanding-reaction-ideas/"><u>Enhance YT Experience  The Most Outstanding Reaction Ideas</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-features-of-photoscape-a-premier-freeware-for-graphic-tweaks-and-edits/"><u>Exploring the Features of PhotoScape: A Premier Freeware for Graphic Tweaks and Edits</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/novice-to-vlogger-your-guide-to-creating-a-youtube-chanel-for-2024/"><u>From Novice to Vlogger  Your Guide to Creating a YouTube Chanel for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-3-things-you-must-know-about-fake-snapchat-location-on-vivo-v29-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Things You Must Know about Fake Snapchat Location On Vivo V29 | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-precision-and-perfection-a-guide-to-youtube-studio-video-edits/"><u>In 2024, Precision and Perfection  A Guide to YouTube Studio Video Edits</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-professional-content-creation-tools-review-studio-vs-beta/"><u>In 2024, Professional Content Creation Tools Review  Studio Vs. Beta</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-still-using-pattern-locks-with-poco-m6-5g-tips-tricks-and-helpful-advice-by-drfone-android/"><u>In 2024, Still Using Pattern Locks with Poco M6 5G? Tips, Tricks and Helpful Advice</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-the-key-to-unlocking-youtubes-editorial-haven/"><u>In 2024, The Key to Unlocking YouTube’s Editorial Haven</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/s-camera-action-youtubes-17-essentials/"><u>Lights, Camera, Action! - YouTube's #17 Essentials</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/two-ways-to-sync-contacts-from-oppo-a18-to-gmail-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Two Ways to Sync Contacts from Oppo A18 to Gmail | Dr.fone</u></a></li>
+</ul></div>

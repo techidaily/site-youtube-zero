@@ -1,0 +1,220 @@
+---
+title: "Job Security and ChatGPT: A Close Look at Ten Potential Risks"
+date: 2024-09-02T03:07:45.769Z
+updated: 2024-09-03T03:07:45.769Z
+tags:
+  - chatgpt
+  - open-ai
+categories:
+  - openAI
+  - chatgpt
+description: "This Article Describes Job Security and ChatGPT: A Close Look at Ten Potential Risks"
+excerpt: "This Article Describes Job Security and ChatGPT: A Close Look at Ten Potential Risks"
+thumbnail: https://thmb.techidaily.com/9cbb22dcf88bcb4ceb0ab602c498731d7fd924c3e7f5e5667c887c44d8fe1da7.jpg
+---
+
+## Unlock AI Potential with These 6 Fantastic and FREE Sora Alternatives You Can Test Today
+
+### Quick Links
+
+* [Runway's Gen-2](https://www.makeuseof.com/openai-sora-alternatives/#runway-39-s-gen-2)
+* [Pika](https://www.makeuseof.com/openai-sora-alternatives/#pika)
+* [Pixverse](https://www.makeuseof.com/openai-sora-alternatives/#pixverse)
+* [Kaiber](https://www.makeuseof.com/openai-sora-alternatives/#kaiber)
+* [Synthesia](https://www.makeuseof.com/openai-sora-alternatives/#synthesia)
+* [Vidnoz](https://www.makeuseof.com/openai-sora-alternatives/#vidnoz)
+
+ OpenAI's Sora text-to-video tool is set to give the world another ChatGPT moment, and for good reason. Sora's ability to generate high-quality video from text prompts is remarkable but not unprecedented, and it's still yet to fully launch. So, if you're looking for a Sora alternative, for whatever reason, you have options to choose from.
+
+## 1 [Runway's Gen-2](https://research.runwayml.com/gen2)
+
+![Runway Gen 2 Home page](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/03/runway-gen-2-home-page.jpg)
+
+* **Free:** 125 Credits
+* **Standard:** $15/month ($12 when paid annually) for 625 monthly credits
+
+ Runway's Gen-2 best mirrors what you'd get using Open AI's Sora, using a multimodal AI system to generate video clips using text prompts.
+
+[Runway's Gen-2 capabilities](https://www.makeuseof.com/what-is-runway-gen-2-text-to-video-ai/) include the ability to upload images or videos for use as a reference for the video clip you'd like to generate. Whether Open AI's Sora will also support creating video clips from reference images or clips remains to be seen.
+
+ Your browser does not support the video tag.
+
+ Judging from the quality of Sora-generated clips shared by OpenAI, Sora bests Runway Gen-2 as an AI text-to-video generator. However, given the speed of development in the AI space (and the fact that Runway launched Gen-2 about a year before the first preview of Sora was released), it's clear OpenAI's Sora and Runway Gen-2 (and its future versions) will battle for the best text-to-video AI generator title.
+
+## 2 [Pika](https://pika.art/)
+
+![screenshot of pika labs homepage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/03/screenshot-of-pika-labs-homepage.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
+* **Free:** 250 initial credits (free 30 credits daily after exhausting initial credits)
+* **Standard:** $10/month ($8 when paid annually) for 700 monthly credits
+
+ Pika is another AI-powered video generator that can create videos and 3D animations from text prompts and images. Pika is available on the web app and Discord. However, the platform you use determines the output quality and additional features you can access.
+
+ The web app allows you to modify specific regions in your generated clip, expand your video canvas, and add lip sync to your generated videos. These features aren't available on the Discord server option.
+
+ That said, I recommend trying out the web and Discord options to see which gives you better results. The clip below was generated on Pika's web version using the same prompt as the viral "Lady Walking in Tokyo" video by OpenAI Sora:
+
+A stylish woman walks down a Tokyo street filled with warm glowing neon and animated city signage. She wears a black leather jacket, a long red dress, and black boots, and carries a black purse. She wears sunglasses and red lipstick. She walks confidently and casually. The street is damp and reflective, creating a mirror effect of the colorful lights. Many pedestrians walk about.
+
+ Your browser does not support the video tag.
+
+ Using the same prompt (/create + prompt) on Pika's Discord server gave the result below:
+
+ Your browser does not support the video tag.
+
+ We'll let you judge which is better, but it's clear Pika has some catching up to do compared to the quality of Sora-generated clips online. However, its other features, like lip-syncing and image animation, give it an edge over Sora—at least for now.
+
+## 3 [Pixverse](http://pixverse.ai/)
+
+![screenshot of pixverse homepage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/03/screenshot-of-pixverse-homepage.jpg)
+
+* **Free**
+
+ Pixverse is another alternative to Open AI's Sora that lets you create realistic videos with text prompts. Pixverse also offers two platforms for video creation: the web platform and the Discord server.
+
+ Pixverse's web platform provides a more comprehensive video creation experience where you can create, view, filter, and edit all the videos you generate.
+
+ Your browser does not support the video tag.
+
+ The video above was generated on Pixverse's web version. While you can always regenerate to get better results (it's free!), the Discord server option has the advantage of generating four clips at a go. This gives you the option of picking which is best without regenerating multiple times. Below is a sample generated on its Discord server:
+
+ Your browser does not support the video tag.
+
+ You can join[Pixverse's Discord server](http://discord.com/invite/MXHErdJHMg) and generate your clips using the**/create** command. You can also select the aspect ratio and negative prompt (if needed) for your videos.
+
+Quality-wise, Pixverse is in the same class as Pika—below Sora.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
+## 4 [Kaiber](https://kaiber.ai/)
+
+![screenshot of kaiber homepage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/03/screenshot-of-kaiber-homepage.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
+* **Free:** 100 initial credits
+* **Explorer:** $5/month for 300 credits.
+
+ Kaiber is an artist-focused AI video generation tool that allows you to create videos from images or text descriptions.
+
+ Kaiber also supports audio reactivity, which means you can upload a song and let the AI generate a video that matches the rhythm and mood of the music. You can also customize your video's length, dimensions, camera movements, and starting frame. You can use Kaiber on the web or through its mobile apps.
+
+ The biggest allure of Kaiber is its ability to generate clips that match the rhythm of uploaded sounds. Its artist-centric features also help prop it up against Sora. However, in terms of generated clip realism, Sora still stands clear.
+
+ Your browser does not support the video tag.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->
+## 5 [Synthesia](http://www.synthesia.io/)
+
+![screenshot of synthesia homepage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/03/screenshot-of-synthesia-homepage.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+* **Free:** Test video
+* **Starter:** $29/month ($22 when billed annually) for 10 minutes of video.
+
+ Synthesia is an[AI text-to-video generator](https://www.makeuseof.com/best-ai-video-generators-text-to-video/) that allows you to create realistic talking videos from text scripts. You can choose from various avatars, backgrounds, and languages to customize your video.
+
+ Synthesia differs from Sora in that it does not generate the visuals from scratch but uses existing footage and modifies it to match the text. Synthesia is also limited to talking videos, while Sora can generate any kind of video from text.
+
+ Your browser does not support the video tag.
+
+ Synthesia is a good alternative to Sora for creating engaging and personalized videos for education, marketing, or entertainment purposes.
+
+## 6 [Vidnoz](http://www.vidnoz.com/)
+
+![Screenshot of vidnoz homepage](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2024/03/screenshot-of-vidnoz-homepage.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
+<!-- affiliate ads end -->
+* **Free:** 1 minute/day
+* **Starter:** $19.99 ($14.99 when billed annually) for 10 minutes of watermark-free videos
+
+ Vidnoz is another AI video generator that creates talking videos from text scripts. Vidnoz AI uses[natural language processing](https://www.makeuseof.com/what-is-natural-language-processing-and-how-does-it-work/) (NLP) and computer vision to generate realistic lip-syncing and facial expressions for the avatars. You can also customize the avatars' appearance, clothing, and accessories.
+
+ Vidnoz AI is similar to Synthesia in terms of functionality, but it allows for more customization when creating your free test video. You can choose between avatars and voices, something Synthesia doesn't support.
+
+ Your browser does not support the video tag.
+
+ If what followed OpenAI's launch of ChatGPT is anything to go by, then you can expect more AI text-to-video platforms to be introduced. You can also expect Google's Lumiere and Meta's Make-A-Video to become accessible to the public.
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-mastering-your-videos-top-youtube-friendly-cameras/"><u>[New] 2024 Approved  Mastering Your Videos  Top YouTube-Friendly Cameras</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-navigating-the-seas-of-saving-facebook-gifs-on-various-tech-platforms/"><u>[New] 2024 Approved  Navigating the Seas of Saving Facebook GIFs on Various Tech Platforms</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-secure-your-travel-documents-grab-10-free-passport-photos-onlinedesktop/"><u>[New] 2024 Approved  Secure Your Travel Documents  Grab 10 FREE Passport Photos Online/Desktop</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-the-ultimate-vlog-gear-list-17-edition/"><u>[New] 2024 Approved  The Ultimate Vlog Gear List (#17 Edition)</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-unraveling-why-your-facebooks-newsfeed-fails-to-suggest-movies/"><u>[New] 2024 Approved  Unraveling Why Your Facebook's Newsfeed Fails to Suggest Movies</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-youtube-earnings-audit-the-monetization-process/"><u>[New] 2024 Approved  YouTube Earnings Audit  The Monetization Process</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ccess-short-videos-anywhere-the-top-6-free-and-online-youtube-short-download-apps-for-2024/"><u>[New] Access Short Videos Anywhere  The Top 6 Free & Online YouTube Short Download Apps for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-best-practices-for-windows-8-screenshots-and-recordings-for-2024/"><u>[New] Best Practices for Windows 8 Screenshots and Recordings for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/losing-your-vlog-right-top-6-free-youtube-outro-tools-for-2024/"><u>[New] Closing Your Vlog Right  Top 6 Free YouTube Outro Tools for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-gain-more-followers-masterful-youtube-marketing-techniques/"><u>[New] Gain More Followers  Masterful YouTube Marketing Techniques</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/dentifying-and-nurturing-your-brands-character-for-2024/"><u>[New] Identifying and Nurturing Your Brand's Character for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-from-startup-to-success-skyrocketing-youtube-subs/"><u>[New] In 2024, From Startup to Success  Skyrocketing Youtube Subs</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/astering-channels-on-the-fly-tubebuddy-essentials-for-2024/"><u>[New] Mastering Channels on the Fly - TubeBuddy Essentials for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/rofessional-tools-to-elevate-your-video-openings/"><u>[New] Professional Tools to Elevate Your Video Openings</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ising-through-the-rankings-adding-highlight-channels-to-youtube-for-2024/"><u>[New] Rising Through the Rankings  Adding Highlight Channels to YouTube for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/mooth-transition-from-phones-to-youtube-setting-up-personalbusiness-channels-for-2024/"><u>[New] Smooth Transition From Phones to YouTube  Setting Up Personal/Business Channels for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ailoring-your-content-to-perfection-youtube-edits-in-sony-vegas-style/"><u>[New] Tailoring Your Content to Perfection  YouTube Edits in Sony Vegas Style</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-take-your-photography-to-new-heights-with-lightrooms-hdr-capabilities/"><u>[New] Take Your Photography to New Heights with Lightroom’s HDR Capabilities</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nveiling-the-secrets-to-removing-green-screen-effects-on-mac-for-2024/"><u>[New] Unveiling the Secrets to Removing Green Screen Effects on Mac for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/outubes-best-practices-for-maximum-impact-thumbnails-for-2024/"><u>[New] YouTube's Best Practices for Maximum Impact Thumbnails for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-pinnacle-performance-the-best-8k-camera-technology/"><u>[Updated] 2024 Approved  Pinnacle Performance  The Best 8K Camera Technology</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-top-choices-premier-video-cutting-tools-for-online-streaming/"><u>[Updated] 2024 Approved  Top Choices  Premier Video Cutting Tools For Online Streaming</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-unlocking-youtube-studio-a-must-have-knowledge-base/"><u>[Updated] 2024 Approved  Unlocking YouTube Studio  A Must-Have Knowledge Base</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-audience-accessibility-enhancement-adding-subtitles-and-closed-captions-on-youtube-for-2024/"><u>[Updated] Audience Accessibility Enhancement  Adding Subtitles and Closed Captions on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-conquering-camera-angst-the-ultimate-list-of-video-blogging-phobias/"><u>[Updated] Conquering Camera Angst  The Ultimate List of Video Blogging Phobias</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-enhancing-engagement-how-to-utilize-youtubes-prominent-channels/"><u>[Updated] Enhancing Engagement  How to Utilize YouTube's Prominent Channels</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-finding-your-audio-voice-match-the-perfect-mic-to-your-channels-character-for-2024/"><u>[Updated] Finding Your Audio Voice  Match the Perfect Mic to Your Channel's Character for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-smart-way-to-combine-igtv-with-stories/"><u>[Updated] The Smart Way to Combine IGTV with Stories</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-cracking-the-code-calculating-your-income-from-youtubes-cpm/"><u>2024 Approved  Cracking the Code  Calculating Your Income From YouTube's CPM</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-delving-into-popular-discussion-threads-on-youtube/"><u>2024 Approved  Delving Into Popular Discussion Threads on YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-demystifying-the-process-of-submitting-videos-on-youtube/"><u>2024 Approved  Demystifying the Process of Submitting Videos on YouTube</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/best-9-free-youtube-logo-makers-for-2024/"><u>Best 9 Free YouTube Logo Makers for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/beware-these-sham-ai-tools-risky-for-data-security/"><u>Beware: These Sham AI Tools Risky for Data Security</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/el-makeovers-made-easy-top-10-online-tools-for-artists/"><u>Channel Makeovers Made Easy - Top 10 Online Tools for Artists</u></a></li>
+<li><a href="https://win-dash.techidaily.com/effortlessly-enhance-performance-surface-book-drivers-at-your-fingertsip/"><u>Effortlessly Enhance Performance: Surface Book Drivers at Your Fingertsip</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/te-your-content-mastering-the-art-of-selected-youtube-channels/"><u>Elevate Your Content  Mastering the Art of Selected YouTube Channels</u></a></li>
+<li><a href="https://win-forum.techidaily.com/essential-fixes-to-prevent-and-repair-constant-windows-explorer-breakdowns/"><u>Essential Fixes to Prevent and Repair Constant Windows Explorer Breakdowns</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-xiaomi-redmi-12-5g-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>How to Fix Xiaomi Redmi 12 5G Find My Friends No Location Found? | Dr.fone</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/how-to-get-and-set-up-new-epson-es-400-scanning-software-for-windows-systems/"><u>How to Get and Set Up New Epson ES-400 Scanning Software for Windows Systems</u></a></li>
+<li><a href="https://fox-access.techidaily.com/in-2024-how-to-make-every-meme-shine-on-9gag/"><u>In 2024, How to Make Every Meme Shine on 9GAG</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-masterful-video-marketing-techniques-youtube-editions-top-5-list/"><u>In 2024, Masterful Video Marketing Techniques - YouTube Edition's #Top 5 List</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-premium-video-boosts-the-9-finest-webcam-effects/"><u>In 2024, Premium Video Boosts  The 9 Finest Webcam Effects</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-simplifying-iphoneipad-screen-captures-for-online-sharing/"><u>In 2024, Simplifying iPhone/iPad Screen Captures for Online Sharing</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ating-engagement-integrate-thoughtful-chapters-into-your-youtube-videos/"><u>Innovating Engagement  Integrate Thoughtful Chapters Into Your YouTube Videos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/matters-top-educational-youtube-picks-for-2024/"><u>Mind Matters  Top Educational YouTube Picks for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/navigating-launchers-security-failures-on-windows-systems/"><u>Navigating Launcher's Security Failures on Windows Systems</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-definitive-troubleshooting-manual-for-user32dll-errors-not-found/"><u>The Definitive Troubleshooting Manual for User32.dll Errors Not Found</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ourney-to-profitable-youtube-video-creation-for-2024/"><u>The Journey to Profitable YouTube Video Creation for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ing-online-a-strategy-guide-for-building-youtube-links-for-2024/"><u>Thriving Online  A Strategy Guide for Building YouTube Links for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/unblemished-visuals-a-buyers-ultimate-guide/"><u>Unblemished Visuals  A Buyer's Ultimate Guide</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/sh-your-inner-vfx-guru-with-diy-techniques/"><u>Unleash Your Inner VFX Guru with DIY Techniques</u></a></li>
+</ul></div>
