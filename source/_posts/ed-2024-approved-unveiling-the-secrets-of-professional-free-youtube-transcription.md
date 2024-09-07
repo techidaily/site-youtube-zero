@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Unveiling the Secrets of Professional Free YouTube Transcription\""
-date: 2024-09-02T03:13:09.270Z
-updated: 2024-09-03T03:13:09.270Z
+date: 2024-09-06T13:03:08.726Z
+updated: 2024-09-07T13:03:08.726Z
 tags:
   - ai video
   - ai youtube
@@ -47,12 +47,24 @@ Sign in to your YouTube account, click your profile picture from the top-right c
 
 ![Upload YouTube videos](https://images.wondershare.com/filmora/article-images/youtube-upload-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### Step 2  Select Transcription Language
 
 On the **Details** page of the next box that appears, scroll down and click **MORE OPTIONS**, and select **English** in the **Video language** drop-down list under the **Language, subtitles, and closed captions (CC)** section.
 
 ![Select Language on YouTube](https://images.wondershare.com/filmora/article-images/select-language-on-youtube.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### Step 3  Publish the Video
 
 Follow the on-screen instructions from this point to publish the video, and wait while YouTube automatically transcribes and [adds the close captions](https://tools.techidaily.com/wondershare/filmora/download/) to it.
@@ -71,6 +83,12 @@ In the video subtitle page of the target video, hover mouse on the **Published A
 
 ![YouTube Classic Studio](https://images.wondershare.com/filmora/article-images/youtube-edit-on-classic-studio.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 1. **Download Transcription File**
 
 Click and open the **Actions** drop-down list from the top-left corner of the left pane, click your preferred transcription format including .vtt, .srt and .sbv from the list, and save the file on your local hard disk.
@@ -78,7 +96,10 @@ Click and open the **Actions** drop-down list from the top-left corner of the le
 ![YouTube videos transcription](https://images.wondershare.com/filmora/article-images/download-youtube-video-transcription.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
+<a href="https://25home.pxf.io/c/5597632/2123478/16836" target="_top" id="2123478">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123478" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123478/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Method 2: Get YouTube Transcription when Watching
 
@@ -112,9 +133,6 @@ Click **Auto-generate** from the right window, and follow the on-screen instruct
 
 ![Kapwing Auto Generate Subtitles](https://images.wondershare.com/filmora/article-images/kapwing-auto-generate-subtitles.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
-<!-- affiliate ads end -->
 **Step 3: Download the Transcription File**
 
 Click **Download SRT** from the left pane, and follow the instructions from there to download the transcription file in \*.srt format.
@@ -122,7 +140,10 @@ Click **Download SRT** from the left pane, and follow the instructions from ther
 ![Kapwing Auto Generate Subtitles](https://images.wondershare.com/filmora/article-images/kapwing-auto-generated-subtitles.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120866/26400?prodsku=mars" target="_top" id="2120866">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120866/26400?prodsku=mars" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 **Pros**
 
@@ -147,7 +168,10 @@ Click **Auto-generate** from the right window, and follow the on-screen instruct
 ![Kapwing Auto Generate Subtitles](https://images.wondershare.com/filmora/article-images/kapwing-auto-generate-subtitles.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 **Step 3: Download the Transcription File**
 
@@ -155,9 +179,6 @@ Click **Download SRT** from the left pane, and follow the instructions from ther
 
 ![Kapwing Auto Generate Subtitles](https://images.wondershare.com/filmora/article-images/kapwing-auto-generated-subtitles.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 **Pros**
 
 * Kapwing is free to use
@@ -212,7 +233,16 @@ If you made any modifications to the transcript that was automatically generated
 ![Edit YouTube subtitles](https://images.wondershare.com/filmora/article-images/edit-automatic-youtube-video-transcription.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975562">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 * Click to open the **Actions** drop-down list from the upper-left corner
 * Click **Upload a file**
@@ -225,6 +255,12 @@ If you are looking for a quick and easy way of adding subtitles to your videos, 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.

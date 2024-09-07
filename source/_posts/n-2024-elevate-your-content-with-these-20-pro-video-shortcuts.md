@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Elevate Your Content With These 20 Pro Video Shortcuts"
-date: 2024-09-02T03:12:39.631Z
-updated: 2024-09-03T03:12:39.631Z
+date: 2024-09-06T13:03:09.235Z
+updated: 2024-09-07T13:03:09.235Z
 tags:
   - ai video
   - ai youtube
@@ -20,6 +20,18 @@ thumbnail: https://thmb.techidaily.com/0c8f696950ea736c2174f2d7e8a74906124afdbd8
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1993651">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### Richard Bennett
 
  Mar 27, 2024• Proven solutions
@@ -28,10 +40,28 @@ YouTube, as one of the most popular free streaming video portals, the majority o
 
 With that said, the following two-columned tables give you detailed information on the shortcut keys and their respective functions, so you don’t have to grab the mouse every time you want to navigate through the YouTube videos, or do any such similar tasks.
 
+<!-- affiliate ads begin -->
+<span id="1983446">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Amazing YouTube Keyboard Shortcuts You May Not Know
 
 To make things convenient for you, the shortcut keys are placed under their corresponding categories, where each category is in the form of a two-columned table.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Category 1: YouTube Playback Hotkeys
 
 While watching a YouTube video, there might be instances when you want to pause and resume the playback. This category teaches how this can be done using the keyboard:
@@ -41,9 +71,6 @@ While watching a YouTube video, there might be instances when you want to pause 
 | 'K'               | Play and Pause (Works as a toggle key) |
 | 'Spacebar'        | Play and Pause (Works as a toggle key) |
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ### Category 2: Scrolling YouTube Videos Back and Forth
 
 This section talks about the shortcut keys to skim the video forward and backward during playback:
@@ -64,7 +91,10 @@ If you’re watching videos on YouTube mobile app, you can use double-tap on the
 Long press the Video Player and swipe right will navigate the video forward; and long press the video player and wwipe left will navigate the video backward.
 
 <!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Category 3: Manage Playback Speed
 
@@ -76,7 +106,10 @@ This category contains information on increasing or decreasing the playback spee
 | 'SHIFT' + ',' (Comma)  | Decrease playback speed |
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Category 4: Managing the Captions
 
@@ -90,9 +123,6 @@ This category talks about managing the video captions using the shortcut keys:
 | '-' (Minus Key)    | Reduce the font size of the captions (Minus key on the Numpad isn't supported)                                       |
 | '+' (Plus Key)     | Increase the font size of the captions (Plus key on the Numpad isn't supported)                                      |
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Category 5: Managing the Audio Video
 
 This category shows the shortcut keys to manage audio for a YouTube video:
@@ -117,9 +147,6 @@ Double press F/T/I on the keyboard will exit the full-screen/theater model/indep
 
 If you are watching video on YouTube mobile app, you can swipe up the video slightly to enter the full screen mode, and swipe down the video slightly to exit the full screen.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Category 7: Viewing 360o/VR Videos
 
 In this category, the navigation and management of shortcut keys for 360o and Virtual Reality (VR) view are discussed:
@@ -132,6 +159,12 @@ In this category, the navigation and management of shortcut keys for 360o and Vi
 | '-' (Minus Key on Keyboard) | Decrease font size                                    |
 | '+' (Plus Key on Keyboard)  | Increase font size                                    |
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115917/19272" target="_top" id="2115917">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115917" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115917/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Bonus: How to Get the YouTube Shortcut List with One-Click
 
 In this section, you will learn how to pull up the list of important YouTube shortcuts by pressing merely one key:
@@ -144,6 +177,12 @@ So, when you press the Shift+? on YouTube, you will see a full list of shortcuts
 
 ![YouTube Shortcut List](https://images.wondershare.com/filmora/article-images/youtube-keyboard-shortcuts-list.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Conclusion**
 
 Watching videos on YouTube is fun, and you can enjoy the clips, movies, tutorials, etc. more if you are well-aware of the important shortcut keys. This not only helps you navigate through the videos faster but also gives you relief from the additional efforts that you would otherwise have to make while grabbing the mouse, and then looking for and using the correct option.
@@ -154,9 +193,6 @@ As one of the most popular video editing software among YouTubers, Filmora provi
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.

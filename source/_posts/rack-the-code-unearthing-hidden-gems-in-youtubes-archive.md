@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Crack the Code  Unearthing Hidden Gems in YouTube's Archive\""
-date: 2024-09-02T03:12:30.479Z
-updated: 2024-09-03T03:12:30.479Z
+date: 2024-09-06T13:03:09.378Z
+updated: 2024-09-07T13:03:09.378Z
 tags:
   - ai video
   - ai youtube
@@ -46,6 +46,18 @@ If you search on YouTube and come across an age-restricted video, you will be as
 
 ![age restricted video on youtube](https://images.wondershare.com/filmora/article-images/age-restricted-videos-on-youtube.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How To Find Unlisted YouTube Videos
 
 Now that we've learned about the four types of YouTube content, let's discuss how you can find unlisted YouTube videos:
@@ -61,12 +73,18 @@ However, the following workaround can help you watch these YouTube videos withou
 ![unlisted videos](https://images.wondershare.com/filmora/article-images/using-the-unlisted-videos-website-to-see-hidden-videos.png)
 
 <!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 **Step 2:** Use the search bar at the top of your screen to search for other people's YouTube playlists. You can also click the **"All Video"** or **"Random Videos"** option to find the hidden content of a user.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
+<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
+  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### How To See Unlisted Videos on My YouTube Channel?
 
@@ -77,7 +95,10 @@ To see your unlisted videos on your YouTube channel, do the following steps in s
 ![youtube channel dashboard](https://images.wondershare.com/filmora/article-images/accessing-youtube-studio-to-see-unlisted-videos.png)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 **Step 2**: In the next step, tap/ click the **"Content"** tab and tap/click the **"Funnel"** icon at the top of the video list to access the visibility options.
 
@@ -91,22 +112,19 @@ To see your unlisted videos on your YouTube channel, do the following steps in s
 ![unlisted videos on youtube](https://images.wondershare.com/filmora/article-images/changing-videos-visibility-to-see-unlisted-videos-on-youtube.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Since YouTube has marked the videos uploaded before 2017 as private as of July 2021, you can find your old unlisted videos under the **"Private"** list. To access it, choose **"Private"** as the visibility option.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
-<!-- affiliate ads end -->
 ### How To Find Unlisted YouTube Videos with Google
 
 Sometimes, unlisted YouTube videos appear on Google when someone shares the link to them on a public forum or website.
 
 To confirm this, open a browser on your computer or a mobile device, head to the Google website, and search for your query. With some luck, you can find these unlisted YouTube videos in the search results.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ## You May Want to Know: Why Are So Many Unlisted Videos Now Private?
 
 All unlisted videos uploaded to YouTube before January 2017 were switched to private. Therefore, if you have any older unlisted videos added to your Playlist or embedded on your website, you won't be able to access them now.

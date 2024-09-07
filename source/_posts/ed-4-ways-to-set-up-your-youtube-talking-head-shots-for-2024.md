@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 4 Ways To Set Up Your YouTube Talking-Head Shots for 2024\""
-date: 2024-09-02T03:11:30.812Z
-updated: 2024-09-03T03:11:30.812Z
+date: 2024-09-06T13:03:10.395Z
+updated: 2024-09-07T13:03:10.395Z
 tags:
   - ai video
   - ai youtube
@@ -14,12 +14,30 @@ keywords: "\"YouTube Talk Shots Setup,Headshot for YouTube Videos,Professional T
 thumbnail: https://thmb.techidaily.com/99bb08ac4320921b1ffab3e5a5166b4c117aac2cf8ab3a2d0b2277eb6b26d486.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="1983473">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 4 Ways To Set Up Your YouTube Talking-Head Shots
 
 # 4 Ways To Set Up Your Talking-Head Shots For YouTube
 
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137413/7443" target="_top" id="2137413">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137413" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137413/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### Richard Bennett
 
  Oct 26, 2023• Proven solutions
@@ -31,17 +49,43 @@ A big part of being a YouTuber involves talking to the camera. How you set up yo
 | Table of Contents [1\. Close Quarters Wide-Angle Vlog Set-Up](#Close-Quarters-Wide-Angle-Vlog-Set-Up)[2\. Medium Vlog Set-Up](#Medium-Vlog-Set-Up)[3\. Two Person Vlog Set-Up](#Two-Person-Vlog-Set-Up)[4\. Long Teleprompter Vlog Set-Up](#Long-Teleprompter-Vlog-Set-Up) |
 | -------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Set Up Your Talking Heads Shots for YouTube Video \[Infographic\]
 
 We’ve summarized the key points about setting up talking head style video shots with the Infographic below. It is welcomed to share on social media.
 
 ![ Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<span id="1770776">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### 1.  Close Quarters Wide-Angle Vlog Set-Up
 
@@ -57,9 +101,6 @@ Objects and people that just make it into the sides of the frame will appear mor
 
 If you look closely into Sean’s eyes, you can also see a specular highlight in the shape of a circle. Many people like the way eyes look against a ring light.
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### 2.  Medium Vlog Set-Up
 
 If you have more space and want to shoot a more professional-looking talking-head shot with more realistic perspectives, a medium vlog set-up may be a better alternative for you.
@@ -74,9 +115,6 @@ You can see from how even the background and couch looks across the entire camer
 
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 3.  Two Person Vlog Set-Up
 
 If your talking-head shot has got to include two people, you can use a similar set-up as the medium vlog set-up detailed above.
@@ -85,9 +123,6 @@ If you look back at the 39-second mark of deadmau5’s Masterclass trailer, you 
 
 With two people, though, you’ll want to set up your mic slightly differently. Rather than using a directional shotgun mic with a narrow area of sensitivity, you’ll want to use a directional mic with a wider area of sensitivity.
 
-<!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 4.  Long Teleprompter Vlog Set-Up
 
 If you want to read over a script but still make it appear like you’re looking straight into the camera, you’ll need to use a long teleprompter vlog set-up.
@@ -104,9 +139,6 @@ It is difficult to know whether the movement in his eyes is caused by not being 
 
 Looking to find the right lights for your video recording set? Check out our [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
-<!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
-<!-- affiliate ads end -->
 ## Tips for Making a Talking Head Video Better
 
 To make a talking-head video more interesting, you can add some background music to the video, apply some interesting texts or elements. [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) has built-in royalty-free music tracks and sound effects as well as [text templates](https://tools.techidaily.com/wondershare/filmora/download/), filters and motivating elements. Download the free trial version below and release your creativity.
@@ -115,9 +147,6 @@ To make a talking-head video more interesting, you can add some background music
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.

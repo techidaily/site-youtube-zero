@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, A Beginner's Tutorial  How to Insert On-Screen Dialogue in Video Formats\""
-date: 2024-09-02T03:07:48.426Z
-updated: 2024-09-03T03:07:48.426Z
+date: 2024-09-06T13:03:14.406Z
+updated: 2024-09-07T13:03:14.406Z
 tags:
   - ai video
   - ai youtube
@@ -20,6 +20,12 @@ thumbnail: https://thmb.techidaily.com/fbaa6ca73b5c5357b713260d15cd44fa4ef0636a4
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### Richard Bennett
 
  Mar 27, 2024• Proven solutions
@@ -40,6 +46,12 @@ There are plenty of Text effects built in Filmora, you can apply motions and ani
 
 ![ Add Text to Video ](https://images.wondershare.com/filmora/article-images/filmora-advanced-text-edit-interface.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 * Open up Filmora and drag a clip into your timeline. Then, go to   **Text/Credit.**
 * Find a style that you like and drag it into your timeline where you want your text to appear. Make sure your text is selected in your timeline and click the   **Advanced Text Editing** icon, which looks like a pen and paper.
 * Insert your own words and drag your text to where you want it on the screen. Adjust the size by dragging the blue squares which surround your text.
@@ -48,6 +60,12 @@ There are plenty of Text effects built in Filmora, you can apply motions and ani
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115913/19272" target="_top" id="2115913">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115913" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115913/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [Check the detailed steps of how to add text to video in Filmora.](https://tools.techidaily.com/wondershare/filmora/download/)
 
 #### 2\.  Use Windows Movie Maker
@@ -69,6 +87,18 @@ For the step by step tutorial of adding text to YouTube video, check [How to Add
 
 ![ Add Text to Video ](https://images.wondershare.com/filmora/article-images/add-text-in-vegas-pro-2.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983549">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 * Launch Sony Vegas Movie Studio.
 * Click the View Menu then select Media Generators.
 * Choose the generator that you want to use.
@@ -98,6 +128,18 @@ Of course, you can only add and edit texts and captions to the video under your 
 
 ![ Add Text to Video ](https://images.wondershare.com/filmora/article-images/add-text-youtube-video-editor.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1975555">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 While YouTube may have already created the subtitles automatically for your video with its speech recognition technology. If it does, you will see something like Published: English (Automatic) to the right of your video. If the automatically generated subtitles is not correct, you can edit it to improve the accuracy. Select the line that needs modification to make the edits.
 
 If there is no auto-subtitles, you can choose from 3 ways to add subtitles and closed captions to the video: Upload a file, Transcribe and auto-sync and create new subtitles or CC.
@@ -121,7 +163,10 @@ When you make use of this editor, you cannot shorten the clips for music. Moreov
 From 20th September 2017 users will no longer be able to use the complementary editing suite. Check the best [YouTube video editor alternatives](https://tools.techidaily.com/wondershare/filmora/download/) from this complete guide to find out more YouTube video editor alternatives if you want to add text to video with more features and customization.
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503"><img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="" width="1456" height="180"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2135473/26400" target="_top" id="2135473">
+  <img src="//a.impactradius-go.com/display-ad/26400-2135473" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135473/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Top 3 Tips for Adding Text to YouTube Videos
 
@@ -145,14 +190,8 @@ Try to use text to emphasize only the most important things you say.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.

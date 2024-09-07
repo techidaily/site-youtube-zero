@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  YouTube SEO 101  Boost Your Video's Visibility\""
-date: 2024-09-02T03:12:44.928Z
-updated: 2024-09-03T03:12:44.928Z
+date: 2024-09-06T13:03:09.151Z
+updated: 2024-09-07T13:03:09.151Z
 tags:
   - ai video
   - ai youtube
@@ -14,6 +14,18 @@ keywords: "Video SEO Basics,YouTube Ranking Tips,Video Visibility Strategies,Opt
 thumbnail: https://thmb.techidaily.com/5cce1c00c454a1f4ada87360e66f8d07572afee6c8228611ca9a5690c1d2c490.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="1993654">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## YouTube SEO 101: Boost Your Video's Visibility
 
 # The 12-step YouTube SEO Guide for Beginners Who Want More Views
@@ -38,6 +50,12 @@ Ready?
 
 Let’s Go!
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115928/19272" target="_top" id="2115928">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115928" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 1: Research Your Topic and Competitors
 
 [Come up with a video idea](https://tools.techidaily.com/wondershare/filmora/download/). Can’t come up with one? Let me help. I heard you can make a mean scrambled egg, why don’t you show the world how you do it?
@@ -52,6 +70,12 @@ Do a quick search on YouTube to see what videos already exist on your topic.
 
 ![Find Related Videos Sample](https://images.wondershare.com/filmora/article-images/find-related-videos.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Uh oh… your video will be competing against celebrities like Gordon Ramsay and Jamie Oliver.
 
 Okay, don’t panic! There is a fantastic quote, credited to bestselling author, [Jon Acuff](https://acuff.me/), that goes:
@@ -84,12 +108,24 @@ Once you have an idea of what people are searching for related to your topic, yo
 
 ![Find Keywords with Ubersuggest](https://images.wondershare.com/filmora/article-images/keyword-seo-tool-ubersuggest.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 This app gives you a whole list of long-tail keywords, which are 3-4-word phrases which is specific to what your video is about.
 
 Some you will use to dig deeper in and other you will deem irrelevant to your videos. A good way of determining the value of a keyword is by the stats the application shows.
 
 ![ Keywords in Ubersuggest](https://images.wondershare.com/filmora/article-images/find-keywords-with-ubersuggest.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ####  
 
 #### How to Read Keyword Suggestions
@@ -190,6 +226,12 @@ For example, in this scrambled egg video you are making, at the end you can ask,
 
 ![Encourage Viewers to Engage in Video](https://images.wondershare.com/filmora/article-images/encourage-viewers-to-engage-min.gif)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115949/19272" target="_top" id="2115949">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115949" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115949/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Who knows, who will respond.
 
 #### Step 9: Design a Thumbnail
@@ -200,6 +242,18 @@ Your viewers will absolutely judge your video by its cover so it’s important t
 
 ![Design a Thumbnail](https://images.wondershare.com/filmora/article-images/design-youtube-video-thumbnail.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983474">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Take a look at your competition. If they all look the same, do something different. Add text or a human face (preferably yours) to evoke emotion, as viewers are more likely to click into a video if they see an expressive image.
 
 Don’t want to pay money for a photo editing software such as Photoshop?
@@ -208,18 +262,12 @@ You can use an online service called [Canva](https://www.canva.com/)or download 
 
 Want to know more thumbnail maker? Check our picks of the [best free YouTube thumbnail makers](https://tools.techidaily.com/wondershare/filmora/download/).
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
-<!-- affiliate ads end -->
 ## Part 3: Publishing With Attention to Optimization
 
 Well done finishing the video! You are almost there… but not there yet.
 
 ![XDyocwuGRiSptxueJZ5aokKqKt-JXMbX](https://images.filmora.io/5/XDyocwuGRiSptxueJZ5aokKqKt-JXMbX.gif)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
-<!-- affiliate ads end -->
 Come on, keep going!
 
 #### Step 10: Fill Out Your Videos Assets
@@ -228,9 +276,6 @@ The video is done, the thumbnail is designed, and you have all your title, descr
 
 ![Fill Out Your Videos Assets](https://images.wondershare.com/filmora/article-images/creator-stuido-fill-out-video-assets.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### Step 11: Add Transcripts
 
 In addition to making your content accessible for people who don’t want to or can’t listen to the audio in your video, adding subtitles and closed captions will help YouTube understand the spoken content in your video.
@@ -255,16 +300,10 @@ Besides considering YouTube SEO, you should make a good YouTube video as well. F
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 Do you have any questions about SEO? Please leave us a comment below.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
