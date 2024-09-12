@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Make Money on YouTube Without Ads for 2024"
-date: 2024-09-06T13:14:45.460Z
-updated: 2024-09-07T13:14:45.460Z
+date: 2024-09-11T01:48:34.910Z
+updated: 2024-09-12T01:48:34.910Z
 tags:
   - ai video
   - ai youtube
@@ -40,18 +40,26 @@ Over thousands of hours of content are uploaded on YouTube every day and people 
 
 [YPP enables YouTubers to make money from an advertisement](https://www.filmora.io/community-blog/youtube-monetization---the-ultimate-guide-to-ad-revenue-422.html)that appears before or during their videos.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<span id="1374820">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
+<span id="1977020">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## **How Much Money Can YouTubers Make from Ads?**
 
 The answer to this question varies depending on the channel and the audience, as YouTubers don’t make money for views but rather from how often people engage with the ads. If a viewer watches more than 30 seconds of the ad or clicks it, then the YouTuber will make money.
@@ -100,12 +108,6 @@ Here are some examples of products and services you can offer:
 
  ![YouTuber Jake Paul ](https://images.wondershare.com/filmora/article-images/jack-paul1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 _YouTuber, Jake Paul uses eCommerce platform_ [_Fanjoy_](https://fanjoy.co/collections/)_to sell his merch._
 
 #### **Services:**
@@ -120,12 +122,20 @@ _YouTuber, Jake Paul uses eCommerce platform_ [_Fanjoy_](https://fanjoy.co/colle
 
  ![YouTuber Sunny Lenarduzzi](https://images.wondershare.com/filmora/article-images/sunny-lenarduzzi2.jpg)
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123479/16836" target="_top" id="2123479">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123479" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123479/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 _YouTuber and entrepreneur, Sunny Lenarduzzi uses YouTube as a platform to get clients for her consulting business._
 
 #### **How to Sell a Product or Service on YouTube**
@@ -156,9 +166,43 @@ The video is over 9 minutes long and not once does he tell his audience to buy a
 
 ![link in the description box](https://images.wondershare.com/filmora/article-images/link-in-description-box4.jpg)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 **The YouTube Card:**
 
 ![youtube card tutorial](https://images.wondershare.com/filmora/article-images/youtube-card-tutorial5.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1977032">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ![youtube card details](https://images.wondershare.com/filmora/article-images/youtube-card-details6.jpg)
 
@@ -168,12 +212,26 @@ You can add one or multiple cards to direct viewers to your website or to anothe
 
 **![call to action button](https://images.wondershare.com/filmora/article-images/call-to-action-button7.jpg)**
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
+<span id="2127886">
+					<video width="576" height="1024" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 Once the viewer is on your website, make sure the path is apparent as well. Have a clear call to action somewhere on your website. This is where your viewers become customers.
 
 #### **But What if You Don’t Have a Product Or Service to Sell Yet?**
@@ -185,6 +243,26 @@ Lilly Singh did not start a YouTube channel to sell her book, [_How to Be a Baws
  As you [grow your audience](https://www.moneycrashers.com/get-more-youtube-subscribers-increase-video-views/) you will find that there will be a demand for certain products or services that don’t already exist. This is where you put on your entrepreneur hat and think of something that your audience will pay money for and make it happen. Odds are, when it happens, it wouldn’t even be a mystery, your audience will tell you to make or supply it.
 
 For example, [Remi Cruz](https://www.youtube.com/watch?v=Uke6eXzgjQQ), a YouTuber with over 2.2 million subscribers. Remi created a beauty brand and DIY face mask, [Honey Pop](https://shophoneypop.com/), which could only have happened after taking the time to understand her supportive audience.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1770544">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## **2\. Affiliate Marketing:**
 
@@ -198,12 +276,6 @@ The average affiliate commission rate is between 5% to 30%, with a lot of variab
 
 ![affiliate links](https://images.wondershare.com/filmora/article-images/affiliat-link8.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 _Travel YouTuber,_ [_Sorelle Amore_](https://www.youtube.com/user/SorelleIAm)_’s affiliate links to her vlogging gears._
 
  Keep in mind that people are most likely going to take recommendations from people they trust. You wouldn’t buy a computer from a nutritionist and you wouldn’t buy vitamins from a gamer, so consider what you are an expert in and what products you have the most authority to speak about.
@@ -242,12 +314,20 @@ Here is the list of 4 popular affiliate marketing networks:
 
 You can also partner with brands directly as many of them, such as [Sephora](https://www.sephora.com/affiliates)and [Canon](https://shop.usa.canon.com/shop/en/catalog/affiliate-program), will have their own affiliate program.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## **3\. Brand Deal or Sponsorships:**
 
 Selling out, that is often the thought when we hear creators getting brand deals and sponsorships, but that stigma is unfounded if the brand and the content are properly aligned. As your channel grows, you will begin to recognize brands that match your values — and the values of your viewers — and those that don’t.
@@ -257,6 +337,20 @@ Today, more and more brands are collaborating with YouTube creators, because [cr
 In an ad for Beats by Dre’s #BuiltForBosses campaign, YouTuber [Liza Koshy outperformed](https://www.wsj.com/articles/a-self-made-star-shows-one-way-to-crack-the-gen-z-code-1511719567?mod=e2tw) the likes of Tom Brady and DJ Khaled.
 
 ![perform the likes](https://images.wondershare.com/filmora/article-images/perform-the-likes9.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 While it does take significant effort on YouTube to acquire a following, it is possible for a YouTube channel with 1,000 subscribers to get a brand deal. Getting the buy-in from brands is a numbers game, and according to [Video Creators](https://videocreators.com/how-to-get-started-with-brand-deals-on-youtube/), the minimal number of views per video shouldn’t be lower than 2,000 if this is the path you want to head in.
 
@@ -268,12 +362,6 @@ If you want to get a brand deal and become an influencer on YouTube, then you wi
 
 ![famebit brand](https://images.wondershare.com/filmora/article-images/famebit-brand10.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### **How Influencer Marketing Platforms Like Famebit Works**
 
 When you sign up for Famebit or other influencer marketing platforms you have an opportunity to get in front of brands who are seeking influencers to share their product or service.
@@ -289,20 +377,22 @@ Steps to getting a brand deal:
 
  Unlike celebrity marketing, YouTube creators have shown brands over the years that they are inventive and clever with how they can present the brand to the audience to drive the best results. This type of independence is what makes YouTube influencer marketing special.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-##  
+
+
+
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
+##  
+
 ## **4\. Crowdfunding:**
 
 If you are creating valuable content and have a loyal following, you can start thinking about crowdfunding. It doesn’t take stardom to start asking for donations, pledge, or support from your fans. There is a demand for quality content and if you are creating something of value, even on a free service like YouTube, people will happily pay to support it.
@@ -337,12 +427,6 @@ If you have a pie in the sky goal, you aren’t going to fully leverage the mess
 
 When it comes to crowdfunding for YouTubers, [Patreon](https://www.patreon.com/)is the platform of choice. While other platforms such as Kickstarter or GoFundMe are focused on entrepreneurial pursuits, large projects, or charitable causes, Patreon is designed to support creatives and reward and incentivize donors.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Key Takeaways:**
 
 There are many ways to make money off of YouTube, I encourage you to try a few of these different strategies and see how they perform and which one suits your channel and your audience the best.
@@ -356,18 +440,20 @@ Got questions about making money on YouTube? Leave a comment below. We love to h
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+
+
+
+
 <!-- affiliate ads begin -->
-<span id="1975503">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.

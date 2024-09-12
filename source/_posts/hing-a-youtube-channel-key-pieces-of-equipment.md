@@ -1,7 +1,7 @@
 ---
 title: "\"Launching a YouTube Channel  Key Pieces of Equipment\""
-date: 2024-07-13T01:03:36.288Z
-updated: 2024-07-14T01:03:36.288Z
+date: 2024-09-11T01:44:17.618Z
+updated: 2024-09-12T01:44:17.618Z
 tags:
   - ai video
   - ai youtube
@@ -38,6 +38,20 @@ The smartest way to get started is to go through a list of **necessary equipment
 * [Tripods and Camera Stands](#tripod)
 * [Smartphone Camera Gear](#phone)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115929/19272" target="_top" id="2115929">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115929" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115929/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## YouTube Cameras
 
 **The short version:** Use whatever you already have, even if it's your phone or webcam. It's nice to have sharp, fine-tuned, 4K footage, but viewers will forgive lower visual quality if your content is good.
@@ -50,6 +64,20 @@ On one end of the spectrum, you have basic smartphone cameras and web cameras, w
 
 If you already have a DSLR camera then it’s a good idea to familiarize yourself with it. You have far more freedom to adjust the settings and achieve a professional look for your videos with a DSLR, but that does mean it’ll take some time to become an expert at using it. Ultra-high resolution is not required for YouTube, but it certainly won’t hurt to have additional sharpness and more detail in the scene. If you’re shopping for a DSLR, look for one with a flip screen that allows you to quickly check what your viewers see.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## YouTube Microphone and Audio
 
 **The short version:** Audio quality is extremely important. If you can buy either a new camera or an external microphone, but not both, it might be better to go for the microphone. [Click here for advice on upping your audio quality without an external microphone.](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -59,6 +87,20 @@ If you already have a DSLR camera then it’s a good idea to familiarize yoursel
 Again, most YouTube video makers have a limited budget at their disposal, so professional microphones are mostly off the table. However, investing in a directional microphone (‘shotgun mic’) that can pick up your voice clearly and without background noise is certainly a smart move. Such microphones can be pointed towards you while you speak, and since most YouTubers sit still while doing their shows there won’t be too much need for in-session adjustments.
 
 If you’re not ready to invest in a shotgun mic, you can also find very inexpensive (often under $20) LAV mics. These small microphones can be pinned to your shirt, which allows them to record very clear dialogue because they’re so close to your mouth.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123469/16836" target="_top" id="2123469">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123469" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123469/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Lights for YouTube
 
@@ -71,6 +113,20 @@ Sometimes, it is enough to film near windows and/or bring more household lamps i
 If you have the budget available to get some lighting equipment, you can find softbox lights or LED panel lights available fairly inexpensively online. Softbox lights are great because they provide even, diffused, light.
 
 Another useful piece of lighting equipment to have is a reflector. A reflector is usually a piece of white, silver, or gold fabric stretched over a frame. You can use it to bounce light from one light source back towards yourself (this is a great way to fill shadows cast by your main light). Reflectors tend to be inexpensive, but you can also use white cardboard or tinfoil in place of purchasing a reflector.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Tripods and Camera Stands
 
@@ -86,6 +142,20 @@ Even if you are using a phone or a webcam to record YouTube videos, you should c
 
 ![Smartphone Camera Gear](https://images.wondershare.com/filmora/article-images/smartphone-camera-gear.jpg)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 **The short version:** There's a lot of gear out there designed with smartphone photos and videos in mind, including clip-on lenses, tripod mounts, phone-mounted LED lights, and inexpensive microphones that plug into the audio jack.
 
 **The long version:** Recording your videos with a mobile phone can be a good decision. It all depends on the phone you have and the range of add-ons and apps that you complement it with. Almost every high-end model released in the past five years can shoot videos in 1080p or higher. Some can even produce 4K footage. If you perfect your smartphone filming technique, your YouTube videos could look as if they were made with pro equipment.
@@ -93,6 +163,20 @@ Even if you are using a phone or a webcam to record YouTube videos, you should c
 On the flip side, smartphone cameras typically perform poorly in low light. It is possible to download an app that lets you play around with settings to overcome this, but a phone-mounted LED light is probably a better solution. An external microphone might also be a necessity, but there are some good (inexpensive) options that can simply be plugged in through the headphone jack.
 
 Another common downside of smartphone cameras is that most of them use digital zoom, which is vastly inferior to optical zoom. If you intend to shoot anything that’s further away than a few feet, you need a clip-on lens that goes on top of the built-in camera. This inexpensive device will give you a lot of freedom to work in space, and allow you to make spectacular shots even without high-end YouTube equipment.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115949/19272" target="_top" id="2115949">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115949" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115949/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Equipment with Easy-to-Use Video Editor
 
@@ -121,6 +205,70 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+
+
+
+
+
+
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/ulinary-callings-innovative-naming-for-foodie-channels/"><u>[New] Culinary Callings Innovative Naming for Foodie Channels</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/slr-cameras-stand-against-mirrorless-for-videographers-for-2024/"><u>[New] DSLR Camera's Stand Against Mirrorless for Videographers for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/igh-ranking-videos-youtubes-everlasting-classics/"><u>[New] High-Ranking Videos YouTube’s Everlasting Classics</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-advanced-transitions-techniques-for-audios/"><u>[New] In 2024, Advanced Transitions Techniques for Audios</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-become-a-trending-sensation-with-these-effective-youtube-seo-strategies/"><u>[New] In 2024, Become a Trending Sensation with These Effective YouTube SEO Strategies</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-deciphering-how-t-series-earns-via-youtube/"><u>[New] In 2024, Deciphering How T-Series Earns via Youtube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-expert-tips-for-securing-top-tier-youtube-ad-campaigns-using-famebit/"><u>[New] In 2024, Expert Tips for Securing Top-Tier YouTube Ad Campaigns Using FameBit</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-unveiling-the-best-fb-movie-grabs-8-edition/"><u>[New] In 2024, Unveiling the Best FB Movie Grabs #8 Edition</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ey-audio-enhancement-tools-for-social-media-experts/"><u>[New] Key Audio Enhancement Tools for Social Media Experts</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-navigating-kinemasters-features-expert-tips-and-best-online-rivals/"><u>[New] Navigating KineMaster's Features Expert Tips & Best Online Rivals</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/treamline-your-social-media-youtube-to-fb-guide-2024/"><u>[New] Streamline Your Social Media YouTube to FB Guide 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-break-free-from-linearity-mastering-jump-cut-transitions/"><u>[Updated] 2024 Approved Break Free From Linearity Mastering Jump Cut Transitions</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-calculating-youtube-profits-instantly/"><u>[Updated] 2024 Approved Calculating YouTube Profits Instantly</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-how-to-fix-the-youtube-shorts-not-showing-up-issue/"><u>[Updated] 2024 Approved How to Fix the YouTube Shorts Not Showing Up Issue?</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-on-screen-caption-composer/"><u>[Updated] 2024 Approved On-Screen Caption Composer</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-supercharge-videos-download-premium-effs/"><u>[Updated] 2024 Approved Supercharge Videos - Download Premium Effs!</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-achieve-more-engagement-on-youtube-learn-the-best-thumbnail-size-for-2024/"><u>[Updated] Achieve More Engagement on YouTube Learn the Best Thumbnail Size for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-compreranly-assessing-ustream-with-equivalent-sites/"><u>[Updated] Compreranly Assessing Ustream with Equivalent Sites</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-fabricate-funny-images-on-giphy/"><u>[Updated] Fabricate Funny Images on Giphy</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-avoid-blandness-in-your-vids-top-recommended-youtube-thumbnail-heights/"><u>[Updated] In 2024, Avoid Blandness in Your Vids Top Recommended YouTube Thumbnail Heights</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-mastering-youtube-tagging-for-content-visibility/"><u>[Updated] In 2024, Mastering YouTube Tagging for Content Visibility</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-streamlining-your-youtube-editing-with-imovie-tools/"><u>[Updated] In 2024, Streamlining Your YouTube Editing with iMovie Tools</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-the-beginners-blueprint-for-youtube-gear/"><u>[Updated] In 2024, The Beginner's Blueprint for YouTube Gear</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-the-digital-pioneer-how-jake-paul-mastered-youtube/"><u>[Updated] In 2024, The Digital Pioneer How Jake Paul Mastered Youtube</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-from-periscope-to-pro-livestreaming-basics-for-ios-and-android/"><u>2024 Approved From Periscope to Pro Livestreaming Basics for iOS and Android</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-pioneering-a-dual-perspective-3-innovative-techniques-for-viewpoint-based-youtube-reactions/"><u>2024 Approved Pioneering a Dual Perspective 3 Innovative Techniques for Viewpoint-Based YouTube Reactions</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-revolutionize-viewing-with-these-6-ultimate-youtube-shorts-downloader-apps/"><u>2024 Approved Revolutionize Viewing with These 6 Ultimate YouTube Shorts Downloader Apps</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-the-premier-7-apps-transforming-mobile-video-streaming-on-youtube/"><u>2024 Approved The Premier 7 Apps Transforming Mobile Video Streaming on YouTube</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-tune-up-your-social-media-videos-for-maximum-impact/"><u>2024 Approved Tune Up Your Social Media Videos for Maximum Impact</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-unveiling-youtubes-top-tier-video-ad-creators-a-showcase/"><u>2024 Approved Unveiling YouTube's Top-Tier Video Ad Creators A Showcase</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-visionedit-pro/"><u>2024 Approved VisionEdit Pro</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-visualizing-creativity-to-perfection-with-magix-video-pro-x/"><u>2024 Approved Visualizing Creativity to Perfection with Magix Video Pro X</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ple-approach-to-youtube-statistics-review-for-2024/"><u>A Simple Approach to YouTube Statistics Review for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/airborne-cameras-clash-dji-inspire-vs-gopro-max/"><u>Airborne Cameras Clash DJI Inspire vs GoPro MAX</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/assemble-ppt-narratives-into-video/"><u>Assemble PPT Narratives Into Video</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ing-barriers-increasing-viewership-on-youtube/"><u>Breaking Barriers Increasing Viewership on YouTube</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-realme-c67-5g-by-drfone-android/"><u>Complete Review & Guide to Techeligible FRP Bypass and More For Realme C67 5G</u></a></li>
+<li><a href="https://facebook.techidaily.com/dive-into-the-depths-with-facebooks-new-policy-on-oculus-go-root-access/"><u>Dive Into the Depths with Facebook's New Policy on Oculus Go Root Access</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/tial-economic-education-top-15-youtube-picks/"><u>Essential Economic Education Top 15 YouTube Picks</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-the-effectiveness-of-amazonbasics-highly-secure-document-shredder-with-advanced-micro-cut-technology-a-thorough-review/"><u>Evaluating the Effectiveness of AmazonBasics' Highly Secure Document Shredder with Advanced Micro-Cut Technology: A Thorough Review</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-full-guide-on-mirroring-your-zte-nubia-flip-5g-to-your-pcmac-drfone-by-drfone-android/"><u>In 2024, Full Guide on Mirroring Your ZTE Nubia Flip 5G to Your PC/Mac | Dr.fone</u></a></li>
+<li><a href="https://discover-cloud.techidaily.com/introducing-winxvideos-smartai-cutting-edge-technology-for-advanced-frame-enrichment-and-ai-driven-interpolation/"><u>Introducing Winxvideo's SmartAI: Cutting-Edge Technology for Advanced Frame Enrichment and AI-Driven Interpolation</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/g-your-slides-come-alive-with-youtube-in-ppt/"><u>Making Your Slides Come Alive with YouTube in PPT</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/multilingual-mastery-selecting-best-global-movies/"><u>Multilingual Mastery: Selecting Best Global Movies</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-2024-approved-free-video-editing-software-with-split-screen-capability-online-and-offline/"><u>New 2024 Approved Free Video Editing Software with Split Screen Capability Online & Offline</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ue-optimization-leveraging-your-youtube-mobile-audience/"><u>Revenue Optimization Leveraging Your YouTube Mobile Audience</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/mlining-your-edit-with-jump-cut-tips-for-2024/"><u>Streamlining Your Edit with Jump Cut Tips for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/pate-sound-and-picture-youtubes-audio-editing-techniques-for-2024/"><u>Syncopate Sound and Picture YouTube's Audio Editing Techniques for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-entrepreneurs-handbook-quick-channel-creation-on-the-go-with-mobile-devices/"><u>The Entrepreneur's Handbook Quick Channel Creation on the Go with Mobile Devices</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/unlock-creative-expression-adding-descriptive-texts-to-your-tiktok-videos-for-2024/"><u>Unlock Creative Expression Adding Descriptive Texts to Your TikTok Videos for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/king-success-the-quintessential-youtube-video-strategies/"><u>Unlocking Success The Quintessential YouTube Video Strategies</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unveiling-the-future-of-user-assistance-with-mondlys-qanda-update/"><u>Unveiling the Future of User Assistance with Mondly’s Q&A Update</u></a></li>
+</ul></div>
 
 
 

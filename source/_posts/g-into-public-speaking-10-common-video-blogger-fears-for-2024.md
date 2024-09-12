@@ -1,7 +1,7 @@
 ---
 title: "\"Easing Into Public Speaking  10 Common Video Blogger Fears for 2024\""
-date: 2024-09-06T13:15:25.369Z
-updated: 2024-09-07T13:15:25.369Z
+date: 2024-09-11T01:48:34.187Z
+updated: 2024-09-12T01:48:34.187Z
 tags:
   - ai video
   - ai youtube
@@ -20,18 +20,6 @@ thumbnail: https://thmb.techidaily.com/3a6dbb861d55872fdf4ced41ee2862ae3932a3822
 
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983553">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Richard Bennett
 
  Oct 26, 2023• Proven solutions
@@ -44,26 +32,22 @@ When it comes to vlogging, it is your face, [voice](https://tools.techidaily.com
 
 ![Vlogging Fears](https://images.wondershare.com/filmora/article-images/vlogging-fear.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983472">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Below is a list of 10 of the most common fears people have with vlogging and ways to overcome them.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115920/19272" target="_top" id="2115920">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115920" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115920/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ### 1. Fear of Looking Stupid Talking To Your Camera
 
 It can be nerve-racking to talk to your camera in public, especially if your vlog set-up attracts a lot of attention (Casey Neistat’s famous rig consisting of a DSLR camera with a GorillaPod tripod and a Rode shotgun mic attached to it definitely attracts more attention than just your everyday smartphone). Despite a lot of vloggers suggesting that people don’t care as much as you think they care, it still is an activity that stands out, gets noticed, and creates curiosity, which is plenty to feel nervous about.
@@ -72,18 +56,26 @@ My advice is to start with shorter conversations with your camera in public and 
 
 As you continue to vlog in public more, you’ll become increasingly comfortable with it.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123474/16836" target="_top" id="2123474">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123474" border="0" alt="https://techidaily.com" width="300" height="50"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123474/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### 2. Fear of Being Judged by Others
 
 After uploading your vlog online, the next thing you might worry about is being judged and criticized by anonymous haters on the internet. No matter how perfectly you present yourself, this will happen. But you will be ok.
 
 You just need to be strongly grounded in your intrinsic worth and not take too seriously the judgments of those who don’t even know you. You can adjust your community settings on YouTube so that you have more control over others’ comments. But I suggest you just get used to others’ disapproval because it’s something that comes with putting yourself out there on such a public platform.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 3. Fear of Not Being Interesting Enough
 
 A lot of people fear that they aren’t interesting enough to watch. This fear stops many people from vlogging. Some people get around this self-doubt by focusing their content on something other than themselves. But people are so much more interesting than the tools and objects that they test out and review on YouTube. Even if you’re unable to secure the interest of the masses, there are bound to be a handful of people from all around the world who do find you interesting.
@@ -92,22 +84,44 @@ A lot of people fear that they aren’t interesting enough to watch. This fear s
 
 When you look at the vlogs of many of the top YouTubers, their lives appear so action-packed. It’s hard not to think that all vlogs are meant to be very stimulating. But if you believe that that is the standard for vlogs, you might either be discouraged and drop vlogging altogether or you might try too hard to schedule your life around getting stimulating vlog content. Neither is a good option. Face your fear of your audience getting bored and just go ahead and vlog your lifestyle just as it is.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983471">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ### 5. Fear of Losing Your Authenticity
 
 When you have the ability to control what others see, you may be tempted to present yourself and your life in the most likable way to avoid disapproval and rejection. But the further away from your true self that you fabricate your story, the more inauthentic you’ll feel. Embrace disapproval and rejection and understand that, no matter how perfectly you present yourself, you just can’t avoid disapproval and rejection. It’s going to happen no matter what! So you might as well present yourself just as you are.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ### 6. Fear of Your Production Not Being Good Enough
 
 Fearing that your production quality won’t measure up is another common fear that holds people back from vlogging. Just get started and put something together with the equipment and skills you already have. Loosen up a bit on your rigid high standards and experience for yourself that the consequences of doing your best with what you have are not so bad. You will develop your equipment and skills as you get more and more into vlogging.
@@ -118,12 +132,20 @@ Getting a lot of subscribers is a common end goal for many who go into vlogging.
 
 How can you know for sure that you won’t be wasting your time and effort trying? The truth is… you can’t know for sure. But dismissing all of your time and effort as a waste just because you’re not at the end yet will take away from the joy you could have with vlogging. Rather than focusing on getting big, focus on enjoying the process of vlogging.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123474/16836" target="_top" id="2123474">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123474" border="0" alt="https://techidaily.com" width="300" height="50"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123474/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ### 8. Fear of Being Distracted From the Moment
 
 Whether you’re vlogging or not, living in the present moment can already be a challenge with a smartphone. When something exhilarating happens, many of us feel compelled to pull out our phone to capture it, only to experience that fleeting moment through a small preview screen.
@@ -151,6 +173,20 @@ In post-production, you can use some video editing software to [delete unwanted 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 Richard Bennett
 

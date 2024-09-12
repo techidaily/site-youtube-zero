@@ -1,7 +1,7 @@
 ---
 title: "\"Uncomplicated Method  Fast Clearance of Online Discussions\""
-date: 2024-07-13T01:04:31.043Z
-updated: 2024-07-14T01:04:31.043Z
+date: 2024-09-11T01:43:21.487Z
+updated: 2024-09-12T01:43:21.487Z
 tags:
   - ai video
   - ai youtube
@@ -46,6 +46,20 @@ In this section, we will tell you how you can do it from your desktop.
 4. When you locate the comment, click on the three vertical dots on the right-hand side of the comment. From the drop-down list, click on Remove. The process is complete, and YouTube will remove your comment.
 
 You also have the option to report the comment or [hide the user from your channel](https://tools.techidaily.com/wondershare/filmora/download/).
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123471/16836" target="_top" id="2123471">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123471" border="0" alt="https://techidaily.com" width="234" height="60"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123471/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## How to Delete All YouTube Comments from Mobile?
 
@@ -103,6 +117,34 @@ To find your History from your desktop, you need to click on the three horizonta
 
 ![Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## How to Delete All Your Posted YouTube Comments?
 
 You can also delete all comments you ever posted on any YouTube video by hiding your channel. When you do this, you can hide your video content temporarily. But it will irreversibly erase all your comments throughout YouTube. If you are curious, read on to know how you can do it.
@@ -112,15 +154,57 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from [here](https://www.youtube.com/account%5Fadvanced).
 
 ![YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
 
 ![YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### Final Thoughts
 
@@ -149,6 +233,73 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+
+
+
+
+
+
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-leading-talents-top-instagram-hlv-constructors/"><u>[New] 2024 Approved Leading Talents Top Instagram HLV Constructors</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ssessing-your-video-streaming-needs-to-subscribe-or-not-to-subscribe-for-2024/"><u>[New] Assessing Your Video Streaming Needs To Subscribe or Not to Subscribe for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/reak-through-the-crowd-key-youtube-seo-strategies-to-rank-high/"><u>[New] Break Through the Crowd Key YouTube SEO Strategies to Rank High</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/hilling-yet-heating-top-5-winter-scenes-for-vids/"><u>[New] Chilling Yet Heating Top 5 Winter Scenes for Vids</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/issecting-youtube-chatter/"><u>[New] Dissecting YouTube Chatter</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/levating-gameplay-streaming-mastery-for-youtubers-for-2024/"><u>[New] Elevating Gameplay Streaming Mastery for YouTubers for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-how-to-start-a-channel-a-beginners-guide-to-reviewing-books-and-ebooks/"><u>[New] How To Start a Channel A Beginner's Guide to Reviewing Books & Ebooks</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/asterclass-in-time-the-top-10-youtube-channels-for-history-students/"><u>[New] Masterclass in Time The Top 10 YouTube Channels For History Students</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/he-journey-from-ad-revenue-to-bank-account-balance-for-2024/"><u>[New] The Journey From Ad Revenue to Bank Account Balance for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/he-producers-playbook-strategies-to-win-over-youtube-viewers-for-2024/"><u>[New] The Producer's Playbook Strategies to Win Over YouTube Viewers for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/he-secret-to-youtube-dominance-unveiled-by-creative-studio-insights/"><u>[New] The Secret to YouTube Dominance Unveiled by Creative Studio Insights</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/he-unlisted-conundrum-dissecting-non-indexed-youtube-videos-for-2024/"><u>[New] The Unlisted Conundrum Dissecting Non-Indexed YouTube Videos for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/npacking-history-with-youtube-student-edition-top-10/"><u>[New] Unpacking History with YouTube – Student Edition (Top 10)</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-engaging-youtube-summaries-with-tailored-templates/"><u>[Updated] 2024 Approved Engaging YouTube Summaries with Tailored Templates</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-optimizing-youtube-audio-speed-desktop-and-mobile-way/"><u>[Updated] 2024 Approved Optimizing YouTube Audio Speed - Desktop & Mobile Way</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-who-holds-sway-over-youtube-subscribers/"><u>[Updated] 2024 Approved Who Holds Sway Over YouTube Subscribers?</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-achieve-balance-and-vitality-top-10-premium-yoga-streams/"><u>[Updated] Achieve Balance & Vitality - Top 10 Premium Yoga Streams</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-collect-free-image-resources-via-top-4-online-stock-hubs-for-2024/"><u>[Updated] Collect Free Image Resources Via Top 4 Online Stock Hubs for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-filmora-tutorials-simple-steps-to-a-dynamic-youtube-subscribe-button-for-2024/"><u>[Updated] Filmora Tutorials Simple Steps to a Dynamic YouTube Subscribe Button for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-channel-your-earnings-effective-youtube-money-methods/"><u>[Updated] In 2024, Channel Your Earnings Effective YouTube Money Methods</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-lighting-tips-for-vlogging-how-to-light/"><u>[Updated] In 2024, Lighting Tips for Vlogging How to Light</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-mastering-the-art-of-selecting-free-music-for-videos/"><u>[Updated] In 2024, Mastering the Art of Selecting Free Music for Videos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-mastery-of-youtube-closings-insider-tips-and-resources/"><u>[Updated] In 2024, Mastery of YouTube Closings - Insider Tips and Resources</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-revolutionize-advertising-try-all-50-available-free-youtube-banners/"><u>[Updated] In 2024, Revolutionize Advertising – Try All 50 Available FREE YouTube Banners</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-strategies-to-prevent-account-suspension-on-youtube/"><u>[Updated] In 2024, Strategies to Prevent Account Suspension on YouTube</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-the-ultimate-path-to-stunning-hdr-portraits/"><u>[Updated] The Ultimate Path to Stunning HDR Portraits</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-zippyzoom-echoframe-capture-for-2024/"><u>[Updated] ZippyZoom EchoFrame Capture for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-how-to-effortlessly-convert-youtube-videos-online/"><u>2024 Approved How to Effortlessly Convert YouTube Videos Online</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-learn-the-easy-ways-to-turn-your-watching-experience-on-youtube-into-a-screencast-without-money/"><u>2024 Approved Learn the Easy Ways to Turn Your Watching Experience on YouTube Into a Screencast Without Money</u></a></li>
+<li><a href="https://location-fake.techidaily.com/3-ways-to-change-location-on-facebook-marketplace-for-lava-blaze-curve-5g-drfone-by-drfone-virtual-android/"><u>3 Ways to Change Location on Facebook Marketplace for Lava Blaze Curve 5G | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/benefits-of-upgrading-to-an-nvidia-rtx-graphics-cards/"><u>Benefits of Upgrading to an Nvidia RTX Graphics Cards</u></a></li>
+<li><a href="https://win11.techidaily.com/discovering-diverse-windows-operations-to-start-software/"><u>Discovering Diverse Windows Operations to Start Software</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-the-most-recent-geforce-940mx-nvidia-driver-for-enhanced-performance/"><u>Download the Most Recent GeForce 940MX NVIDIA Driver for Enhanced Performance</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ering-your-business-communication-google-meet-to-youtube-steps-for-2024/"><u>Empowering Your Business Communication Google Meet to YouTube Steps for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/experience-audio-magic-the-premier-list-of-dolby-atmos-movies-to-watch-from-the-comfort-of-your-couch/"><u>Experience Audio Magic: The Premier List of Dolby Atmos Movies to Watch From the Comfort of Your Couch</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/expert-endorsed-techniques-for-iphone-audio-retrieval-for-2024/"><u>Expert-Endorsed Techniques for iPhone Audio Retrieval for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/startup-to-stardom-with-youtube-seo-basics-for-2024/"><u>From Startup to Stardom with YouTube SEO Basics for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-oppo-a2-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Oppo A2? | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-from-fixed-frame-to-fluid-motion-live-photo-transformation/"><u>In 2024, From Fixed Frame to Fluid Motion Live Photo Transformation</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-guide-to-mirror-your-infinix-note-30-5g-to-other-android-devices-drfone-by-drfone-android/"><u>In 2024, Guide to Mirror Your Infinix Note 30 5G to Other Android devices | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-master-the-art-of-video-cuts-essential-tools-for-mac-users/"><u>In 2024, Master the Art of Video Cuts Essential Tools for Mac Users</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-mastering-virtual-meetings-expert-tips-for-using-zoom-win10/"><u>In 2024, Mastering Virtual Meetings Expert Tips for Using Zoom (Win10)</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/e-tips-for-maximizing-your-creator-studio-potential/"><u>Inside Tips for Maximizing Your Creator Studio Potential</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/ipogo-will-be-the-new-ispoofer-on-lava-agni-2-5g-drfone-by-drfone-virtual-android/"><u>iPogo will be the new iSpoofer On Lava Agni 2 5G? | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/learn-to-activate-picture-in-picture-viewing-on-iphones-youtube-app/"><u>Learn to Activate Picture-in-Picture Viewing on iPhone's Youtube App</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/mastering-microphone-trouble-in-counter-strike-2-with-easy-fixes-and-tips/"><u>Mastering Microphone Trouble in Counter-Strike 2 with Easy Fixes & Tips</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/navigating-new-worlds-top-10-steam-deck-games-to-play/"><u>Navigating New Worlds: Top 10 Steam Deck Games to Play</u></a></li>
+<li><a href="https://win11.techidaily.com/navigating-screen-snafus-with-sonic-frontiers-securing-smooth-play-on-w11/"><u>Navigating Screen Snafus with Sonic Frontiers - Securing Smooth Play on W11</u></a></li>
+<li><a href="https://extra-support.techidaily.com/pro-graphic-rigs-mastering-4k-titles-for-2024/"><u>Pro Graphic Rigs Mastering 4K Titles for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/smart-shopping-top-7-mirrorless-cameras-under-1000-for-2024/"><u>Smart Shopping Top 7 Mirrorless Cameras Under $1,000 for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/step-by-step-to-a-perfectly-arranged-youtube-queue/"><u>Step-by-Step to a Perfectly Arranged YouTube Queue</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/steps-to-reduce-windows-browser-process-count/"><u>Steps to Reduce Windows' Browser Process Count</u></a></li>
+<li><a href="https://games-able.techidaily.com/top-5-advantages-why-paid-mobile-gaming-is-superior/"><u>Top 5 Advantages: Why Paid Mobile Gaming Is Superior</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/unbeatable-deal-alert-asus-rog-zephyrus-g14-laptop-featuring-rtx-graphics-now-just-1099-at-best-buy/"><u>Unbeatable Deal Alert: Asus ROG Zephyrus G14 Laptop Featuring RTX Graphics Now Just $1099 at Best Buy</u></a></li>
+<li><a href="https://some-skills.techidaily.com/unleash-windows-11-potential-latest-apps-and-games-for-2024/"><u>Unleash Windows 11 Potential Latest Apps & Games for 2024</u></a></li>
+</ul></div>
 
 
 

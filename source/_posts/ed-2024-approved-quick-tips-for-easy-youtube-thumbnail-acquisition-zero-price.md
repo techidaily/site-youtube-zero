@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Quick Tips for Easy YouTube Thumbnail Acquisition – Zero Price!\""
-date: 2024-07-13T01:04:58.815Z
-updated: 2024-07-14T01:04:58.815Z
+date: 2024-09-11T01:41:50.562Z
+updated: 2024-09-12T01:41:50.562Z
 tags:
   - ai video
   - ai youtube
@@ -33,9 +33,49 @@ Here in this article, we will introduce the best 6 online tools available in the
 * [**6 Online Tools to Download YouTube Thumbnail for Free**](#part1)
 * [**Bonus Tips to Create a Clickable YouTube Thumbnail**](#part2)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1743243">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## **6 Online Tools to Download YouTube Thumbnail for Free**
 
 Knowing the importance of YouTube thumbnails, you might now be wondering where to download the thumbnails for free. Let us have a look at some of the tools that can help you download YouTube thumbnail for free.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1983475">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### 1. YouTube Thumbnail Image Tool
 
@@ -58,6 +98,20 @@ This online YouTube Thumbnail Downloader tool has a lot of features among which 
 
 ![youtube thumbnail downloader](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-downloader2.jpg)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 _Steps to Download:_
 
 * Copy the link of the youtube video you wish to generate the thumbnail
@@ -72,6 +126,20 @@ The image will be downloaded and saved to your device instantly. You can now use
 The Thumbnail Save Tool is also a free online tool which you can access from the browser of your Windows or Mac. It is a very simple tool that can generate thumbnails for HQ, HD, 1080P, and 4K videos instantly. Let us see how the thumbnail can be generated
 
 ![youtube thumbnail save tool](https://images.wondershare.com/filmora/article-images/thumbnail-save-tool3.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 _Steps to Download:_
 
@@ -97,11 +165,45 @@ _Steps to Download:_
 
 The thumbnail will be downloaded to your device for later use.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="701707">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### 5. Thumbnail Download Tool
 
 This thumbnail download tool allows generating thumbnails from video platforms like Dailymotion, Vimeo, Facebook, and YouTube. It is a free online tool that enables you to download the thumbnail of your video in the best quality. The tool can be accessed both on Windows and Mac OS without any issues. Let us see how the thumbnail can be downloaded for YouTube.
 
 ![download thumbnail tool](https://images.wondershare.com/filmora/article-images/download-thumbnail-tool5.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 _Steps to Download:_
 
@@ -118,6 +220,20 @@ Your thumbnail image is now ready to be used.
 The YouTube Thumbnail Downloader is an online tool that can help you to create thumbnails for your YouTube videos and blogs. This tool will help you to download full HD 1080\*720 images from YouTube for free, irrespective of the operative system you are using. Let us see how the thumbnail can be downloaded
 
 ![youtube thumbnail downloader](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-downloader6.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 _Steps to Download:_
 
@@ -156,6 +272,20 @@ It is not completely possible to deliver a message through a picture and hence t
 
 ![color hue](https://images.wondershare.com/filmora/article-images/color-hue7.gif)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115938/19272" target="_top" id="2115938">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115938" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115938/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 Image resource: Pinterest
 
 Analogous colors are the colors that appear next to each other on a color wheel
@@ -180,6 +310,20 @@ Getting the proper size and quality of a YouTube thumbnail is very important for
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2114267/17093" target="_top" id="2114267">
+  <img src="//a.impactradius-go.com/display-ad/17093-2114267" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114267/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -201,6 +345,82 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+
+
+
+
+
+
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-how-to-see-what-you-just-watched-on-facebook/"><u>[New] 2024 Approved How to See What You Just Watched on Facebook</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ulinary-cinematography-step-by-step-recipe-tutorials-for-2024/"><u>[New] Culinary Cinematography Step-by-Step Recipe Tutorials for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/esigning-a-memorable-youtube-sign-off-for-2024/"><u>[New] Designing a Memorable YouTube Sign-Off for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/irect-transfer-path-youtube-content-to-dailymotion-hub/"><u>[New] Direct Transfer Path YouTube Content to Dailymotion Hub</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ish-on-titles-crafting-captivating-cookery-channel-names/"><u>[New] Dish on Titles Crafting Captivating Cookery Channel Names</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ive-into-ios-screenshots-a-comprehensive-youtube-guide-for-2024/"><u>[New] Dive Into iOS Screenshots A Comprehensive YouTube Guide for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ffortless-methods-amp-up-your-yt-video-quality/"><u>[New] Effortless Methods Amp Up Your YT Video Quality</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ssential-insights-on-asmr-videos/"><u>[New] Essential Insights on ASMR Videos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ssential-tips-for-youtube-short-fixes/"><u>[New] Essential Tips for YouTube Short Fixes</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/inancial-foresight-select-youtube-stocks-hubs/"><u>[New] Financial Foresight Select YouTube Stocks Hubs</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/rom-free-to-paid-the-transition-to-youtubes-elite-service-for-2024/"><u>[New] From Free to Paid The Transition to YouTube's Elite Service for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/rom-virality-to-value-gauge-your-content-against-competing-craftsmen/"><u>[New] From Virality to Value Gauge Your Content Against Competing Craftsmen</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-gigglegadget-assistant/"><u>[New] GiggleGadget Assistant</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-decision-making-in-the-workplace-a-neurological-approach-to-efficacy-and-ethics/"><u>[New] In 2024, Decision-Making in the Workplace A Neurological Approach to Efficacy and Ethics</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-expert-analysis-of-the-latest-video-show-app-24-release/"><u>[New] In 2024, Expert Analysis of the Latest Video Show App '24 Release</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-perfecting-your-on-air-presence-youtube-and-twitch-streaming-through-obs/"><u>[New] In 2024, Perfecting Your On-Air Presence YouTube & Twitch Streaming Through OBS</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/evolutionize-your-mind-best-15-tech-and-science-channels/"><u>[New] Revolutionize Your Mind Best 15 Tech & Science Channels</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/tand-out-on-youtube-logo-tips-for-visibility/"><u>[New] Stand Out on YouTube Logo Tips for Visibility</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/he-art-of-screenshots-iphoneipad-video-recordings-explained-for-2024/"><u>[New] The Art of Screenshots IPhone/iPad Video Recordings Explained for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nveiling-the-art-of-personal-branding-mastery/"><u>[New] Unveiling the Art of Personal Branding Mastery</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-worlds-best-short-videos-download-now-free/"><u>[New] World's Best Short Videos – Download Now! (Free)</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-audio-mastery-your-guide-to-youtube-soundtracking-for-2024/"><u>[Updated] Audio Mastery Your Guide to Youtube Soundtracking for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-cutting-edge-editing-techniques-youtube-and-comparable-tools/"><u>[Updated] Cutting-Edge Editing Techniques YouTube & Comparable Tools</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-evaluating-whether-your-video-consumption-needs-a-subscription-boost/"><u>[Updated] In 2024, Evaluating Whether Your Video Consumption Needs a Subscription Boost</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-how-to-use-obs-with-zoom/"><u>[Updated] In 2024, How to Use OBS with Zoom</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-paving-the-way-for-individuality-in-the-digital-age-your-youtube-journey/"><u>[Updated] In 2024, Paving the Way for Individuality in the Digital Age Your YouTube Journey</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-the-ultimate-toolkit-for-youtube-marketers-banner-mastery-guide/"><u>[Updated] In 2024, The Ultimate Toolkit for YouTube Marketers Banner Mastery Guide</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-10-pro-ways-to-upgrade-your-twitch-broadcast-experience/"><u>2024 Approved 10 Pro Ways to Upgrade Your Twitch Broadcast Experience</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-achieving-youtube-excellence-with-gamers-channel-graphics/"><u>2024 Approved Achieving YouTube Excellence with Gamers' Channel Graphics</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-starting-from-scratch-on-youtube-channel-creation-and-monetization-basics/"><u>2024 Approved Starting From Scratch on Youtube Channel Creation and Monetization Basics</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-unboxing-youtube-shorts-music-hacks-for-viral-scenes/"><u>2024 Approved Unboxing YouTube Shorts Music Hacks for Viral Scenes</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/e-video-editing-programs-that-work-flawlessly-for-2024/"><u>7 Free Video Editing Programs That Work Flawlessly for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ving-excellence-in-work-and-online-content/"><u>Achieving Excellence in Work and Online Content</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/best-ways-to-bypass-icloud-activation-lock-from-iphone-13ipadipod-by-drfone-ios/"><u>Best Ways to Bypass iCloud Activation Lock from iPhone 13/iPad/iPod</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ing-a-course-to-success-understanding-youtube-income-for-2024/"><u>Charting a Course to Success Understanding YouTube Income for 2024</u></a></li>
+<li><a href="https://driver-install.techidaily.com/confident-windows-10-logitech-webcam-updater/"><u>Confident Windows 10 Logitech Webcam Updater</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ing-a-must-see-list-of-youtubes-top-makeup-talent/"><u>Curating a Must-See List of YouTube's Top Makeup Talent</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/digital-decision-making-choosing-the-best-cropping-tool/"><u>Digital Decision Making Choosing the Best Cropping Tool</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/vering-the-top-5-smarter-url-lengtheners-for-youtube-for-2024/"><u>Discovering the Top 5 Smarter URL Lengtheners for YouTube for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/rful-follows-top-food-vloggers-to-track-for-2024/"><u>Flavorful Follows Top Food Vloggers to Track for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-pc-screen-to-tecno-camon-20-pro-5g-phones-drfone-by-drfone-android/"><u>How to Mirror PC Screen to Tecno Camon 20 Pro 5G Phones? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-teleport-your-gps-location-on-apple-iphone-11-pro-max-drfone-by-drfone-virtual-ios/"><u>How To Teleport Your GPS Location On Apple iPhone 11 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-can-i-unlock-my-apple-iphone-14-pro-after-forgetting-my-pin-code-by-drfone-ios/"><u>In 2024, How Can I Unlock My Apple iPhone 14 Pro After Forgetting my PIN Code?</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-change-your-apple-iphone-15-pro-max-apple-id-on-macbook-by-drfone-ios/"><u>In 2024, How To Change Your Apple iPhone 15 Pro Max Apple ID on MacBook</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-realme-11-pro-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Realme 11 Pro to Other Android Devices Devices? | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-quick-steps-to-validate-your-youtube-login/"><u>In 2024, Quick Steps to Validate Your YouTube Login</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-recommended-best-applications-for-mirroring-your-htc-u23-screen-drfone-by-drfone-android/"><u>In 2024, Recommended Best Applications for Mirroring Your HTC U23 Screen | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-the-ultimate-guide-for-effective-youtubers-game-sessions/"><u>In 2024, The Ultimate Guide for Effective YouTubers' Game Sessions</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-transform-your-youtube-views-into-profits-instantly/"><u>In 2024, Transform Your YouTube Views Into Profits Instantly</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/lullabies-of-relaxation-prime-asmr-talents/"><u>Lullabies of Relaxation Prime ASMR Talents</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ring-the-art-of-defeating-youtube-short-issues-for-2024/"><u>Mastering the Art of Defeating YouTube Short Issues for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ize-visual-impact-on-youtube-adding-watermarks-and-logo-to-media-content/"><u>Maximize Visual Impact on YouTube Adding Watermarks & Logo to Media Content</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/no-roku-no-problem-watch-the-roku-channel-through-various-non-roku-methods/"><u>No Roku? No Problem! Watch the Roku Channel Through Various Non-Roku Methods</u></a></li>
+<li><a href="https://extra-information.techidaily.com/pulse-of-persuasion-adding-dynamic-text-to-insta-stories/"><u>Pulse of Persuasion Adding Dynamic Text to Insta Stories</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/1723212279696-quick-fixes-for-your-non-functioning-mac-webcam-simple-solutions/"><u>Quick Fixes for Your Non-Functioning Mac Webcam – Simple Solutions</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/the-best-virtual-playground-for-ps3-games-on-windows-pcs/"><u>The Best Virtual Playground for PS3 Games on Windows PCs</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/the-ultimate-tutorial-on-leveraging-dall-e-within-chatgpt-4-for-custom-ai-imagery/"><u>The Ultimate Tutorial on Leveraging DALL-E Within ChatGPT-4 for Custom AI Imagery</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/toms-tech-reviews-comprehensive-guides-on-latest-gadgets/"><u>Tom's Tech Reviews: Comprehensive Guides on Latest Gadgets</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ling-the-hidden-pathways-to-earning-on-youtube-for-2024/"><u>Unveiling the Hidden Pathways to Earning on YouTube for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/unveiling-the-latest-in-pc-gear-with-toms-equipment-insights/"><u>Unveiling the Latest in PC Gear with Tom's Equipment Insights</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-in-2024-jaycut-essentials-learn-how-to-edit-videos-online-for-free/"><u>Updated In 2024, Jaycut Essentials Learn How to Edit Videos Online for Free</u></a></li>
+<li><a href="https://win-dash.techidaily.com/upgrade-your-gpu-fetch-the-latest-amd-radeon-hd-7700-drivers-for-improved-visuals/"><u>Upgrade Your GPU - Fetch the Latest AMD Radeon HD 7700 Drivers for Improved Visuals</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/1722969544459-upgrade-your-pc-now-fast-track-guide-for-intel-driver-download/"><u>Upgrade Your PC Now: Fast Track Guide for Intel Driver Download</u></a></li>
+<li><a href="https://facebook.techidaily.com/what-are-facebooks-neighborhood-based-spaces-for-collaboration/"><u>What Are Facebook's Neighborhood-Based Spaces for Collaboration?</u></a></li>
+</ul></div>
 
 
 
