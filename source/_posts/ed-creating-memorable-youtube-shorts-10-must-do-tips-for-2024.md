@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Creating Memorable YouTube Shorts - 10 Must-Do Tips for 2024\""
-date: 2024-07-13T00:51:28.806Z
-updated: 2024-07-14T00:51:28.806Z
+date: 2024-09-13T16:07:22.951Z
+updated: 2024-09-16T17:54:44.080Z
 tags:
   - ai video
   - ai youtube
@@ -66,6 +66,13 @@ To have a consistent growth of audience on YouTube shorts, you should stick to a
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-tips-3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Most of the prominent content creators already apply these **YouTube Shorts tips** in which they first identify their target audience. Based on that, you can work on the type of content that you want to create and share to attain consistent growth on YouTube.
 
 ### Tip 3: Add Appropriate Background Music to Your Short Videos
@@ -85,6 +92,13 @@ As you would select a track, it will automatically be loaded as the background m
 Apart from music, you can also add all kinds of text effects to make your YouTube Shorts videos appealing. After you have recorded a video, you can just tap on the text option from the bottom/side panel of the app.
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-tips-5.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 You can now type anything and place it on the video to make it more interesting. If you want, you can also implement these **YouTube Shorts tips** to add subtitles or pre/post video captions without any hassle.
 
@@ -112,11 +126,25 @@ A lot of people make the rookie mistake of shooting their videos for too long in
 
 Before shooting the video, you can tap on the timer button from the bottom and set up a preferred duration for it (like 10 or 15 seconds). In this way, you can be sure that you won’t go overboard and keep your videos short automatically.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Tip 8: Set a Preferred Target Audience for YouTube Shorts
 
 Great! Now when you have recorded and edited your video by applying these **tips for YouTube Shorts**, you are ready to post them. While posting your videos, you would be asked whether the video is targeted at kids or not. If the video is made for kids, then you should select the relevant prompt, as YouTube would improve the overall visibility of your videos in this case.
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-tips-9.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Though, if your videos are targeted at adults, then you should go with the second option instead. This would help you reach out to your target audience on YouTube easily.
 
@@ -127,6 +155,13 @@ Apart from setting the audience preferences of your YouTube Shorts videos, you s
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-tips-10.jpg)
 
 Besides that, it is also recommended to have the keyword “#Shorts” in the title of the video. You can also make the title of the video attractive and can even add a short description that would make your audience click on your YouTube video for sure.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115912/19272" target="_top" id="2115912">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115912" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115912/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Tip 10: Promote Your YouTube Shorts Video on Other Places
 
@@ -158,14 +193,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -174,6 +206,23 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-support.techidaily.com/new-masterpiece-makers-exceptional-android-collage-apps/"><u>[New] Masterpiece Makers – Exceptional Android Collage Apps</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-iphoneandroid-choose-great-focus-shots/"><u>[Updated] 2024 Approved IPhone/Android Choose Great Focus Shots</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-unveiling-vimeo-the-preferred-platform-by-directors/"><u>[Updated] 2024 Approved Unveiling Vimeo The Preferred Platform by Directors</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-audio-artisans-crafting-a-personal-library-with-6-best-free-youtube-apps-for-2024/"><u>[Updated] Audio Artisans Crafting a Personal Library with 6 Best Free YouTube Apps for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-ensuring-authenticity-as-you-aspire-for-one-million-video-watches-for-2024/"><u>[Updated] Ensuring Authenticity as You Aspire for One Million Video Watches for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-fix-noted-shorts-now-shown-prominently/"><u>[Updated] In 2024, Fix Noted Shorts Now Shown Prominently</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-how-to-optimally-apply-a-creative-commons-license/"><u>2024 Approved How to Optimally Apply a Creative Commons License</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-remove-cluttered-backgrounds-using-picarts-features/"><u>2024 Approved Remove Cluttered Backgrounds Using PicArt's Features</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-tailored-techniques-for-removing-youtube-ads-in-various-browsers/"><u>2024 Approved Tailored Techniques for Removing YouTube Ads in Various Browsers</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-getting-started-with-your-youtube-channel-essentials/"><u>In 2024, Getting Started with Your YouTube Channel – Essentials</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-looking-for-a-location-changer-on-samsung-galaxy-m14-5g-look-no-further-drfone-by-drfone-virtual-android/"><u>In 2024, Looking For A Location Changer On Samsung Galaxy M14 5G? Look No Further | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-pattern-locks-are-unsafe-secure-your-gionee-f3-pro-phone-now-with-these-tips-by-drfone-android/"><u>In 2024, Pattern Locks Are Unsafe Secure Your Gionee F3 Pro Phone Now with These Tips</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/er-10-decibel-boosters-macos-to-mobile-devices-for-2024/"><u>Premier 10 Decibel Boosters MacOS to Mobile Devices for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/prime-pc-idle-gaming-selections-for-2024/"><u>Prime PC Idle Gaming Selections for 2024</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/tactics-for-topical-tweets-virality-in-the-facebook-era-for-2024/"><u>Tactics for Topical Tweets Virality in the Facebook Era for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-when-tecno-spark-10-4g-has-black-screen-of-death-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do When Tecno Spark 10 4G Has Black Screen of Death? | Dr.fone</u></a></li>
+</ul></div>
 

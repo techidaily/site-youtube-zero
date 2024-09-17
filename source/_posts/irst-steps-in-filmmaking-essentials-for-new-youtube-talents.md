@@ -1,7 +1,7 @@
 ---
 title: "\"[New] First Steps in Filmmaking  Essentials for New YouTube Talents\""
-date: 2024-07-13T00:56:49.569Z
-updated: 2024-07-14T00:56:49.569Z
+date: 2024-09-11T20:46:35.796Z
+updated: 2024-09-16T16:15:36.324Z
 tags:
   - ai video
   - ai youtube
@@ -97,6 +97,13 @@ If you have a bigger budget to work with, the following vlogging cameras are gre
 
 ###  
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2135474/26400" target="_top" id="2135474">
+  <img src="//a.impactradius-go.com/display-ad/26400-2135474" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135474/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: YOUTUBE EQUIPMENT: LENS
 
 A lot of compact cameras already come with the lens as a part of the camera body. When it comes to these kinds of cameras, you won’t have to worry about which lens is right for you since the decision has already been made for you!
@@ -106,6 +113,13 @@ When you start looking into bigger cameras, though, you’ll have to think about
 ### The Wide-Angle Lens
 
 Every YouTuber should have a **wide-angle lens**. With this kind of lens, you can fit much more of a scene into your camera frame, including your own face when you’re just an arm’s length away from your camera. This is especially important for YouTubers because most YouTubers have to operate their camera on their own, without the assistance of an additional camera person.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Optical Image Stabilization
 
@@ -118,6 +132,19 @@ For more information on camera lenses, check out my [Vlogger’s Guide To Camera
 | ![Tripod](https://images.wondershare.com/filmora/article-images/tripod-youtube-starter-must-have-equipment.jpg) | **Tripod** If you plan to film yourself talking in front of the same, unchanging background for an extended period of time, it doesn’t make sense to film yourself handheld the entire time. You’ll just end up tiring your arm out and adding distracting shakiness to your footage. A tripod is a great solution to this problem. You can set up your framing once, press record, and leave your camera in its fixed position while you talk with both hands free.        |
 | --------------------------------------------------------------------------------------------------------------- | --------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
 | ![Joby GorillaPod SLR-Zoom](https://images.wondershare.com/filmora/article-images/joby-gorillapod-tripod.jpg)   | **Joby GorillaPod With Ballhead** When you film yourself handheld, it’s difficult to keep your arm higher up so that your camera shoots down at an ideal angle. You may also notice that a lot of your arm gets into your shot, which you and other viewers might find distracting. Holding your camera up by a GorillaPod, however, can give you the extension you need to get that higher angle shot more easily, all without so much of your arm getting into your shot. |
+
+<!-- affiliate ads begin -->
+<span id="1982508">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 4: YOUTUBE EQUIPMENT: MICROPHONE
 
@@ -169,6 +196,13 @@ The following three laptop computers handle video editing very well:
 
 ![Computers for YouTube Starter](https://images.wondershare.com/filmora/article-images/youtube-equipment-for-beginner-computer-list.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. MacBook Pro With Touch Bar
 2. Dell XPS 15
 3. Microsoft Surface Book 2
@@ -178,6 +212,13 @@ Read more about these laptop computers for 4K video editing in [The Best Laptops
 ## Part 8: YOUTUBE EQUIPMENT: VIDEO EDITING SOFTWARE
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 | **FREE VIDEO EDITING SOFTWARES**                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                  | **PAID VIDEO EDITING SOFTWARES**                                                                                                                                                                                                                                                                                                |
 | ------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- | ------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
@@ -213,14 +254,11 @@ Sumia Rafique is a writer and a lover of all things video.
 
 Follow @Sumia Rafique
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -229,6 +267,17 @@ Follow @Sumia Rafique
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/deal-websites-for-accessing-free-licensed-audio-files-for-2024/"><u>[New] Ideal Websites for Accessing Free, Licensed Audio Files for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/1716069912234-new-in-2024-inbuilt-camera-functions-to-capture-screens-on-huaweis-matep-series-phones/"><u>[New] In 2024, Inbuilt Camera Functions to Capture Screens on Huawei's Mate/P Series Phones.</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-balancing-frequency-and-quality-in-youtube-video-uploads/"><u>[Updated] In 2024, Balancing Frequency & Quality in YouTube Video Uploads</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-streamline-screen-capabilities-building-in-frame-video-experiences-on-sierra/"><u>[Updated] In 2024, Streamline Screen Capabilities Building In-Frame Video Experiences on Sierra</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-go-pro-karma-drone-review/"><u>2024 Approved Go Pro Karma Drone Review</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-complete-guide-for-iphone-13-mini-lock-screen-drfone-by-drfone-ios/"><u>In 2024, Complete Guide For iPhone 13 mini Lock Screen | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-earnings-explosion-boosting-your-youtube-channels-income-via-mobile/"><u>In 2024, Earnings Explosion Boosting Your YouTube Channel's Income via Mobile</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-oneplus-nord-ce-3-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On OnePlus Nord CE 3 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/step-by-step-creating-stellar-content-for-facebook-stories/"><u>Step-by-Step Creating Stellar Content for Facebook Stories</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ltimate-guide-to-designing-youtube-shorts-templates/"><u>The Ultimate Guide to Designing YouTube Shorts Templates</u></a></li>
+</ul></div>
 

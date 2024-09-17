@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Chart-Topping Content  YouTube's Top 5\""
-date: 2024-07-13T00:56:47.395Z
-updated: 2024-07-14T00:56:47.395Z
+date: 2024-09-11T01:18:19.207Z
+updated: 2024-09-16T17:54:01.970Z
 tags:
   - ai video
   - ai youtube
@@ -78,11 +78,31 @@ Based in Madrid, El Rubius OMG first became popular in Spanish-speaking countrie
 
 ![Smosh](https://images.wondershare.com/filmora/article-images/smosh.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1982459">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Originally, Smosh was a channel run by sketch comedy duo Ian Andrew Hecox and Anthony Padilla. They started the Smosh YouTube channel in 2005 and since then they have grown their team to include more creators, and their content to include animation and gaming. Smosh has become much more than two funny guys on YouTube – it is a wildly successful content company.
 
 Most channels that have one viral video do not go on to have sustained success on YouTube, but Smosh is an exception to this rule. Their ‘Pokemon Theme Music Video’, released in 2005, became the most viewed video of all time (as of that year). This video kick-started the growth of their channel.
 
 In 2017, Anthony Padilla chose to leave Smosh to focus on his own solo YouTube channel.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 5\.  Fernanfloo
 
@@ -100,6 +120,13 @@ Looking for a live [YouTube subscriber chart](https://tools.techidaily.com/wonde
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -108,14 +135,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -124,6 +148,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-files.techidaily.com/new-improving-zoom-video-fidelity-easy-steps-for-2024/"><u>[New] Improving Zoom Video Fidelity Easy Steps for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-entrepreneur-writes-top-youtube-sites-for-business-success/"><u>[New] In 2024, Entrepreneur' Writes Top YouTube Sites for Business Success</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/parking-inspiration-outstanding-youtube-content-themes-for-2024/"><u>[New] Sparking Inspiration Outstanding YouTube Content Themes for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-elevate-ps2-gameplay-on-ios-devices/"><u>[Updated] 2024 Approved Elevate PS2 Gameplay on iOS Devices</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-advanced-methods-for-sticker-eradication-on-tiktok/"><u>[Updated] Advanced Methods for Sticker Eradication on TikTok</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-how-to-create-captivating-music-reaction-videos-top-10-tips/"><u>[Updated] How to Create Captivating Music Reaction Videos - Top 10 Tips</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-smart-budget-audio-gear-for-online-sensation-hopefuls/"><u>[Updated] In 2024, Smart Budget Audio Gear for Online Sensation Hopefuls</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-understanding-and-implementing-cc-licenses-wisely/"><u>2024 Approved Understanding & Implementing CC Licenses Wisely</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/rt-with-precision-10-leading-tools-from-flv-to-youtube-platforms-for-2024/"><u>Convert with Precision 10 Leading Tools From Flv to YouTube Platforms for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/decode-iphone-13-quirks-effective-remedies-for-popular-issues/"><u>Decode iPhone 13 Quirks: Effective Remedies for Popular Issues</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/decoding-the-best-features-in-gaming-setups/"><u>Decoding the Best Features in Gaming Setups</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-5-hassle-free-solutions-to-fake-location-on-find-my-friends-of-nubia-red-magic-8s-proplus-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Hassle-Free Solutions to Fake Location on Find My Friends Of Nubia Red Magic 8S Pro+ | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-video-enhancement-embedding-youtube-into-google-slides/"><u>In 2024, Video Enhancement Embedding YouTube Into Google Slides</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/step-by-step-instrucuions-connect-a-new-usb-receiver-with-your-logitech-mouse/"><u>Step-by-Step Instrucuions: Connect a New USB Receiver with Your Logitech Mouse</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/the-comprehensible-guide-to-capturing-instagram-media-via-computer-systems/"><u>The Comprehensible Guide to Capturing Instagram Media via Computer Systems</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/unveiling-the-secrets-exploring-who-youre-communicating-with-in-cyberspace-and-understanding-the-digital-afterlife-phenomenon/"><u>Unveiling the Secrets: Exploring Who You're Communicating With in Cyberspace and Understanding the Digital Afterlife Phenomenon</u></a></li>
+</ul></div>
 

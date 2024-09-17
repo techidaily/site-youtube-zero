@@ -1,7 +1,7 @@
 ---
 title: "Exploring the Depths of Video Talks on YouTube"
-date: 2024-07-13T00:59:24.589Z
-updated: 2024-07-14T00:59:24.589Z
+date: 2024-09-13T17:02:13.122Z
+updated: 2024-09-16T23:23:33.403Z
 tags:
   - ai video
   - ai youtube
@@ -105,6 +105,13 @@ Did you post a comment on your favorite celebrity’s video? Do you think it may
 
 YouTube has now added this feature which you can see all the comments you ever posted on YouTube in one place.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to Use the Comment History feature to Search Comments?
 
 You can see all the comments you have posted in the Comment History in a few quick steps.
@@ -114,6 +121,13 @@ You can see all the comments you have posted in the Comment History in a few qui
 3. Click on the History option and then you will find the option called Comments on the right side of your YouTube History page. Click on it to see all your YouTube comments.
 
 ![YouTube History Comment](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 You can also access the Comments History page directly from [here](https://www.youtube.com/feed/history/comment%5Fhistory).
 
@@ -146,14 +160,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -162,6 +173,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-easy-sound-transformation-ios-tools-to-convert-youtube-songs-to-mp3-files/"><u>[New] In 2024, Easy Sound Transformation IOS Tools to Convert YouTube Songs to MP3 Files</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-master-the-art-of-snaps-15-pro-tips/"><u>[New] Master the Art of Snaps 15 Pro Tips</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-broadcast-perfection-recommended-tech-and-apps-for-youtubers-for-2024/"><u>[Updated] Broadcast Perfection Recommended Tech and Apps for YouTubers for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-soft-soundscapes-low-profile-alterations-in-garageband/"><u>[Updated] Soft Soundscapes Low-Profile Alterations in Garageband</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-securely-transforming-youtube-videos-into-mp3-files-3-techniques/"><u>2024 Approved Securely Transforming YouTube Videos Into MP3 Files - 3 Techniques</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-tutorial-manage-comment-permissions-on-youtube/"><u>2024 Approved Tutorial Manage Comment Permissions on YouTube</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/artists-claim-vindication-against-openaimeta-in-court/"><u>Artists Claim Vindication: Against OpenAI/Meta in Court</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/te-your-metadata-management-unveiling-the-best-7-affordable-online-tags-extractors-for-2024/"><u>Elevate Your Metadata Management Unveiling the Best 7 Affordable Online Tags Extractors for 2024</u></a></li>
+<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-from-realme-c67-4g-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock from Realme C67 4G Phones with/without a PC</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-making-the-most-of-your-instagram-footage/"><u>In 2024, Making the Most of Your Instagram Footage</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/in-2024-youtube-shorts-tutorial-crafting-compact-engaging-videos/"><u>In 2024, YouTube Shorts Tutorial Crafting Compact, Engaging Videos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/e-lively-youtube-conversations/"><u>Locate Lively YouTube Conversations</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-create-professional-looking-animations-with-these-12-online-makers/"><u>New 2024 Approved Create Professional-Looking Animations with These 12 Online Makers</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-cut-edit-share-the-top-10-vlog-editor-apps-for-ios-and-android/"><u>New 2024 Approved Cut, Edit, Share The Top 10 Vlog Editor Apps for iOS and Android</u></a></li>
+<li><a href="https://program-issues.techidaily.com/ultimate-fix-eliminate-your-pcs-zoom-dark-display-problems/"><u>Ultimate Fix: Eliminate Your PC's Zoom Dark Display Problems</u></a></li>
+</ul></div>
 

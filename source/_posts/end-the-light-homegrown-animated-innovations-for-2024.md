@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Bend the Light  Homegrown Animated Innovations for 2024\""
-date: 2024-07-13T00:56:45.180Z
-updated: 2024-07-14T00:56:45.180Z
+date: 2024-09-11T00:27:01.352Z
+updated: 2024-09-16T17:01:02.736Z
 tags:
   - ai video
   - ai youtube
@@ -60,11 +60,31 @@ What’s great about this course is that it assumes you have no animation experi
 
  Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## ** Video Copilot
 
 This site has a huge number of free After Effects tutorials. There are basic introductory lessons, and really advanced classes on creating custom cinematic FX, like explosions. There’s even a playlist on title design, which will be useful for anyone looking to create an intro sequence for their videos.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1770776">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -72,14 +92,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -88,6 +105,19 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-a-deep-dive-into-the-world-of-youtubes-minis/"><u>[New] In 2024, A Deep Dive Into the World of Youtube's Minis</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-overcoming-video-limitations-on-instagram-platform/"><u>[New] Overcoming Video Limitations on Instagram Platform</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/he-ascent-of-jake-paul-in-online-video-fame/"><u>[New] The Ascent of Jake Paul in Online Video Fame</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-clear-screens-crystal-vision-tips-for-blurry-social-media-content/"><u>[Updated] 2024 Approved Clear Screens, Crystal Vision Tips for Blurry Social Media Content</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-from-favorites-to-featured-the-journey-to-a-unique-youtube-list/"><u>[Updated] In 2024, From Favorites to Featured The Journey to a Unique YouTube List</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-transform-your-content-creation-with-the-top-12-vlogger-cams/"><u>2024 Approved Transform Your Content Creation with the Top 12 Vlogger Cams</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/complete-guide-on-installing-the-latest-cpu-driver-versions-on-a-windows-machine/"><u>Complete Guide on Installing the Latest CPU Driver Versions on a Windows Machine</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/enhanced-performance-for-every-gpu-in-overwatch/"><u>Enhanced Performance for Every GPU in Overwatch</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nteed-method-to-keep-youtube-shorts-out-of-sight-for-2024/"><u>Guaranteed Method to Keep YouTube Shorts Out of Sight for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-htc-u23-if-i-forgot-security-code-or-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset HTC U23 If I Forgot Security Code or Password? | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-youtube-descriptions-revamped-by-template-professionals/"><u>In 2024, YouTube Descriptions Revamped by Template Professionals</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/inside-toms-computer-world-a-complete-resource/"><u>Inside Tom's Computer World: A Complete Resource</u></a></li>
+</ul></div>
 

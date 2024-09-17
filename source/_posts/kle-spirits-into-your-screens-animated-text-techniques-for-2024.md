@@ -1,7 +1,7 @@
 ---
 title: "\"Sprinkle Spirits Into Your Screens  Animated Text Techniques for 2024\""
-date: 2024-09-11T01:55:39.936Z
-updated: 2024-09-12T01:55:39.936Z
+date: 2024-09-10T01:22:22.935Z
+updated: 2024-09-17T01:55:34.012Z
 tags:
   - ai video
   - ai youtube
@@ -26,27 +26,10 @@ thumbnail: https://thmb.techidaily.com/d568502deceace8c4ecf36ae07d16a3133e76d139
 
 Earlier, you learned how to have a **[bounce text effect in Adobe After Effects](https://tools.techidaily.com/wondershare/filmora/download/)**. However, because AE is a complex application and has a steep learning curve, this section explains the two alternative ways to get the same effect on your existing video footage.
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Method 1: How to Create Bouncing Text in Filmora Video Editor?
 
@@ -68,57 +51,15 @@ In the timeline, double-click the title you just added, use the upper-left secti
 
 ![Create Bouncing Text video Filmora9](https://images.wondershare.com/filmora/article-images/add-up-down-animation-to-bounce.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 **Step 3: Add Shake Filters**
 
 Go to **Effects** from the standard toolbar, expand the **Filters** category from the left pane, and click **Shake**. From the Library window, click and drag your preferred shake filter to the timeline. Here, I will choose Mild.
 
 ![Shake filters in Filmora9](https://images.wondershare.com/filmora/article-images/shake-filter.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 You can customize the default effect by double-clicking the shake filter in the timeline, using the sliders in the upper-left area of the interface to make necessary adjustments, and then clicking **OK** to save the changes and to get back to the previous interface.
 
 ![Mild Shake filters adjust](https://images.wondershare.com/filmora/article-images/mild-shake-filter-adjust.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 **Step 4: Export the Final Output**
 
@@ -145,20 +86,6 @@ Some most trusted websites to generate **bounce text** are listed below:
 Website: <https://engfto.com/index/create%5Fanimated%5Fbouncing%5Ftext/0-26>
 
 ![Create Animated Bouncing Text with ENGFTO](https://images.wondershare.com/filmora/article-images/engfto-create-animated-bouncing-text.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 You can follow the instructions given below to use Engfto to generate bouncing text for your footages:
 
@@ -200,40 +127,17 @@ Generating **bounce text** effect is much simpler when you use Wondershare Filmo
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1160850">
-					<video width="576" height="324" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -242,66 +146,23 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-1kplus-followers-in-a-flash-the-youtube-ultimate-playbook/"><u>[New] 2024 Approved 1K+ Followers in a Flash The YouTube Ultimate Playbook</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-analyzing-youtube-rankings-what-drives-top-placement/"><u>[New] 2024 Approved Analyzing YouTube Rankings What Drives Top Placement?</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-avoiding-common-pitfalls-in-pc-based-youtube-video-editing/"><u>[New] 2024 Approved Avoiding Common Pitfalls in PC-Based YouTube Video Editing</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-become-a-yt-hub-pro-complete-guide-revealed/"><u>[New] 2024 Approved Become a YT Hub Pro Complete Guide Revealed</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-cinema-craftsmanship-unleashed-youtube-green-screens-101/"><u>[New] 2024 Approved Cinema Craftsmanship Unleashed Youtube Green Screens 101</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-collect-free-image-resources-via-top-4-online-stock-hubs/"><u>[New] 2024 Approved Collect Free Image Resources Via Top 4 Online Stock Hubs</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-convert-your-youtube-files-effortlessly-to-webm/"><u>[New] 2024 Approved Convert Your YouTube Files Effortlessly to WebM</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-crafting-a-legacy-youtubers-playbook-for-success/"><u>[New] 2024 Approved Crafting a Legacy YouTuber’s Playbook for Success</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-deciphering-how-tseries-benefits-from-youtube/"><u>[New] 2024 Approved Deciphering How TSeries Benefits From YouTube</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-detailed-guide-to-dollar-counts-a-stepwise-strategy-to-track-youtube-earnings/"><u>[New] 2024 Approved Detailed Guide to Dollar Counts A Stepwise Strategy to Track YouTube Earnings</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-digital-deviation-expert-strategies-to-rotate-videos-on-youtube/"><u>[New] 2024 Approved Digital Deviation Expert Strategies to Rotate Videos on YouTube</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-elevate-engagement-crafting-anime-subscribe-bars-for-youtube-content/"><u>[New] 2024 Approved Elevate Engagement Crafting Anime Subscribe Bars for YouTube Content</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-elevating-your-contents-reach-without-breaching-laws/"><u>[New] 2024 Approved Elevating Your Content's Reach Without Breaching Laws</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-essential-selection-the-greatest-free-editing-software/"><u>[New] 2024 Approved Essential Selection The Greatest Free Editing Software</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-exploring-and-expressing-a-comprehensible-guide-to-becoming-a-travel-videographer/"><u>[New] 2024 Approved Exploring & Expressing A Comprehensible Guide to Becoming a Travel Videographer</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-hashtag-wisdom-jumpstart-your-6-figure-youtube-rank/"><u>[New] 2024 Approved Hashtag Wisdom Jumpstart Your 6-Figure Youtube Rank</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-how-does-youtube-work-after-a-video-is-uploaded/"><u>[New] 2024 Approved How Does YouTube Work After a Video Is Uploaded</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-how-to-add-text-to-youtube-video-before-or-after-uploading/"><u>[New] 2024 Approved How to Add Text to YouTube Video Before or After Uploading</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-innovative-discussion-themes-for-vloggers/"><u>[New] 2024 Approved Innovative Discussion Themes for Vloggers</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-lens-strategy-for-stellar-video-creations/"><u>[New] 2024 Approved Lens Strategy for Stellar Video Creations</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-master-the-art-of-youtube-seo-11-steps-to-improvement/"><u>[New] 2024 Approved Master the Art of YouTube SEO 11 Steps to Improvement</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-master-youtube-monetization-tips-to-boost-income-via-shorts/"><u>[New] 2024 Approved Master YouTube Monetization Tips to Boost Income via Shorts</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-mastering-the-art-of-youtube-thumbnails-on-macos/"><u>[New] 2024 Approved Mastering the Art of YouTube Thumbnails on macOS</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-money-making-moves-now-with-over-500-subscribers/"><u>[New] 2024 Approved Money-Making Moves Now With Over 500 Subscribers</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-peak-viewing-valor-youtubes-daily-top-ten-highlights/"><u>[New] 2024 Approved Peak Viewing Valor YouTube's Daily Top Ten Highlights</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/-free-software-to-convert-youtube-to-mp3-for-iphone-for-2024/"><u>[New] 6 Free Software to Convert YouTube to MP3 for iPhone for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/-premier-resources-download-free-high-quality-green-screen-footage-for-2024/"><u>[New] 8 Premier Resources Download Free, High-Quality Green Screen Footage for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/-comprehensive-tutorial-for-transforming-vids-into-dollars/"><u>[New] A Comprehensive Tutorial for Transforming Vids Into Dollars</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/new-friendly-reminder-how-to-chill-at-someones-tiktok-party-for-2024/"><u>[New] Friendly Reminder How To Chill at Someone's TikTok Party for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-seamless-creation-with-xp-movie-maker-features/"><u>[New] Seamless Creation with XP Movie Maker Features</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-youtube-analytics-how-to-analyze-your-and-competitors-youtube-video/"><u>[Updated] 2024 Approved YouTube Analytics – How to Analyze Your and Competitor's YouTube Video</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/-notch-free-editors-to-enhance-your-youtube-content-efficiency-for-2024/"><u>8 Top-Notch Free Editors to Enhance Your YouTube Content Efficiency for 2024</u></a></li>
-<li><a href="https://win11.techidaily.com/accessing-network-drives-through-explorer-pane/"><u>Accessing Network Drives Through Explorer Pane</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/-traffic-with-effective-tools-for-youtube-videos/"><u>Boost Traffic with Effective Tools for YouTube Videos</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/conveniently-record-your-favorite-streams-top-5-grabber-apps/"><u>Conveniently Record Your Favorite Streams Top 5 Grabber Apps</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/-channels-with-flair-unveiling-10-innovative-design-platforms-for-2024/"><u>Craft Channels with Flair Unveiling 10 Innovative Design Platforms for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/-platform-strategies-to-boost-youtube-presence-for-2024/"><u>Cross-Platform Strategies to Boost YouTube Presence for 2024</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/economical-yet-high-performance-keyboards-for-gamers/"><u>Economical Yet High-Performance Keyboards for Gamers</u></a></li>
-<li><a href="https://win11.techidaily.com/how-to-disable-autonomous-command-line-openings/"><u>How to Disable Autonomous Command Line Openings</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-exploring-abyss-underwater-video-tips-using-a-gopro-camera/"><u>In 2024, Exploring Abyss Underwater Video Tips Using a GoPro Camera</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-oppo-a1-5g-frp-in-3-different-ways-by-drfone-android/"><u>In 2024, How To Bypass Oppo A1 5G FRP In 3 Different Ways</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-changeadd-location-filters-on-snapchat-for-your-vivo-y200-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change/Add Location Filters on Snapchat For your Vivo Y200 | Dr.fone</u></a></li>
-<li><a href="https://some-skills.techidaily.com/in-2024-transformative-srt-editing-techniques-for-apple-devices/"><u>In 2024, Transformative SRT Editing Techniques for Apple Devices</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-ultimate-guide-to-get-the-meltan-box-pokemon-go-for-xiaomi-redmi-note-12-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate guide to get the meltan box pokemon go For Xiaomi Redmi Note 12 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/-maestro-uploading-beats-to-your-youtube-for-2024/"><u>Music Maestro Uploading Beats to Your YouTube for 2024</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/rainbow-six-quarantine-frame-rate-drop-solutions-for-smoother-gaming/"><u>Rainbow Six Quarantine Frame Rate Drop Solutions for Smoother Gaming</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/review-of-bouncie-the-user-friendly-budget-conscious-gps-tracking-solution/"><u>Review of Bouncie: The User-Friendly, Budget-Conscious GPS Tracking Solution</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/-revenue-revolution-from-childhood-to-youtube-riches/"><u>Ryan’s Revenue Revolution From Childhood to YouTube Riches</u></a></li>
-<li><a href="https://video-capture.techidaily.com/seamless-integration-of-custom-backgrounds-on-microsoft-teams-calls/"><u>Seamless Integration of Custom Backgrounds on Microsoft Teams Calls</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/-tutorial-changing-photos-into-engaging-youtube-thumbnails/"><u>Speed Tutorial Changing Photos Into Engaging YouTube Thumbnails</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/0-innovative-yt-reactions-for-engaging-content/"><u>Top 10 Innovative YT Reactions for Engaging Content</u></a></li>
-<li><a href="https://fake-location.techidaily.com/what-are-location-permissions-life360-on-vivo-s18e-drfone-by-drfone-virtual-android/"><u>What are Location Permissions Life360 On Vivo S18e? | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-comedy-in-a-click-best-funny-short-video-suggestions-for-youtubers/"><u>[Updated] 2024 Approved Comedy in a Click Best Funny Short Video Suggestions for YouTubers</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-expert-guide-to-premiere-pro-fs-preview/"><u>[Updated] 2024 Approved Expert Guide to Premiere Pro FS Preview</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-prime-5-web-based-screening-sessions/"><u>[Updated] 2024 Approved Prime 5 Web-Based Screening Sessions</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-rhythm-roundup-hot-music-for-todays-top-youtube-short-videos/"><u>[Updated] In 2024, Rhythm Roundup Hot Music for Today’s Top YouTube Short Videos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-a-step-by-step-strategy-to-design-engaging-youtube-teasers/"><u>2024 Approved A Step-by-Step Strategy to Design Engaging YouTube Teasers</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-learn-how-everything-works-on-tecno-pova-6-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Learn How Everything Works On Tecno Pova 6 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-optimizing-your-android-experience-with-effective-recordings/"><u>In 2024, Optimizing Your Android Experience with Effective Recordings</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-profit-strategies-for-beauty-streams/"><u>In 2024, Profit Strategies for Beauty Streams</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/mastering-skies-with-dji-phantom-4-pro-v20-a-comprehensive-review-of-its-innovative-features/"><u>Mastering Skies with DJI Phantom 4 Pro v2.0: A Comprehensive Review of Its Innovative Features</u></a></li>
 </ul></div>
 
-
-
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

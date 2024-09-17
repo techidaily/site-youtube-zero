@@ -1,7 +1,7 @@
 ---
 title: "Taking Photos Steadily on One Leg?"
-date: 2024-07-13T00:57:31.799Z
-updated: 2024-07-14T00:57:31.799Z
+date: 2024-09-14T18:30:14.376Z
+updated: 2024-09-16T22:40:54.540Z
 tags:
   - ai video
   - ai youtube
@@ -75,6 +75,13 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -82,6 +89,13 @@ Gorillapod’s are cool because you can use them like normal tripods, carry them
 Your wire should be fairly stiff and you’ll need three pieces the same length, which should be at least 10 inches. Old clothes hangers work well. This needs to be something strong enough to support the weight of your camera, but soft enough that it’s not impossible for you to bend.
 
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
 
@@ -111,14 +125,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -127,6 +138,15 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-in-2024-diminutive-directors-script/"><u>[New] In 2024, Diminutive Director's Script</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-boost-your-channels-subscribers-on-a-shoestring-budget/"><u>[Updated] 2024 Approved Boost Your Channel's Subscribers on a Shoestring Budget</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-masterclass-in-length-management-youtube-vids/"><u>[Updated] 2024 Approved Masterclass in Length Management YouTube Vids</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-deciphering-youtubes-profit-for-a-mil-of-viewers/"><u>2024 Approved Deciphering YouTube’s Profit for A Mil of Viewers</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-honesty-in-high-definition-reviewing-recordcasts-efficacy/"><u>2024 Approved Honesty in High-Definition Reviewing RecordCast's Efficacy</u></a></li>
+<li><a href="https://program-issues.techidaily.com/breaking-down-the-persistent-crash-issues-in-immortals-fenyx-rising-solutions-inside/"><u>Breaking Down the Persistent Crash Issues in Immortals Fenyx Rising - Solutions Inside</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/comprehensive-look-at-ice-cream-on-the-screen-for-2024/"><u>Comprehensive Look at Ice Cream on the Screen for 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/latest-hp-officejet-4500-printer-software-update-2024-free-downloads/"><u>Latest HP Officejet 4500 Printer Software Update 2024 - Free Downloads</u></a></li>
+</ul></div>
 
