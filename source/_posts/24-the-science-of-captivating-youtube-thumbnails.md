@@ -1,7 +1,7 @@
 ---
 title: "In 2024, The Science of Captivating YouTube Thumbnails"
-date: 2024-07-13T00:43:20.023Z
-updated: 2024-07-14T00:43:20.023Z
+date: 2024-09-14T16:58:26.839Z
+updated: 2024-09-21T16:45:35.448Z
 tags:
   - ai video
   - ai youtube
@@ -143,9 +143,23 @@ Many of you might be interested in how to make a fortnite thumbnail, so here it 
 
 ![make-fortnite-thumbnail-step5](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. Now to separate the character from the background, go to the Effects. Under effects, you can find a tab named AI Portraits. Click on AI Portrait. Now drag the Human Segmentation and drop it on the screenshot in the timeline.
 
 ![make-fortnite-thumbnail-step6](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step6.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144278/7443" target="_top" id="2144278">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144278/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 1. It will ask you to purchase it. But there is no need to do that. Just hit Try It.
 
@@ -177,6 +191,13 @@ Many of you might be interested in how to make a fortnite thumbnail, so here it 
 
  ---
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Add a Custom YouTube Thumbnail to Your Video in YouTube
 
 Once you have successfully created a custom thumbnail, you can use it in your videos on Youtube.
@@ -199,7 +220,21 @@ Thumbnail is the first thing that helps the viewer decide whether to click on a 
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Benjamin Arango
 
@@ -207,14 +242,11 @@ Benjamin Arango is a writer and a lover of all things video.
 
 Follow @Benjamin Arango
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -223,6 +255,23 @@ Follow @Benjamin Arango
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-best-practices-boosting-your-game-videos-with-tags/"><u>[New] 2024 Approved Best Practices Boosting Your Game Videos with Tags</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nhance-your-channels-image-adding-watermarks-and-logos-to-video-posts/"><u>[New] Enhance Your Channel's Image Adding Watermarks & Logos to Video Posts</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-kodi-media-center-multimedia-alternative-for-pcs/"><u>[New] Kodi Media Center Multimedia Alternative for PCs</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-short-track-olympics-highlights-from-22/"><u>[New] Short Track Olympics - Highlights From '22</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-cultivating-a-community-building-followers-on-youtube-without-spending-for-2024/"><u>[Updated] Cultivating a Community Building Followers on YouTube Without Spending for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-the-key-to-a-profitable-yt-channel-accurate-monetization-verification/"><u>[Updated] In 2024, The Key to a Profitable YT Channel Accurate Monetization Verification</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-optimal-choices-in-monitors-for-ps5-gamers/"><u>[Updated] Optimal Choices in Monitors for PS5 Gamers</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-capturing-top-notch-audio-without-microphone-dependency/"><u>2024 Approved Capturing Top-Notch Audio Without Microphone Dependency</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/digital-photography-how-to-erase-unwanted-areas/"><u>Digital Photography How to Erase Unwanted Areas</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/elevating-business-operations-what-gaining-access-to-chatgpt-and-whisper-means-for-enterprise-success/"><u>Elevating Business Operations: What Gaining Access to ChatGPT and Whisper Means for Enterprise Success</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-fake-snapchat-location-on-samsung-galaxy-xcover-6-pro-tactical-edition-drfone-by-drfone-virtual-android/"><u>How to Fake Snapchat Location on Samsung Galaxy XCover 6 Pro Tactical Edition | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-a-realme-narzo-60x-5g-phone-that-is-locked-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset a Realme Narzo 60x 5G Phone That Is Locked | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-keeping-cameras-steady-in-motion-landscapes/"><u>In 2024, Keeping Cameras Steady in Motion Landscapes</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/late-disengagement-protocol-for-compact-youtube-clips-for-2024/"><u>Inviolate Disengagement Protocol for Compact YouTube Clips for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/ultimate-troubleshooting-tips-for-resident-evil-village-crashing-on-windows-10/"><u>Ultimate Troubleshooting Tips for Resident Evil Village Crashing on Windows 10</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/king-potential-solving-common-youtube-short-problems-for-2024/"><u>Unlocking Potential Solving Common YouTube Short Problems for 2024</u></a></li>
+</ul></div>
 

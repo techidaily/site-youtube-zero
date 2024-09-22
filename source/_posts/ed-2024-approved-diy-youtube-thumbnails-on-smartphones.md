@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  DIY YouTube Thumbnails on Smartphones\""
-date: 2024-07-13T00:46:04.429Z
-updated: 2024-07-14T00:46:04.429Z
+date: 2024-09-20T02:19:11.310Z
+updated: 2024-09-21T19:53:20.021Z
 tags:
   - ai video
   - ai youtube
@@ -174,6 +174,13 @@ Step4 When you are done editing the thumbnail, take a **snapshot** by clicking t
 
 ![filmora take a snapshot](https://images.wondershare.com/filmora/article-images/filmora-take-screenshot.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step5 Locate the thumbnail in your local drive.
 
 ![filmora export thumbnail](https://images.wondershare.com/filmora/article-images/filmora-export-thumbnail.JPG)
@@ -277,15 +284,42 @@ Step3 Tap on the video and tap the "**Edit**" button in the top right corner of 
 
 ![youtube edit video](https://images.wondershare.com/filmora/article-images/youtube-edit-video.JPG)
 
+<!-- affiliate ads begin -->
+<span id="1899850">
+					<video width="486" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step4 Tap the **Custom thumbnail** button and **upload** the image you want to use from your photo library.
 
 ![youtube upload thumbnail](https://images.wondershare.com/filmora/article-images/youtube-upload-thumbnail.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step5 Tap Save in the top right corner to upload the thumbnail to your video.
 
 ![youtube save thumbnail](https://images.wondershare.com/filmora/article-images/youtube-save-thumbnail.JPG)
 
 That's it! Your new thumbnail will now be displayed on your YouTube video, helping it stand out and attract more views. You can repeat this process for other videos if you want to add a custom thumbnail.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## It May Interest You – Make YouTube Thumbnails on Windows/Mac
 
@@ -306,6 +340,13 @@ To create a thumbnail using Filmora on your Windows or Mac computer, follow thes
 Step1 Launch Filmora, add the picture to the timeline and **select** the AI Portrait option in the Effects panel to cut out the subject from the background.
 
 ![filmora interface](https://images.wondershare.com/filmora/article-images/filmora-interface.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step2 Scale up and reposition the photo.
 
@@ -369,8 +410,6 @@ Whether you create your thumbnails on your mobile device or your computer, use a
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -378,6 +417,23 @@ Whether you create your thumbnails on your mobile device or your computer, use a
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-the-ultimate-blueprint-for-memetic-virality/"><u>[New] 2024 Approved The Ultimate Blueprint for Memetic Virality</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-cinemas-best-bits-select-snippets-for-edits/"><u>[New] Cinema’s Best Bits Select Snippets for Edits</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/elodic-migration-6-preferred-free-apps-for-moving-youtube-audio-on-android-for-2024/"><u>[New] Melodic Migration 6 Preferred Free Apps for Moving YouTube Audio on Android for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/solved-diablo-4-fps-drops-and-stuttering-on-pc/"><u>[SOLVED] Diablo 4 FPS Drops and Stuttering on PC</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-pro-gamers-and-casters-to-subscribe-now/"><u>[Updated] 2024 Approved Pro Gamers & Casters to Subscribe Now!</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-vloggers-ultimate-guide-to-best-gaming-microphones/"><u>[Updated] 2024 Approved Vloggers' Ultimate Guide to Best Gaming Microphones</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-from-phone-footage-to-channel-fame-a-seamless-setup-for-your-businesspersonal-brand-for-2024/"><u>[Updated] From Phone Footage to Channel Fame A Seamless Setup for Your Business/Personal Brand for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-pioneering-techniques-for-popularizing-youtube-videos/"><u>[Updated] In 2024, Pioneering Techniques for Popularizing YouTube Videos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-streamline-your-channels-customized-end-screen-templates/"><u>[Updated] In 2024, Streamline Your Channels Customized End Screen Templates</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-plainvidwin11-intuitive-simple-screen-recorder-for-pcs-for-2024/"><u>[Updated] PlainVidWin11 Intuitive, Simple Screen Recorder for PCs for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-pushing-boundaries-upward-an-incisive-mavic-pro-review-for-2024/"><u>[Updated] Pushing Boundaries Upward An Incisive Mavic Pro Review for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/how-accurate-is-chatgpt-in-delivering-health-related-guidance/"><u>How Accurate Is ChatGPT in Delivering Health-Related Guidance?</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-change-lock-screen-wallpaper-on-asus-rog-phone-7-ultimate-by-drfone-android/"><u>How to Change Lock Screen Wallpaper on Asus ROG Phone 7 Ultimate</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-understanding-t-series-youtube-business-model/"><u>In 2024, Understanding T-Series YouTube Business Model</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-evolution-of-interactive-assistance-personalized-directives-in-ai/"><u>The Evolution of Interactive Assistance: Personalized Directives in AI</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/troubleshooting-guide-understanding-crashes-in-mount-and-blade-ii-bannerlord/"><u>Troubleshooting Guide: Understanding Crashes in Mount & Blade II: Bannerlord</u></a></li>
+</ul></div>
 

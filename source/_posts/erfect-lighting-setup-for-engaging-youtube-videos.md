@@ -1,7 +1,7 @@
 ---
 title: "[New] Perfect Lighting Setup for Engaging YouTube Videos"
-date: 2024-09-12T22:47:36.027Z
-updated: 2024-09-16T16:49:16.005Z
+date: 2024-09-14T18:25:49.924Z
+updated: 2024-09-21T22:42:00.803Z
 tags:
   - ai video
   - ai youtube
@@ -70,22 +70,16 @@ Ceiling lights are also typically situated in the center of a room in order to l
 
 If you rather not deal with all the window and home lighting challenges, you can set up studio lighting in your home.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918679/19272" target="_top" id="1918679">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918679/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1. Light Control
 
 The first thing you’ll want to do to set up studio lighting in your home is to pick a room to film in and eliminate as much external lighting as you can. Use blinds, curtains, towels, or any thick fabric to block sunlight from shining into your room.
-
-<!-- affiliate ads begin -->
-<span id="1983552">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2. 3-Point Lighting
 
@@ -93,18 +87,18 @@ The most common setup for studio lighting is 3-point lighting. For this kind of 
 
 ![3-Point Lighting](https://images.wondershare.com/filmora/article-images/youtube-lighting-3-point-lighting.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Out of the three lights, the key light should be the brightest. When it is positioned to the left of you (as shown in the diagram above) your right side will have shadows.
 
 To minimize the shadows on your right side, use a weaker light as a fill light. You don’t want your fill light to completely eliminate all your shadows or else your shot will look flat.
 
 Lastly, a backlight positioned behind you can give an appealing highlight to the ends of your head and even help to separate your hair from blending into your background if both happen to be dark.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3. 4-Point Lighting
 
@@ -123,10 +117,10 @@ For more information on lighting equipment, check out my [Top 17 Video Lighting 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -150,19 +144,12 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-clips.techidaily.com/new-easyvidrecorder-web-based-video-grab/"><u>[New] EasyVidRecorder Web-Based Video Grab</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-pixelpie-slicer/"><u>[New] PixelPie Slicer</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-the-artisans-almanac-makeup-tools-and-more-on-youtube/"><u>[Updated] In 2024, The Artisan's Almanac Makeup, Tools & More on Youtube</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-android-audio-archive-a-curated-list-of-top-6-free-music-downloading-apps/"><u>2024 Approved Android Audio Archive A Curated List of Top 6 Free Music Downloading Apps</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/2024-approved-elevate-visual-narratives-on-tiktok-the-top-5-proven-text-techniques/"><u>2024 Approved Elevate Visual Narratives on TikTok The Top 5 Proven Text Techniques</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-mapping-social-interest-to-video-idea-generation-with-google/"><u>2024 Approved Mapping Social Interest to Video Idea Generation with Google</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/adjust-monitor-setup-in-windows-7/"><u>Adjust Monitor Setup in Windows 7</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ing-up-opaque-video-views-on-youtube-for-2024/"><u>Clearing Up Opaque Video Views on YouTube for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/hering-adsense-profits-on-youtube-revenue-per-kv-watched/"><u>Deciphering AdSense Profits on YouTube Revenue per KV Watched</u></a></li>
-<li><a href="https://win-answers.techidaily.com/effective-techniques-to-stop-your-game-of-doom-eternal-from-keep-on-crashing/"><u>Effective Techniques to Stop Your Game of DOOM Eternal From Keep on Crashing</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-fake-gps-on-realme-12-5g-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>How To Fake GPS On Realme 12 5G For Mobile Legends? | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-detect-and-stop-mspy-from-spying-on-your-huawei-nova-y71-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Stop mSpy from Spying on Your Huawei Nova Y71 | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/unlock-your-oppo-a78-5g-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>Unlock Your Oppo A78 5G Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
-<li><a href="https://ai-video-translation.techidaily.com/updated-best-video-translator-app-for-pc-you-cannot-miss-for-2024/"><u>Updated Best Video Translator App for PC You Cannot Miss for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-discover-how-to-get-sounds-from-twitter-vids/"><u>[New] In 2024, Discover How to Get Sounds From Twitter Vids</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-elevating-your-style-with-youtubes-best-hauls/"><u>[New] In 2024, Elevating Your Style with YouTube's Best Hauls</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nearthing-your-private-playlist-sanctuary-on-youtube-for-2024/"><u>[New] Unearthing Your Private Playlist Sanctuary on Youtube for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-from-gameplay-to-recording-expert-techniques-for-ps3-screenshots/"><u>[Updated] From Gameplay to Recording Expert Techniques for PS3 Screenshots</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/effective-solutions-to-fix-cod-warzone-game-disc-reading-issues-with-errors-50-and-31/"><u>Effective Solutions to Fix COD Warzone Game Disc Reading Issues with Errors [5.0 and 3.1]</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/lightning-loop-top-10-agile-games-on-mobilepc-for-2024/"><u>Lightning Loop Top 10 Agile Games on Mobile/PC for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/izing-channel-visibility-banner-size-and-art-dimensions-explained/"><u>Maximizing Channel Visibility Banner Size and Art Dimensions Explained</u></a></li>
 </ul></div>
 

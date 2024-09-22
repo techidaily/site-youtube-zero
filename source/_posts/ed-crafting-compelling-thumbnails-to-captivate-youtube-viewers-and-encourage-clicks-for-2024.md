@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Crafting Compelling Thumbnails to Captivate YouTube Viewers and Encourage Clicks for 2024"
-date: 2024-07-13T00:45:31.186Z
-updated: 2024-07-14T00:45:31.186Z
+date: 2024-09-18T03:10:28.450Z
+updated: 2024-09-21T17:55:12.998Z
 tags:
   - ai video
   - ai youtube
@@ -56,6 +56,13 @@ People feel automatically connected and drawn into images that make eye contact.
 
 Also, if somebody recognizes you in your thumbnail from a previous video of yours, that will go a long way towards making them click.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 3\. Use Graphics/Emojis that are On Topic
 
 Anybody can take a screenshot of themselves in their video and use it as a thumbnail. To make your thumbnails look polished, consider using small images (like emojis or hearts) to stand out. This will add color and personality to your thumbnail.
@@ -67,6 +74,19 @@ Make sure the images you choose are relevant to the topic of your video.
 If you use text in your thumbnail (you don’t have to) then it should be to add context. For example, if the main image is just you smiling then you might need some text to let viewers know the video is a makeup tutorial.
 
 Thumbnails might look large while you’re putting them together in your image editor, but when they’re displayed on YouTube they’re a lot smaller. That goes double if a viewer is watching on their phone. So, make sure that any text you use is large enough that it can be read easily on small screens.
+
+<!-- affiliate ads begin -->
+<span id="1982596">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 5\. Keep it Clutter-Free
 
@@ -86,14 +106,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -102,6 +119,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/lear-up-audio-in-youtube-a-step-by-step-guide/"><u>[New] Clear Up Audio in YouTube A Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-efficient-ways-to-clean-your-youtube-watch-later-playlist/"><u>[New] In 2024, Efficient Ways to Clean Your YouTube Watch Later Playlist</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nleash-potential-optimizing-short-films-in-marketing-for-2024/"><u>[New] Unleash Potential Optimizing Short Films in Marketing for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-concise-content-the-best-url-cutter-tools-for-youtubers/"><u>[Updated] 2024 Approved Concise Content The Best URL Cutter Tools for Youtubers</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-unveiling-truth-understanding-youtubes-seo-keywords/"><u>[Updated] 2024 Approved Unveiling Truth Understanding YouTube's SEO Keywords</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-crafting-an-impactful-waterway-teaser/"><u>[Updated] Crafting an Impactful Waterway Teaser</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-leveraging-fb-platforms-for-public-health-initiatives/"><u>[Updated] In 2024, Leveraging FB Platforms for Public Health Initiatives</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-pinnacle-of-popularity-on-reddit-top-10-ranking/"><u>[Updated] In 2024, Pinnacle of Popularity on Reddit - Top 10 Ranking</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-unveiling-30-new-dimensions-in-metaverse-memes-for-2024/"><u>[Updated] Unveiling 30 New Dimensions in Metaverse Memes for 2024</u></a></li>
+<li><a href="https://android-location.techidaily.com/10-fake-gps-location-apps-on-android-of-your-oneplus-ace-2-pro-drfone-by-drfone-virtual/"><u>10 Fake GPS Location Apps on Android Of your OnePlus Ace 2 Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-discover-variety-50-complimentary-youtube-banners-available/"><u>2024 Approved Discover Variety – 50 Complimentary YouTube Banners Available</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-changeadd-location-filters-on-snapchat-for-your-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>How to Change/Add Location Filters on Snapchat For your Apple iPhone 7 Plus | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-samsung-galaxy-s24plus-drfone-by-drfone-virtual-android/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Samsung Galaxy S24+? | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/is-there-a-glitch-in-the-matrix-or-is-it-just-aol-mail-acting-up/"><u>Is There a Glitch in the Matrix - Or Is It Just AOL Mail Acting Up?</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/streamlined-steps-setting-up-snapchat-on-macos/"><u>Streamlined Steps Setting up Snapchat on macOS</u></a></li>
+</ul></div>
 

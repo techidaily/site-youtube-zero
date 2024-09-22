@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Follow the Footsteps of Fan-Driven Forums\""
-date: 2024-09-12T01:26:22.500Z
-updated: 2024-09-16T22:02:41.208Z
+date: 2024-09-16T01:56:11.032Z
+updated: 2024-09-22T03:54:10.313Z
 tags:
   - ai video
   - ai youtube
@@ -79,13 +79,6 @@ It is one of the most user-friendly and ad-free random comment pickers available
 * **Unique feature 1:** By clicking the View Statistics button, you can get a track of the popular words used in the comment section and the top questions asked by your followers.
 * **Unique feature 2:** Along with the comment, details of the user, time of commenting, and many more things can be extracted from Hadzy.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Part 2:** **How to Find the First Comments You Have Posted on YouTube?**
 
 There are times when you regret what you've commented on in the past or wish to go back and look up your first message on YouTube. However, it is not always possible to recall the channel or video where you left the comment.
@@ -98,13 +91,6 @@ Everything you have to do now follows the steps below. For the following methods
 * At the right corner, choose History type as 'community.' Below that, click on the 'Comments' option. Finally, a new tab would open with all your YouTube comment history.
 
 ![  YouTube comment  history search ](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115947/19272" target="_top" id="2115947">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115947" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115947/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 By these basic steps, enjoy editing or deleting your comments and replies directly on YouTube!
 
@@ -127,6 +113,13 @@ These steps are convenient both for pc as well as a mobile app. Just follow thre
 
 * Click on the bell icon at the top right corner and there you would receive notifications regarding all the comment activities. Click on the particular notification to go to that comment.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Bonus: How to Change the Comments View Order?
 
 Did you know you can also customize your comment section as per your need? On the watch page for your video, you can rearrange the order of the comments. You may sort the comments by top comments or by date added. It's just simple steps ahead.
@@ -135,6 +128,13 @@ Did you know you can also customize your comment section as per your need? On th
 * From the left bar, select Content, click a video's thumbnail, and click on Show More in video details page.
 
 ![  YouTube comment  and rating settings ](https://images.wondershare.com/filmora/article-images/set-up-comment-ratings.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Under 'Comments and ratings,' select Sort by, and then choose between "Top" and "Newest."
 * Save the changes, and you are done!
@@ -170,16 +170,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-master-mac-screen-and-voice-logging-device/"><u>[New] 2024 Approved Master Mac Screen and Voice Logging Device</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-premier-audio-archivers-for-teachings/"><u>[New] In 2024, Premier Audio Archivers for Teachings</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/he-key-to-sharing-success-youtubes-most-impactful-hashes/"><u>[New] The Key to Sharing Success YouTube's Most Impactful Hashes</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-how-to-execute-flawless-wirecast-broadcasts-on-youtube/"><u>[Updated] How to Execute Flawless WireCast Broadcasts on YouTube</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-a-comparative-analysis-androids-finest-video-downloaders/"><u>[Updated] In 2024, A Comparative Analysis Android's Finest Video Downloaders</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-navigating-the-netizens-realm-youtube-videos-fb/"><u>[Updated] Navigating the Netizen's Realm YouTube Videos FB</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/st-try-microphones-for-exceptional-asmr-sounds-for-2024/"><u>10 Must-Try Microphones for Exceptional ASMR Sounds for 2024</u></a></li>
-<li><a href="https://ai-live-streaming.techidaily.com/2024-approved-s-top-10-streaming-video-services-free-ones-available/"><u>2024 Approved S Top 10 Streaming Video Services Free Ones Available</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/crafting-perfection-ios-and-androids-best-montage-aides-for-2024/"><u>Crafting Perfection IOS & Android's Best Montage Aides for 2024</u></a></li>
-<li><a href="https://win-forum.techidaily.com/step-by-step-guide-removing-a-user-account-from-your-windows-10-pc-with-ease/"><u>Step-by-Step Guide: Removing a User Account From Your Windows 10 PC with Ease</u></a></li>
-<li><a href="https://some-skills.techidaily.com/techs-trailblazers-windows-10-redefines-user-interface-for-2024/"><u>Tech's Trailblazers Windows 10 Redefines User Interface for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-obs-temporal-control-initiating-countdown-features-seamlessly/"><u>[New] 2024 Approved OBS Temporal Control Initiating Countdown Features Seamlessly</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-capture-the-action-crafting-best-in-class-sports-films/"><u>[New] In 2024, Capture the Action Crafting Best-in-Class Sports Films</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-charting-the-course-for-youtube-keyword-mastery/"><u>[New] In 2024, Charting the Course for YouTube Keyword Mastery</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/he-roadmap-how-youtube-is-cultivating-a-flourishing-short-form-video-culture-for-2024/"><u>[New] The Roadmap How YouTube Is Cultivating a Flourishing Short-Form Video Culture for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/mprehensible-and-cost-free-subtitle-downloader-sites/"><u>10 Comprehensible & Cost-Free Subtitle Downloader Sites</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ing-engagement-customizing-your-shorts-first-impressions/"><u>Boosting Engagement Customizing Your Shorts' First Impressions</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-tecno-spark-20-pro-drfone-by-drfone-virtual-android/"><u>Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Tecno Spark 20 Pro? | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/come-creare-file-iso-da-dvd-su-un-mac-inclusi-sistemi-con-big-sur/"><u>Come Creare File ISO Da DVD Su Un Mac, Inclusi Sistemi Con Big Sur</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/hollenhorst-plaques-cholesterol-emboli-within-the-blood-vessels-of-the-eye-may-indicate-systemic-vascular-disease-such-as-carotid-artery-stenosis-or-aortic-145/"><u>Hollenhorst Plaques, Cholesterol Emboli Within the Blood Vessels of the Eye, May Indicate Systemic Vascular Disease Such as Carotid Artery Stenosis or Aortic Aneurysms.</u></a></li>
+<li><a href="https://fox-making.techidaily.com/how-to-compile-and-convert-multiple-pdfs-into-an-engaging-flip-book-with-flipbuilder/"><u>How to Compile and Convert Multiple PDFs Into an Engaging Flip Book with FlipBuilder</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-brilliant-filters-to-illuminate-videography/"><u>In 2024, Brilliant Filters to Illuminate Videography</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-does-find-my-friends-work-on-apple-iphone-13-drfone-by-drfone-virtual-ios/"><u>In 2024, Does find my friends work on Apple iPhone 13 | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-how-to-avoid-the-biggest-slip-ups-for-new-youtube-enthusiasts/"><u>In 2024, How to Avoid the Biggest Slip-Ups for New YouTube Enthusiasts!</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-quick-guide-youtube-videos-for-your-instagram-story/"><u>In 2024, Quick Guide YouTube Videos for Your Instagram Story</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/twists-for-success-top-3-channel-building-tactics-for-2024/"><u>Plot Twists for Success Top 3 Channel-Building Tactics for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/resolving-dev-error-6068-fast-track-guide-optimize-your-mw3-warzone-experience/"><u>Resolving Dev Error 6068 Fast-Track Guide: Optimize Your MW3: Warzone Experience</u></a></li>
 </ul></div>
 

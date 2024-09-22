@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Elevating YouTube Productions with Effective Video Lighting"
-date: 2024-09-13T00:59:00.736Z
-updated: 2024-09-16T19:12:48.923Z
+date: 2024-09-18T03:55:15.807Z
+updated: 2024-09-22T00:54:07.575Z
 tags:
   - ai video
   - ai youtube
@@ -70,22 +70,29 @@ Ceiling lights are also typically situated in the center of a room in order to l
 
 If you rather not deal with all the window and home lighting challenges, you can set up studio lighting in your home.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1. Light Control
 
 The first thing you’ll want to do to set up studio lighting in your home is to pick a room to film in and eliminate as much external lighting as you can. Use blinds, curtains, towels, or any thick fabric to block sunlight from shining into your room.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2. 3-Point Lighting
 
 The most common setup for studio lighting is 3-point lighting. For this kind of lighting you’ll need three lights: a key light, a fill light, and a back light (also called a hair light).
 
 ![3-Point Lighting](https://images.wondershare.com/filmora/article-images/youtube-lighting-3-point-lighting.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Out of the three lights, the key light should be the brightest. When it is positioned to the left of you (as shown in the diagram above) your right side will have shadows.
 
@@ -94,10 +101,10 @@ To minimize the shadows on your right side, use a weaker light as a fill light. 
 Lastly, a backlight positioned behind you can give an appealing highlight to the ends of your head and even help to separate your hair from blending into your background if both happen to be dark.
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043638/7443" target="_top" id="2043638">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043638" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043638/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3. 4-Point Lighting
@@ -113,19 +120,6 @@ For more information on lighting equipment, check out my [Top 17 Video Lighting 
 [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is one of the best video editing software for YouTube beginners to start the YouTube channel. So, if you find the lighting isn't perfect after recording, you can use the Auto Color Enhancement feature in Filmora to adjust the color with one-click. Or, you can change the white balance, Light, color, and HSL manually. Filmora also features some presets and [LUTs templates](https://tools.techidaily.com/wondershare/filmora/download/), which allows you to apply pre-programmed effects to video for color correction faster.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<span id="1993651">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -150,18 +144,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-funny-frenzy-discovering-the-top-tweets-for-laughter/"><u>[New] In 2024, Funny Frenzy Discovering the Top Tweets for Laughter</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-anonymous-fb-story-watcher-app/"><u>[Updated] 2024 Approved Anonymous FB Story Watcher App</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-elevate-every-story-prime-video-editor-apps-for-android/"><u>[Updated] Elevate Every Story Prime Video Editor Apps for Android</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-harmonizing-history-best-theme-songs-in-anime/"><u>[Updated] Harmonizing History Best Theme Songs in Anime</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-design-revolutionaries-discovering-6-icon-and-logo-banks-online/"><u>[Updated] In 2024, Design Revolutionaries Discovering 6 Icon & Logo Banks Online</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-10-best-free-youtube-channel-art-makers/"><u>2024 Approved 10 Best Free YouTube Channel Art Makers</u></a></li>
-<li><a href="https://extra-information.techidaily.com/2024-approved-4k-resolution-unveiled-in-chroma-focused-lenses/"><u>2024 Approved 4K Resolution Unveiled in Chroma-Focused Lenses</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-addressed-hidden-shorters-now-visible/"><u>2024 Approved Addressed Hidden Shorters, Now Visible</u></a></li>
-<li><a href="https://win-answers.techidaily.com/effortless-ways-to-overcome-application-failures-in-word-processor/"><u>Effortless Ways to Overcome Application Failures in Word Processor</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/how-to-make-your-memoji-talk-get-creative-with-your-messaging/"><u>How To Make Your Memoji Talk? Get Creative With Your Messaging</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>In 2024, Hacks to do pokemon go trainer battles For Realme C33 2023 | Dr.fone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-tailoring-youtube-videos-for-igtv-showcase-3-techniques/"><u>In 2024, Tailoring YouTube Videos for IGTV Showcase 3 Techniques</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/quick-remedies-for-skype-sound-malfunctions/"><u>Quick Remedies for Skype Sound Malfunctions</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-iconic-instagram-aesthetics-compilation/"><u>[New] In 2024, Iconic Instagram Aesthetics Compilation</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-metaverse-musings-with-a-twist-of-augmented-reality/"><u>[New] Metaverse Musings with a Twist of Augmented Reality</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-channel-success-strategy-standard-studio-or-beta-edge/"><u>[Updated] Channel Success Strategy Standard Studio or Beta Edge</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-elevating-your-macs-tiktok-opener-quality/"><u>[Updated] Elevating Your Mac's TikTok Opener Quality</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-unlocking-the-full-potential-innovative-techniques-for-youtube-end-screen-designs/"><u>[Updated] In 2024, Unlocking the Full Potential Innovative Techniques for Youtube End Screen Designs</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-streamlining-access-to-subscriber-information/"><u>[Updated] Streamlining Access to Subscriber Information</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-icy-images-cozier-cinematics-best-bgs-selection/"><u>2024 Approved Icy Images, Cozier Cinematics Best Bgs Selection</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-secrets-of-selective-zoom-sharpening-in-google-meet/"><u>2024 Approved Secrets of Selective Zoom Sharpening in Google Meet</u></a></li>
+<li><a href="https://discover-brilliant.techidaily.com/global-enhancement-of-abbyys-artificnial-intelligence-solutions-now-available-globally/"><u>Global Enhancement of ABBYY's Artificnial Intelligence Solutions Now Available Globally</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-incorporating-captions-into-instagrams-video-platform/"><u>In 2024, Incorporating Captions Into Instagram's Video Platform</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-targeted-approach-carving-out-your-space-on-youtube/"><u>In 2024, Targeted Approach Carving Out Your Space on YouTube</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-top-6-online-webcam-recorders-2023/"><u>In 2024, Top 6 Online Webcam Recorders 2023</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-unlock-the-power-of-cutting-for-beginner-editors/"><u>In 2024, Unlock the Power of Cutting for Beginner Editors</u></a></li>
 </ul></div>
 

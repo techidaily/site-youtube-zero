@@ -1,7 +1,7 @@
 ---
 title: "Initiating a Thriving YouTube Channel? Avoid These 8 Essential Blunders for 2024"
-date: 2024-09-09T17:30:37.714Z
-updated: 2024-09-16T21:33:26.339Z
+date: 2024-09-19T16:31:33.379Z
+updated: 2024-09-21T21:13:49.680Z
 tags:
   - ai video
   - ai youtube
@@ -57,18 +57,18 @@ Big YouTubers can take advantage of non-searched, curiosity evoking titles like 
 
 As an example, let's suppose you vlogged your time backpacking around Europe last summer. Don't title your YouTube video "My Summer Backpacking Trip." Instead, title it "Going Up The Eiffel Tower | Beautiful View of Paris!" This way, all the people who are curious about visiting Paris, the Eiffel Tower, and seeing what the view is like from the top of the Eiffel Tower might find your video.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4\. Failing to have a thumbnail strategy
 
 New YouTubers tend to think about their thumbnail images after they’ve finished editing their videos together. This is way too late in the process for something that is so incredibly important in getting views.
 
 Even before filming, you should think about how you’re going to title your video to get the most views. After that, you should then try to picture, in your head, a thumbnail image that matches your title and creates curiosity and excitement. When you go into filming, you can then make sure to include some footage of you recreating that image.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 5\. Making weak intros
 
@@ -85,16 +85,10 @@ An important thing to do as a new YouTuber is engaging with your subscribers. So
 Connecting with your audience shouldn’t just be limited to YouTube either. Use your other social media channels to connect with your audience as well.
 
 <!-- affiliate ads begin -->
-<span id="2135471">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2151894/7443" target="_top" id="2151894">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151894" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151894/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 7\. Not promoting with social media
@@ -102,6 +96,13 @@ Connecting with your audience shouldn’t just be limited to YouTube either. Use
 YouTube isn’t the only social media platform that people are spending their time on. People are spending their time on all kinds of different social media platforms, like Twitter, Facebook, and Instagram. The more content in all of these platforms that you create to promote your video, the more potential your video has to be seen by their users.
 
 New YouTubers sometimes forget to promote their videos and channel using other social media platforms. Consequently, they miss out on the opportunity to get views from multiple sources of social media.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 8\. Spamming comments
 
@@ -112,13 +113,6 @@ But rather than leaving interesting comments that are related to the video, rath
 Spam comments annoy YouTubers. It would be much more beneficial to your channel to build good relationships with other YouTubers to possibly collaborate on a video together in the future.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -141,18 +135,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-the-art-of-producing-captivating-facebook-video-content/"><u>[Updated] 2024 Approved The Art of Producing Captivating Facebook Video Content</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-audio-artisans-crafting-a-personal-library-with-6-best-free-youtube-apps-for-2024/"><u>[Updated] Audio Artisans Crafting a Personal Library with 6 Best Free YouTube Apps for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-ensuring-authenticity-as-you-aspire-for-one-million-video-watches-for-2024/"><u>[Updated] Ensuring Authenticity as You Aspire for One Million Video Watches for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-fading-into-silence-the-subtle-approach-in-fl-studio/"><u>[Updated] Fading Into Silence The Subtle Approach in FL Studio</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-how-to-optimally-apply-a-creative-commons-license/"><u>2024 Approved How to Optimally Apply a Creative Commons License</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/1723204746170-bluetooth-troubles-in-windows-11-quick-tips-to-get-it-working-again/"><u>Bluetooth Troubles in Windows 11? Quick Tips to Get It Working Again!</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/guide-facile-pour-installer-un-logiciel-dlecteur-de-dvd-en-succes-sans-cout-un-parcours-detaille/"><u>Guide Facile Pour Installer Un Logiciel D'Lecteur De DVD en Succès Sans Coût: Un Parcours Détaillé</u></a></li>
-<li><a href="https://driver-error.techidaily.com/improve-mouse-functioning-on-dell-win7-platform/"><u>Improve Mouse Functioning on Dell, Win7 Platform</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-getting-started-with-your-youtube-channel-essentials/"><u>In 2024, Getting Started with Your YouTube Channel – Essentials</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-maximize-engagement-top-8-youtube-ranking-applications/"><u>In 2024, Maximize Engagement - Top 8 YouTube Ranking Applications</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/new-best-10-free-manga-sites-to-read-online-for-2024/"><u>New Best 10 Free Manga Sites to Read Online for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/er-10-decibel-boosters-macos-to-mobile-devices-for-2024/"><u>Premier 10 Decibel Boosters MacOS to Mobile Devices for 2024</u></a></li>
-<li><a href="https://some-tips.techidaily.com/unraveling-the-secrets-to-auditory-harmony-crossfade-for-2024/"><u>Unraveling the Secrets to Auditory Harmony (Crossfade) for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-memorable-narratives-in-book-videos/"><u>[New] Memorable Narratives in Book Videos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-todays-hot-tickets-top-youtube-tracks-for-the-day/"><u>[Updated] In 2024, Today’s Hot Tickets Top Youtube Tracks for the Day</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ve-perfect-views-with-aspect-ratio-knowledge-on-youtube/"><u>Achieve Perfect Views with Aspect Ratio Knowledge on YOUTUBE</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/enhancing-engagement-on-social-platforms-using-chatgpt-writing-tips/"><u>Enhancing Engagement on Social Platforms Using ChatGPT Writing Tips</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/how-to-solve-the-disconnected-from-nvidia-experience-problem-in-win-11/"><u>How to Solve the 'Disconnected From NVIDIA Experience' Problem in Win 11</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-essential-gear-picking-the-very-best-among-top-9-free-logomakers/"><u>In 2024, Essential Gear Picking the Very Best Among Top 9 Free Logomakers</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-unlock-the-secrets-to-12-incredible-gamers-intro-videos-yt-no-cost/"><u>In 2024, Unlock the Secrets to 12 Incredible Gamers' Intro Videos (YT No Cost)</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ring-youtubes-video-comment-features-for-2024/"><u>Mastering YouTube's Video Comment Features for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/remedying-anydesk-disconnections-in-windows-11/"><u>Remedying AnyDesk Disconnections in Windows 11</u></a></li>
 </ul></div>
 

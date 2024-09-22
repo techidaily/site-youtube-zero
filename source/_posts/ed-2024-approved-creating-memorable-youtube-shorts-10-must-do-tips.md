@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Creating Memorable YouTube Shorts - 10 Must-Do Tips\""
-date: 2024-09-12T18:52:16.569Z
-updated: 2024-09-16T16:51:58.918Z
+date: 2024-09-15T22:54:52.352Z
+updated: 2024-09-21T19:42:13.920Z
 tags:
   - ai video
   - ai youtube
@@ -73,6 +73,13 @@ To have a consistent growth of audience on YouTube shorts, you should stick to a
 
 Most of the prominent content creators already apply these **YouTube Shorts tips** in which they first identify their target audience. Based on that, you can work on the type of content that you want to create and share to attain consistent growth on YouTube.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Tip 3: Add Appropriate Background Music to Your Short Videos
 
 One of the best things about YouTube Shorts is that it lets us add a snippet of the music in the background, according to our content. Therefore, you must implement these **tips for** **YouTube Shorts** to make the most of this free feature of the app.
@@ -85,6 +92,13 @@ Now, YouTube will automatically load all kinds of trending music that you can us
 
 As you would select a track, it will automatically be loaded as the background music for your video. Though, you can also select a specific segment of the track and clip it accordingly to place it on your videos the way you like.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Tip 4: Insert Captions and Text Effects on Your Shorts
 
 Apart from music, you can also add all kinds of text effects to make your YouTube Shorts videos appealing. After you have recorded a video, you can just tap on the text option from the bottom/side panel of the app.
@@ -93,33 +107,20 @@ Apart from music, you can also add all kinds of text effects to make your YouTub
 
 You can now type anything and place it on the video to make it more interesting. If you want, you can also implement these **YouTube Shorts tips** to add subtitles or pre/post video captions without any hassle.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Tip 5: Adjust the Playback Speed of YouTube Shorts
 
 Since a lot of content creators are coming up with YouTube Shorts, you would have to walk an extra mile to make them more appealing. In these **YouTube Shorts tricks**, I would recommend adjusting the playback speed of the video.
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-tips-6.jpg)
 
-After recording the video, you can tap on the speed icon from the bottom/side panel. Here, you can make your videos play in slow motion or fast forward (in a range of 0.3x to 3x). This will add seamless speed control features to your videos without any technical issues.
-
 <!-- affiliate ads begin -->
-<span id="1492813">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+After recording the video, you can tap on the speed icon from the bottom/side panel. Here, you can make your videos play in slow motion or fast forward (in a range of 0.3x to 3x). This will add seamless speed control features to your videos without any technical issues.
 
 ### Tip 6: Consider the Overall Length of Your Shorts Video
 
@@ -127,20 +128,27 @@ Even though the maximum length of the YouTube Shorts videos is 60 seconds, you d
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-tips-7.jpg)
 
-Remember, your goal is to come up with crisp and interesting content via YouTube Shorts. To implement these **YouTube Shorts tips**, you can consider the ideal length of 30-45 seconds and only have essential content in your videos.
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047346/19272" target="_top" id="2047346">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047346" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047346/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+Remember, your goal is to come up with crisp and interesting content via YouTube Shorts. To implement these **YouTube Shorts tips**, you can consider the ideal length of 30-45 seconds and only have essential content in your videos.
 
 ### Tip 7: Use the Timer Feature to Shoot Your Videos Correctly
 
 A lot of people make the rookie mistake of shooting their videos for too long in Shorts. Therefore, if you want to implement these **YouTube Shorts tips and tricks**, then consider using the timer feature of the app.
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-tips-8.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Before shooting the video, you can tap on the timer button from the bottom and set up a preferred duration for it (like 10 or 15 seconds). In this way, you can be sure that you won’t go overboard and keep your videos short automatically.
 
@@ -149,13 +157,6 @@ Before shooting the video, you can tap on the timer button from the bottom and s
 Great! Now when you have recorded and edited your video by applying these **tips for YouTube Shorts**, you are ready to post them. While posting your videos, you would be asked whether the video is targeted at kids or not. If the video is made for kids, then you should select the relevant prompt, as YouTube would improve the overall visibility of your videos in this case.
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-tips-9.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Though, if your videos are targeted at adults, then you should go with the second option instead. This would help you reach out to your target audience on YouTube easily.
 
@@ -174,13 +175,6 @@ Lastly, posting the YouTube Shorts video is not enough, as you should also promo
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-tips-11.jpg)
 
 You can also post your YouTube Shorts on other popular social media platforms like Facebook, Twitter, Reddit, WhatsApp, Instagram, etc. by sharing their link. In this way, you can easily redirect your audience from other platforms and increase the visibility of your video.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115943/19272" target="_top" id="2115943">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115943" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115943/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Bonus Tip: Use a Professional Editor for Your YouTube Shorts Videos
 
@@ -219,20 +213,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-building-a-sustainable-income-via-youtube-and-adsense/"><u>[New] Building a Sustainable Income via YouTube and AdSense</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/n-2024-building-a-fanbase-with-youtube-streams/"><u>[New] In 2024, Building a Fanbase with YouTube Streams</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/avory-screens-culinary-content-creation/"><u>[New] Savory Screens Culinary Content Creation</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2-ways-to-increase-your-youtube-audience-fast/"><u>[Updated] 2 Ways to Increase Your YouTube Audience Fast</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-extracting-youtube-content-with-ease/"><u>[Updated] 2024 Approved Extracting YouTube Content with Ease</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-effective-strategies-for-capturing-online-gatherings-mac-pc/"><u>[Updated] In 2024, Effective Strategies for Capturing Online Gatherings (Mac, PC)</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-the-ultimate-playbook-for-captivating-youtube-audiences-with-strategic-banners/"><u>[Updated] In 2024, The Ultimate Playbook for Captivating YouTube Audiences with Strategic Banners</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-mastering-pixlr-15-essential-tips-for-enhanced-editing/"><u>[Updated] Mastering Pixlr 15 Essential Tips for Enhanced Editing</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-sonic-overlay-for-serene-scenery-on-screens-for-2024/"><u>[Updated] Sonic Overlay for Serene Scenery on Screens for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-a-streamlined-system-for-scrutinizing-youtube-subscriber-profits-3-step-guide/"><u>2024 Approved A Streamlined System for Scrutinizing YouTube Subscriber Profits 3-Step Guide</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-films-finest-closure-kits-grab-em-without-cost/"><u>2024 Approved Film's Finest Closure Kits – Grab 'Em Without Cost</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-trend-driven-infographics-the-leaders-in-23/"><u>2024 Approved Trend-Driven Infographics The Leaders in '23</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/experience-next-level-analytics-and-personalization-powered-by-cookiebot-technology/"><u>Experience Next-Level Analytics and Personalization Powered by Cookiebot Technology</u></a></li>
-<li><a href="https://blog-min.techidaily.com/guide-to-blurpixelating-videos-without-cost-how-to-tutorial/"><u>Guide to Blur/Pixelating Videos Without Cost - How-To Tutorial</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-capture-your-skype-conversations-on-any-system/"><u>In 2024, Capture Your Skype Conversations on Any System</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/reators-vs-youtubes-profit-policies-for-2024/"><u>[New] Creators Vs. YouTube's Profit Policies for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/iscover-the-visionaries-behind-video-content-six-intriguing-youtube-categorization-challenges/"><u>[New] Discover the Visionaries Behind Video Content Six Intriguing YouTube Categorization Challenges</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/he-rising-tide-of-infographics-for-social-insights-for-2024/"><u>[New] The Rising Tide of Infographics for Social Insights for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-secrets-to-stellar-youtube-livestreaming-top-cameras/"><u>[Updated] 2024 Approved Secrets to Stellar YouTube Livestreaming - Top Cameras</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-exploring-differences-in-vimeo-and-youtube-services-for-2024/"><u>[Updated] Exploring Differences in Vimeo & YouTube Services for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-discover-the-leading-ai-driven-podcast-name-creator-tools/"><u>[Updated] In 2024, Discover the Leading AI-Driven Podcast Name Creator Tools</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-journey-to-picture-perfection-iphone-tips-for-stunning-skylines/"><u>[Updated] Journey to Picture Perfection IPhone Tips for Stunning Skylines</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-youtube-studio-audit-earnings-review/"><u>2024 Approved YouTube Studio Audit Earnings Review</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-infinix-note-30-frp-in-3-different-ways-by-drfone-android/"><u>How To Bypass Infinix Note 30 FRP In 3 Different Ways</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-apple-iphone-se-location-on-skout-drfone-by-drfone-virtual-ios/"><u>How to Change Apple iPhone SE Location on Skout | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/o-use-video-titles-and-youtube-tags-for-more-views-for-2024/"><u>How to Use Video Titles and YouTube Tags for More Views for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/leveraging-hashtags-and-mentions-for-2024/"><u>Leveraging Hashtags and Mentions for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/los-top-12-herramientas-de-conversion-de-video-libres-en-4k-para-computadoras-y-macs/"><u>Los Top 12 Herramientas De Conversión De Video Libres en 4K Para Computadoras Y Macs</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/samsung-and-sk-hynix-cease-ddr3-manufacturing-prioritizing-the-surge-in-hbm3-memory-chip-demand/"><u>Samsung & SK Hynix Cease DDR3 Manufacturing: Prioritizing the Surge in HBM3 Memory Chip Demand</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/top-6-fiscal-picks-in-the-4k-projector-market/"><u>Top 6 Fiscal Picks in the 4K Projector Market</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/why-does-instagram-keep-flipping-my-videos/"><u>Why Does Instagram Keep Flipping My Videos?</u></a></li>
 </ul></div>
 

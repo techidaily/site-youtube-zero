@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Binge on Christmas Classics  Enjoy 9 Whole-Film Flicks No Charge!\""
-date: 2024-09-09T22:08:46.845Z
-updated: 2024-09-16T23:43:24.829Z
+date: 2024-09-16T16:27:55.684Z
+updated: 2024-09-21T18:42:51.852Z
 tags:
   - ai video
   - ai youtube
@@ -44,10 +44,10 @@ A Smoky Mountain Christmas is a film from 1986 directed by Harry Winkler and sta
 This film from 1989 features Jim Varney and his most famous character Ernest in a holiday Christmas movie that is an instant classic. This film is very funny and a favorite amongst some of the Ernest films for many. This Christmas movie from 1989 can be found at:
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111994/7443" target="_top" id="2111994">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111994" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111994/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4. A Christmas story
@@ -58,13 +58,6 @@ A Christmas story has long been one of the favorite Christmas movies for many fa
 
 In this film from 1998 we hear the story of the richest kid in the world on Christmas. In this film we see the richest in the world wishing that he had never been born with the wish coming true. Richie needs to find himself a new wishing machine and a way out of the parallel universe he gets stuck in to get back to his family. You can find this film at:
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 6. On the second day of Christmas
 
 This film stars the hulk Mark Ruffalo in one of his earlier roles as a store employee who catches a con woman trying to steal from a department store on Christmas. His character agrees to be responsible for the con woman and her niece over the holidays to prevent them from staying with social services. A romance develops! This 1997 film can be found at:
@@ -74,10 +67,10 @@ This film stars the hulk Mark Ruffalo in one of his earlier roles as a store emp
 Santa who is a film from the year 2000 starring Leslie Nielsen. In this holiday classic Santa suffers a severe case of amnesia on Christmas Eve and needs to recover for Christmas day in order to make it through and deliver presents to all of the good children of the world. See if Santa gets his Christmas memories back by watching Santa Who here:
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 8. A Christmas Carol
@@ -89,6 +82,13 @@ In this film from 1984 George C Scott brings to life the role of Ebenezer Scroog
 In this recreation of the original film from 1947 this shortened full-length version from 1955 per trade is the classic story of santa on trial. A department store Santa suggests that he's the real santa and goes on trial to prove it. In this version of miracle on 34th Street starring Thomas Mitchell and Macdonald Carey we learn who really believes in Santa Claus. You can find this classic film here:
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528681/16446" target="_top" id="1528681">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528681" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528681/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -111,17 +111,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-premier-tech-to-record-your-on-air-video-on-youtube/"><u>[New] In 2024, Premier Tech to Record Your On-Air Video on YouTube</u></a></li>
-<li><a href="https://techtrends.techidaily.com/2024mp4mp3/"><u>【2024年モデル】MP4動画からMP3への変換ソフト選び！詳しい手順とポイント解説</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-from-novice-to-pro-the-complete-guide-to-greenscreen-in-kinemaster/"><u>2024 Approved From Novice to Pro The Complete Guide to Greenscreen in KineMaster</u></a></li>
-<li><a href="https://some-tips.techidaily.com/2024-approved-ultimate-black-battery-setups-for-gopro-hero5-genuine-and-imitators/"><u>2024 Approved Ultimate Black Battery Setups for GoPro Hero5 – Genuine & Imitators</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/g-history-told-by-top-video-makers-for-2024/"><u>Gaming History Told by Top Video Makers for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/o-embed-a-youtube-video-in-powerpoint-4-methods/"><u>How to Embed a YouTube Video in PowerPoint [4 Methods]</u></a></li>
-<li><a href="https://howto.techidaily.com/how-to-quickly-fix-bluetooth-not-working-on-oppo-reno-9a-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Quickly Fix Bluetooth Not Working on Oppo Reno 9A | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-oppo-k11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Oppo K11 5G? | Dr.fone</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-savory-storytelling-in-video-cooking-top-7-insights/"><u>In 2024, Savory Storytelling in Video Cooking - Top 7 Insights</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-the-new-era-of-content-creation-and-profitability/"><u>In 2024, The New Era of Content Creation and Profitability</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/top-10-samsung-galaxy-a05-android-sim-unlock-apk-by-drfone-android/"><u>Top 10 Samsung Galaxy A05 Android SIM Unlock APK</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/two-ways-to-track-my-boyfriends-tecno-camon-30-pro-5g-without-him-knowing-drfone-by-drfone-virtual-android/"><u>Two Ways to Track My Boyfriends Tecno Camon 30 Pro 5G without Him Knowing | Dr.fone</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-capitalizing-on-hairstyle-demonstrations/"><u>[New] In 2024, Capitalizing on Hairstyle Demonstrations</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ransform-your-life-top-10-premium-yoga-streams-unleashed-for-2024/"><u>[New] Transform Your Life Top 10 Premium Yoga Streams Unleashed for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-carbon-footprint-reduction-in-the-cityscape-revolution/"><u>[Updated] 2024 Approved Carbon Footprint Reduction in the Cityscape Revolution</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-tasty-trailblazers-culinary-youtube-icons/"><u>[Updated] 2024 Approved Tasty Trailblazers Culinary YouTube Icons</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-youtube-mastery-tips-for-producing-cutting-edge-videos/"><u>[Updated] 2024 Approved YouTube Mastery Tips for Producing Cutting-Edge Videos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-the-beginners-checklist-8-key-slip-ups-in-youtube-creation/"><u>[Updated] In 2024, The Beginner's Checklist 8 Key Slip-Ups in YouTube Creation</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-unlocking-video-potential-the-best-vlogging-cameras-ranked/"><u>2024 Approved Unlocking Video Potential The Best Vlogging Cameras Ranked</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/s-the-archived-unique-methods-for-viewing-old-youtube/"><u>Access the Archived Unique Methods for Viewing Old YouTube</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/deciding-the-best-code-companion-github-copilot-or-gpt/"><u>Deciding the Best Code Companion: GitHub Copilot or GPT?</u></a></li>
+<li><a href="https://win-able.techidaily.com/guide-specify-and-control-your-print-zone-within-an-excel-spreadsheet/"><u>Guide: Specify and Control Your Print Zone Within an Excel Spreadsheet</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-cinematic-capture-top-picks-from-video-experts/"><u>In 2024, Cinematic Capture Top Picks From Video Experts</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-instant-sticker-transformation-your-guide-to-making-gifs-pop-in-telegram-and-more/"><u>In 2024, Instant Sticker Transformation Your Guide to Making GIFs Pop in Telegram & More</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-mastering-the-art-of-capturing-dynamic-images-on-ios-devices/"><u>In 2024, Mastering the Art of Capturing Dynamic Images on iOS Devices</u></a></li>
+<li><a href="https://driver-download.techidaily.com/quick-and-simple-guide-hp-envy-5660-drivers-downloading-and-installation/"><u>Quick and Simple Guide: HP Envy 5660 Drivers Downloading & Installation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-top-performers-best-smart-audio-gadgets-revealed/"><u>Unveiling the Top Performers: Best Smart Audio Gadgets Revealed</u></a></li>
 </ul></div>
 
