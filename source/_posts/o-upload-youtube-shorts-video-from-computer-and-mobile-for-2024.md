@@ -1,7 +1,7 @@
 ---
 title: "How to Upload YouTube Shorts Video From Computer and Mobile for 2024"
-date: 2024-09-14T20:40:58.599Z
-updated: 2024-09-22T00:19:16.459Z
+date: 2024-09-24T16:44:01.983Z
+updated: 2024-09-28T16:11:18.004Z
 tags:
   - ai video
   - ai youtube
@@ -101,6 +101,13 @@ On your Android or iOS smartphone, launch the YouTube app, tap the **+** (**Crea
 
 ![add details to Shorts video](https://images.wondershare.com/filmora/article-images/add-details-to-youtube-shrots-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 On the next screen, tap **NEXT**, user the **Music** and **Text** icons at the bottom-left corner to add a background music and caption to the video respectively, and tap **NEXT** from the top-right corner. On the next screen, enter a name for the video in the **Title** field along with the **#Shorts** tag, and tap **Select audience** to choose your preferred audience.
 
 #### Step 3: Upload the Video
@@ -108,10 +115,10 @@ On the next screen, tap **NEXT**, user the **Music** and **Text** icons at the b
 Finally tap **UPLOAD** from the top-right corner to upload the short video on YouTube.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105866/7443" target="_top" id="2105866">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Method 2: Record a Short Video and Upload
@@ -146,13 +153,26 @@ Learning the process of **how to post short videos on YouTube** is fairly simple
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="864" height="1296" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100529/7443" target="_top" id="2100529">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -174,5 +194,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-fast-track-to-short-video-treasure-troves-free-access/"><u>[New] 2024 Approved Fast Track to Short Video Treasure Troves (Free Access)</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-the-top-rated-8-android-tools-for-team-video-calls/"><u>[New] 2024 Approved The Top-Rated 8 Android Tools for Team Video Calls</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-flight-expertise-unleashed-an-examination-of-dji-phantom-3-for-2024/"><u>[Updated] Flight Expertise Unleashed An Examination of DJI Phantom 3 for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-explore-online-communities-with-youtube-monetization-opportunities/"><u>[Updated] In 2024, Explore Online Communities with YouTube Monetization Opportunities</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-daily-vlogging-ideas-what-to-talk-about-while-vlogging/"><u>2024 Approved Daily Vlogging Ideas What to Talk About While Vlogging?</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-mastering-fast-thumbnail-design-for-valorants-highlighted-screenshots/"><u>2024 Approved Mastering Fast Thumbnail Design for Valorant's Highlighted Screenshots</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-the-ultimate-tutorial-on-permanently-removing-your-instagram-profile/"><u>2024 Approved The Ultimate Tutorial on Permanently Removing Your Instagram Profile</u></a></li>
+<li><a href="https://fox-http.techidaily.com/cinematic-footage-showdown-gopro-and-sj7-for-2024/"><u>Cinematic Footage Showdown GoPro & SJ7 for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/excels-visualization-brilliance-chatgpt-counterpart-lacks-this/"><u>Excel's Visualization Brilliance: ChatGPT Counterpart Lacks This</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-fix-unresponsive-phone-touchscreen-of-nokia-c110-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Unresponsive Phone Touchscreen Of Nokia C110 | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-boost-your-earnings-on-youtube-shorts-a-guide/"><u>In 2024, Boost Your Earnings on YouTube Shorts A Guide</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-effortlessly-replay-videos-on-iphone/"><u>In 2024, Effortlessly Replay Videos on iPhone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-get-more-from-tiny-screens-top-6-youtube-shorts-downloader-apps/"><u>In 2024, Get More From Tiny Screens Top 6 YouTube Shorts Downloader Apps</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/e-filmmaking-mastery-creating-impactful-youtube-thumbnails/"><u>Mobile Filmmaking Mastery Creating Impactful YouTube Thumbnails</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/new-in-2024-live-shopping-in-china-major-changes-in-the-industry/"><u>New In 2024, Live Shopping in China Major Changes in the Industry</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/process-of-screen-sharing-tecno-pova-6-pro-5g-to-pc-detailed-steps-drfone-by-drfone-android/"><u>Process of Screen Sharing Tecno Pova 6 Pro 5G to PC- Detailed Steps | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ng-into-youtubes-affiliate-income-streams-for-2024/"><u>Tapping Into YouTube's Affiliate Income Streams for 2024</u></a></li>
+</ul></div>
 

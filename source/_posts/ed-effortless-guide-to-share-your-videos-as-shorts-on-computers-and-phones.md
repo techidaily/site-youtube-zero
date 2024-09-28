@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Effortless Guide to Share Your Videos as Shorts on Computers & Phones"
-date: 2024-09-21T00:15:48.503Z
-updated: 2024-09-22T03:44:19.334Z
+date: 2024-09-22T16:27:55.937Z
+updated: 2024-09-28T16:06:31.176Z
 tags:
   - ai video
   - ai youtube
@@ -81,6 +81,13 @@ For macOS 10.12 or later
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to Upload Short Video on YouTube Mobile App?
 
 The process of **uploading YouTube Shorts** from the mobile app is fairly simple compared to the method used on a computer. While using the app, you can either upload an existing video or shoot a new one from within the program itself then and there, add music and text, and upload it right away. Both these methods are explained below in detail:
@@ -107,6 +114,13 @@ On the next screen, tap **NEXT**, user the **Music** and **Text** icons at the b
 
 Finally tap **UPLOAD** from the top-right corner to upload the short video on YouTube.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Method 2: Record a Short Video and Upload
 
 **Step 1:** Record Shorts Video
@@ -116,6 +130,13 @@ Previously, I have introduced [how to record and upload YouTube Shorts videos](h
 Please note you will not see the **Create a Short** option if you are outsides of India.
 
 ![ Record YouTube Shorts video](https://images.wondershare.com/filmora/article-images/record-create-youtube-short-video-mobile.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1175223/12108" target="_top" id="1175223">
+  <img src="//a.impactradius-go.com/display-ad/12108-1175223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1175223/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 In the YouTube app, tap the **+** (**Add**) button and select **Create** **a Short**. Please note you will not see the **Create a Short** option if you are outsides of India.
 
@@ -133,13 +154,6 @@ On the **Add details** window, enter a name for the video along with the **#Shor
 
 **[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)**
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Conclusion**
 
 Learning the process of **how to post short videos on YouTube** is fairly simple as long as you have the video recorded in the portrait orientation, it is up to 60 seconds long, and contains the ‘#Shorts’ tag (without quotes) in the title or description. The good thing is, if you don’t have access to the YouTube app on your smartphone, the method for **how to upload short video on YouTube** explained in the first section can be followed while using your desktop computer.
@@ -147,10 +161,10 @@ Learning the process of **how to post short videos on YouTube** is fairly simple
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -174,5 +188,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-instagram-speed-demos-like-video-duo-for-rapid-growth/"><u>[New] 2024 Approved Instagram Speed Demos Like-Video Duo for Rapid Growth</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-music-upload-essentials-your-youtube-journey/"><u>[New] 2024 Approved Music Upload Essentials Your YouTube Journey</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-setting-the-scene-ideal-video-aspect-ratios-and-widths-for-youtube/"><u>[New] 2024 Approved Setting the Scene Ideal Video Aspect Ratios & Widths for YouTube</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-discover-how-to-get-high-quality-images-at-zero-cost/"><u>[New] In 2024, Discover How To Get High-Quality Images at Zero Cost</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-regular-vlogger-discussion-guidelines/"><u>[Updated] 2024 Approved Regular Vlogger Discussion Guidelines</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-ideal-selections-the-best-9-mobile-video-meeting-solutions-reviewed-for-2024/"><u>[Updated] Ideal Selections The Best 9 Mobile Video Meeting Solutions Reviewed for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-examining-youtubers-monthly-revenue-strategies/"><u>[Updated] In 2024, Examining YouTubers' Monthly Revenue Strategies</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-step-by-step-guide-to-saving-google-meet-interactions/"><u>2024 Approved Step-by-Step Guide to Saving Google Meet Interactions</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-turbocharge-youtube-videos-efficient-rendering-fast-transfer/"><u>2024 Approved Turbocharge YouTube Videos Efficient Rendering, Fast Transfer</u></a></li>
+<li><a href="https://win-top.techidaily.com/3g2wma-movavi/"><u>在線自由改制3G2到WMA的方法 - 如何使用 Movavi 轉錄器簡化流程</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-10-premier-yoga-educators-on-youtube/"><u>In 2024, 10 Premier Yoga Educators on YouTube</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/official-language-in-croatia/"><u>Official Language in Croatia</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/understanding-the-move-windows-11-focuses-on-microsoft-store-limiting-traditional-desktop-app-support-win32/"><u>Understanding the Move: Windows 11 Focuses on Microsoft Store, Limiting Traditional Desktop App Support (Win32)</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Capturing the Best Visuals in Vlogs"
-date: 2024-09-21T04:12:02.833Z
-updated: 2024-09-21T22:53:44.577Z
+date: 2024-09-21T16:15:03.698Z
+updated: 2024-09-28T16:40:06.069Z
 tags:
   - ai video
   - ai youtube
@@ -49,7 +49,21 @@ The **fill light** is less bright than the primary source of light and it is pla
 
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Watch Video! Top Lighting Tips for Vlogging
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Lightning Tips for Aspiring YouTube Videographers
 
@@ -83,11 +97,25 @@ If you are hosting a **beauty vlog** then you might consider a slightly differen
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484951/16446" target="_top" id="1484951">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484951" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484951/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
 
 If you are stuck shooting in **low light conditions** it is best to use a lens with a wider aperture/lower f-stop. This will make the best of the light you do have.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
+  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -108,12 +136,18 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036486/19272" target="_top" id="2036486">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036486" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036486/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/omparative-assessment-youtube-vs-dailymention-for-2024/"><u>[New] Comparative Assessment YouTube Vs. DailyMention for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-unraveling-youtubes-ranks-the-deciding-elements/"><u>[New] In 2024, Unraveling YouTube's Ranks The Deciding Elements</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nleashing-creativity-converting-youtube-videos-into-captivating-gifs-for-2024/"><u>[New] Unleashing Creativity Converting YouTube Videos Into Captivating GIFs for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-conquering-capture-a-detailed-walkthrough-for-ps4-recordings-for-2024/"><u>[Updated] Conquering Capture A Detailed Walkthrough for PS4 Recordings for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-pro-level-5-digital-media-recorders-online-for-2024/"><u>[Updated] Pro-Level 5 Digital Media Recorders Online for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-securing-sound-speed-increase-in-the-digital-world-of-spotify/"><u>[Updated] Securing Sound Speed Increase in the Digital World of Spotify</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/1-unleash-video-magic-mastering-spectacular-effects-and-filters/"><u>1. Unleash Video Magic: Mastering Spectacular Effects & Filters</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-ensuring-legal-compliance-in-skype-recordings-via-obs/"><u>2024 Approved Ensuring Legal Compliance in Skype Recordings via OBS</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ng-edge-techniques-youtube-trailers-through-filmoras-lens-for-2024/"><u>Cutting Edge Techniques YouTube Trailers Through Filmora's Lens for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-make-the-most-of-your-apple-iphone-14-plus-lock-screen-with-notifications-drfone-by-drfone-ios/"><u>In 2024, How to Make the Most of Your Apple iPhone 14 Plus Lock Screen with Notifications? | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ast-an-analysis-of-assets-for-2024/"><u>Mr. Beast An Analysis of Assets for 2024</u></a></li>
+</ul></div>
 

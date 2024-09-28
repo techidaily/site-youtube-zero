@@ -1,7 +1,7 @@
 ---
 title: "[New] Affordable Strategies for Engaging YouTube Opening & End Titles for 2024"
-date: 2024-09-16T02:43:00.422Z
-updated: 2024-09-22T03:44:28.226Z
+date: 2024-09-21T16:03:58.943Z
+updated: 2024-09-28T16:41:51.220Z
 tags:
   - ai video
   - ai youtube
@@ -82,6 +82,13 @@ You can create a simple intro card in **Filmora**.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100530/7443" target="_top" id="2100530">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100530/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -117,6 +124,19 @@ Some creators will leave their end cards at that and play music overtop, but it 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1702748">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -136,12 +156,22 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043617/7443" target="_top" id="2043617">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043617" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043617/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-channel-cashflow-effective-tactics-for-monetizing-on-mobile-devices/"><u>[New] 2024 Approved Channel Cashflow Effective Tactics for Monetizing on Mobile Devices</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-finding-the-balance-adding-videos-to-text-on-a-budget/"><u>[New] 2024 Approved Finding the Balance Adding Videos to Text on a Budget</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nfographic-top-insights-into-fifa-football-videos-on-youtube-for-2024/"><u>[New] Infographic - Top Insights Into FIFA Football Videos On YouTube for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/uicksnip-videosuite-for-2024/"><u>[New] QuickSnip VideoSuite for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-voicing-victory-tactics-in-free-fire-games-for-2024/"><u>[New] Voicing Victory Tactics in Free Fire Games for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-best-5-ios-apps-for-efficient-podcasting/"><u>[Updated] Best 5 iOS Apps for Efficient Podcasting</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-backgroundannihilator-professional-erase-software/"><u>[Updated] In 2024, BackgroundAnnihilator Professional Erase Software</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-mobile-music-mayhem-selecting-distorted-apps/"><u>[Updated] In 2024, Mobile Music Mayhem Selecting Distorted Apps</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-top-techniques-for-broadcasting-fb-live-on-cable/"><u>[Updated] Top Techniques for Broadcasting FB Live on Cable</u></a></li>
+<li><a href="https://techidaily.com/how-to-erase-apple-iphone-x-data-permanently-drfone-by-drfone-ios-full-data-eraser-ios-full-data-eraser/"><u>How To Erase Apple iPhone X Data Permanently | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-ace-your-edits-youtube-studios-time-saving-secrets-revealed/"><u>In 2024, Ace Your Edits YouTube Studio's Time-Saving Secrets Revealed</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-unleash-the-power-of-optimization-5-secrets-to-skyrocket-your-audience/"><u>In 2024, Unleash the Power of Optimization 5 Secrets to Skyrocket Your Audience</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/instantly-fashion-company-symbols-with-open-source-tools-for-2024/"><u>Instantly Fashion Company Symbols with Open-Source Tools for 2024</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/navigating-the-digital-world-with-abbyy-top-tips-for-image-processing-qr-codes-online-networks-and-real-time-exchange-rates/"><u>Navigating the Digital World with ABBYY: Top Tips for Image Processing, QR Codes, Online Networks & Real-Time Exchange Rates</u></a></li>
+<li><a href="https://solve-helper.techidaily.com/seamless-youtube-uploads-a-step-by-step-guide-to-changing-wmv-file-format/"><u>Seamless YouTube Uploads: A Step-by-Step Guide to Changing WMV File Format</u></a></li>
+</ul></div>
 

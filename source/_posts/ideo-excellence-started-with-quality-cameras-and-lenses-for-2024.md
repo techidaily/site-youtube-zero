@@ -1,7 +1,7 @@
 ---
 title: "[New] Video Excellence Started with Quality Cameras and Lenses for 2024"
-date: 2024-09-14T17:51:43.567Z
-updated: 2024-09-21T18:13:31.560Z
+date: 2024-09-26T16:07:05.662Z
+updated: 2024-09-28T16:19:43.945Z
 tags:
   - ai video
   - ai youtube
@@ -39,6 +39,13 @@ We have explained the differences between Fixed lens and Zoom lens and advantage
 
 Before we get into the recommendations here is a little background information on lenses in general:
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Beginner's Guide to Aperture and F-Stops
 
 In order to be able to select the lens you'll be using to record your YouTube videos, you first need to understand a few very basic concepts, such as aperture or f-stops.
@@ -56,6 +63,19 @@ Light passes through your lens’s aperture on its way to your camera’s sensor
 F-stops are written like ‘f/1.8’ or ‘f/4’ on your lens. For more information on f-stops and blurring your background read “The Best Bokeh Lens - How to Get the Blurred Background for YouTube Videos” and watch Tasha’s video.
 
 **F-stops** or f-numbers indicate how open the aperture is, so for example if your camera is displaying f/32 value it means that your camera is letting very little light to get through to the camera's sensor. The f-number depends on a few other parameters such as shutter speed, exposure or ISO values. Large apertures provide a shallow depth of field which creates a smooth and artistic background blur, while a small aperture enables you to keep both the background and the foreground of your shot in focus.
+
+<!-- affiliate ads begin -->
+<span id="1993647">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2: Types of Camera Lenses
 
@@ -106,6 +126,13 @@ Canon released this lens in 2014 and shortly after it has gained the reputation 
 
 ![camera lens](https://images.wondershare.com/filmora/article-images/camera-lens-rec01.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938693/19272" target="_top" id="1938693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The EF 50mm is a fixed lens with an f-stop of 1.8, which means it is great for blurring your background and performs well even in poorer lighting conditions. This is a really great lens for an opinion or beauty vlog, where you do not need to move around. You can stay put right where the focus is sharpest and stand out by blurring everything behind you. If you tend to reuse the same sets then you do not really need a zoom feature. If your shooting conditions rarely change then it is just as easy to use a reliable fixed lens like the EF 50mm since you will not need to be rethinking your set up and adjusting.
 
 If you are looking for an inexpensive prime lens that lets you create sharp videos with shallow depth of field, you should look no further. This model is one of three Canon's 50mm prime lenses, although the [50mm f/1.4 USM](https://www.amazon.com/Canon-Standard-Medium-Telephoto-Cameras/dp/B00009XVCZ/ref=as%5Fli%5Fss%5Ftl?ie=UTF8&qid=1438974280&sr=8-3&keywords=Canon+50+mm&linkCode=sl1&tag=omnideals-20&linkId=11bff1019e73f0462c30a04e98d4874f&linkCode=w61&imprToken=ZJIXM-O6nkoYz.LvcTe) and [50mm f/1.2 'L' USM](https://www.amazon.com/Canon-50mm-Lens-Digital-Cameras/dp/B000I1YIDQ/ref=as%5Fli%5Fss%5Ftl?ie=UTF8&qid=1438974280&sr=8-4&keywords=Canon+50+mm&linkCode=sl1&tag=omnideals-20&linkId=d77bb813550f12e8aa72c8738dfaad81&linkCode=w61&imprToken=ZJIXM-O6nkoYz.LvcTeAiw&slot) models are much more expensive. You can use it to record a lot of different types of YouTube videos, like product reviews or makeup tutorials. The 50 mm f/1.8 STM lens doesn't have image stabilization technology so you should try to be as still as you can possibly be when shooting handheld videos in order to avoid recording footage that has a lot of camera shakes.
@@ -119,10 +146,10 @@ Recording **moving objects** from a distance requires you to have a lens that al
 ![camera lens rec02](https://images.wondershare.com/filmora/article-images/camera-lens-rec02.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148634/16836" target="_top" id="2148634">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148634" border="0" alt="https://techidaily.com" width="80" height="31"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148634/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 The Tamron's standard zoom lens offers good value at a very reasonable price. The maximum aperture is f/2.8, while the minimum aperture value this lens supports is f/32, which means that its users can easily experiment with different **depths of field.** The lens is **compatible with most Canon cameras** so if you have a camera from another manufacturer you may have to use the lens adapter in order to mount it onto your camera. Like most standard zoom lenses, Tamron SP AF model is **highly versatile** and you can use it to record **a wide range of different scenes**.
@@ -136,13 +163,6 @@ All Sony's APS-C format E mount cameras are compatible with this multi-purpose l
 If you are using a 4k camera to shoot your YouTube video, check out [best camera lens for 4k professional production.](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -163,5 +183,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-the-smudge-solution-blurring-visions-in-video-content/"><u>[New] 2024 Approved The Smudge Solution Blurring Visions in Video Content</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-trendsetting-tags-top-10-to-make-your-post-pop/"><u>[New] 2024 Approved Trendsetting Tags Top 10 To Make Your Post Pop</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/rom-genres-to-gems-building-a-personalized-youtube-music-mix-onlinemobile-for-2024/"><u>[New] From Genres to Gems Building a Personalized YouTube Music Mix Online/Mobile for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/erfecting-your-videos-narrative-integrating-timestamps-smartly/"><u>[New] Perfecting Your Video's Narrative Integrating Timestamps Smartly</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-professional-photography-hacks-top-cinematic-tips/"><u>[New] Professional Photography Hacks Top Cinematic Tips</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/implify-cross-platform-sharing-convert-spotify-lists-to-youtube-seamlessly/"><u>[New] Simplify Cross-Platform Sharing Convert Spotify Lists to YouTube Seamlessly</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-masters-designing-virtual-marvel-realms/"><u>[Updated] 2024 Approved Masters Designing Virtual Marvel Realms</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-professional-level-youtube-editing-techniques-you-need-to-know/"><u>[Updated] 2024 Approved Professional-Level Youtube Editing Techniques You Need To Know</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-leaders-list-of-gps-drones-with-precision-tracking/"><u>[Updated] Leader's List of GPS Drones with Precision Tracking</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-free-youtube-artwork-hacks-snag-high-res-thumbnails-now/"><u>2024 Approved Free YouTube Artwork Hacks - Snag High-Res Thumbnails Now</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-giggles-on-iphones/"><u>2024 Approved Giggles on iPhones</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-overcome-vanished-youtube-minute-media/"><u>In 2024, Overcome Vanished YouTube Minute Media</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/age-your-vfx-work-with-these-8-top-sites-offering-free-green-screen-resources/"><u>Leverage Your VFX Work with These 8 Top Sites Offering Free Green Screen Resources</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-best-aif-to-mp3-converter-convert-audio-files-easily-and-quickly/"><u>New Best AIF to MP3 Converter Convert Audio Files Easily and Quickly</u></a></li>
+<li><a href="https://win-able.techidaily.com/solve-endless-loading-on-anthem-a-comprehensive-fix-guide/"><u>Solve Endless Loading on Anthem: A Comprehensive Fix Guide</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/summer-survival-kit-discover-the-7-key-elements-for-your-daily-travel-pack/"><u>Summer Survival Kit: Discover the 7 Key Elements for Your Daily Travel Pack</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/the-finest-ps1-emulators-for-seamless-gaming-experience-for-2024/"><u>The Finest PS1 Emulators for Seamless Gaming Experience for 2024</u></a></li>
+</ul></div>
 

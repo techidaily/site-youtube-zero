@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Boost Your Engagement Now! - Discover These Key YouTube Shortcuts\""
-date: 2024-09-17T00:09:29.763Z
-updated: 2024-09-21T19:26:21.018Z
+date: 2024-09-26T16:27:58.281Z
+updated: 2024-09-28T16:30:57.497Z
 tags:
   - ai video
   - ai youtube
@@ -36,6 +36,13 @@ With that said, the following two-columned tables give you detailed information 
 ## Amazing YouTube Keyboard Shortcuts You May Not Know
 
 To make things convenient for you, the shortcut keys are placed under their corresponding categories, where each category is in the form of a two-columned table.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Category 1: YouTube Playback Hotkeys
 
@@ -74,13 +81,6 @@ This category contains information on increasing or decreasing the playback spee
 | 'SHIFT' + '.' (Period) | Increase playback speed |
 | 'SHIFT' + ',' (Comma)  | Decrease playback speed |
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Category 4: Managing the Captions
 
 This category talks about managing the video captions using the shortcut keys:
@@ -92,13 +92,6 @@ This category talks about managing the video captions using the shortcut keys:
 | 'W'                | Enable, increase, and disable the background transparency of the captions (Press multiple times to manage intensity) |
 | '-' (Minus Key)    | Reduce the font size of the captions (Minus key on the Numpad isn't supported)                                       |
 | '+' (Plus Key)     | Increase the font size of the captions (Plus key on the Numpad isn't supported)                                      |
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Category 5: Managing the Audio Video
 
@@ -137,10 +130,16 @@ In this category, the navigation and management of shortcut keys for 360o and Vi
 | '+' (Plus Key on Keyboard)  | Increase font size                                    |
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1304648">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Bonus: How to Get the YouTube Shortcut List with One-Click
@@ -155,6 +154,19 @@ So, when you press the Shift+? on YouTube, you will see a full list of shortcuts
 
 ![YouTube Shortcut List](https://images.wondershare.com/filmora/article-images/youtube-keyboard-shortcuts-list.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Conclusion**
 
 Watching videos on YouTube is fun, and you can enjoy the clips, movies, tutorials, etc. more if you are well-aware of the important shortcut keys. This not only helps you navigate through the videos faster but also gives you relief from the additional efforts that you would otherwise have to make while grabbing the mouse, and then looking for and using the correct option.
@@ -164,6 +176,13 @@ As one of the most popular video editing software among YouTubers, Filmora provi
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144280/7443" target="_top" id="2144280">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144280" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144280/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -184,5 +203,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-snipping-video-time-a-youtube-editors-handbook/"><u>[New] 2024 Approved Snipping Video Time A YouTube Editors' Handbook</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/oosting-income-through-effective-video-marketing/"><u>[New] Boosting Income Through Effective Video Marketing</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-10-key-tactics-to-amplify-your-youtube-presence-and-engagement/"><u>[Updated] 10 Key Tactics to Amplify Your YouTube Presence and Engagement</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-troubleshooting-shorts-the-non-displaying-thumbnail/"><u>[Updated] 2024 Approved Troubleshooting Shorts The Non-Displaying Thumbnail</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-the-ultimate-plan-for-streamlining-your-video-queue-on-youtube/"><u>2024 Approved The Ultimate Plan for Streamlining Your Video Queue on YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-the-ultimate-playbook-for-youtube-shorts-income-boost/"><u>2024 Approved The Ultimate Playbook for YouTube Shorts Income Boost</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ing-compelling-freefire-vids-with-strategy-guide-for-2024/"><u>Crafting Compelling FreeFire Vids with Strategy Guide for 2024</u></a></li>
+<li><a href="https://app-tips.techidaily.com/embracing-the-future-how-your-enterprise-will-depend-on-numerous-ai-algorithms-insights-from-zdnet/"><u>Embracing the Future: How Your Enterprise Will Depend on Numerous AI Algorithms - Insights From ZDNet</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-comprehensive-guide-to-simplified-hdr-techniques/"><u>In 2024, Comprehensive Guide to Simplified HDR Techniques</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-tail-wags-and-whispers-dognoise-auditory-experience-for-2024/"><u>New Tail Wags & Whispers Dognoise Auditory Experience for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-ultimate-pokemon-go-strategy-tips-and-tricks-for-trainers/"><u>The Ultimate Pokémon Go Strategy: Tips & Tricks for Trainers</u></a></li>
+<li><a href="https://some-skills.techidaily.com/the-unseen-windows-11-techniques-for-2024/"><u>The Unseen Windows 11 Techniques for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/top-compatible-external-storage-solutions-for-apple-mac-users/"><u>Top Compatible External Storage Solutions for Apple Mac Users</u></a></li>
+</ul></div>
 
