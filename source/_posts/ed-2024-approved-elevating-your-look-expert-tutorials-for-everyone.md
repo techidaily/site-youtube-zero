@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Elevating Your Look  Expert Tutorials for Everyone\""
-date: 2024-09-23T16:18:27.492Z
-updated: 2024-09-28T16:24:16.328Z
+date: 2024-09-26T20:08:16.652Z
+updated: 2024-10-03T17:53:26.809Z
 tags:
   - ai video
   - ai youtube
@@ -52,13 +52,6 @@ Wondershare Filmora is specifically made keeping quality on priority and to make
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043661/7443" target="_top" id="2043661">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043661" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043661/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Finding Your Niche in Beauty or Lifestyle**
 
 As a new makeup, beauty, or lifestyle YouTuber you’ll be jumping into a category that’s already packed with thousands of channels. In order to gain any momentum, you’ll have to decide on a particular thing you want to be known for. That’s your niche.
@@ -70,10 +63,10 @@ Another way you could find a niche is by taking on a specific area of interest, 
   SunKissAlba has a lifestyle channel that focuses on a ‘natural’ niche. She posts videos about every aspect of her lifestyle from putting on makeup to cooking, but natural/non-toxic products are a constant theme through everything she does. By niching her channel she hasn’t limited what kinds of videos she can do at all - she posts a huge variety of different types of videos. What she has done is to make her channel particularly valuable to audiences interested in things that are natural or organic.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Types of Beauty Videos – Your Content Strategy**
@@ -114,19 +107,6 @@ Here are some common types of beauty and lifestyle videos:
 * Kid’s Makeup Challenge
 * No Mirror Makeup Challenge
 
-<!-- affiliate ads begin -->
-<span id="1982456">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **How to Get Products to Review**
 
  You probably already know that a lot of the products popular beauty YouTubers review in their videos were sent to them for free. Brands want to get their products into the hands of creators who have ‘influence’ both in the hopes that their audiences will decide to buy them and as part of generating buzz – getting more people talking about their products so more people become interested.
@@ -147,6 +127,13 @@ Here are 4 tips for getting free products for review:
 4. Send an email with your pitch to the brand’s PR person. Your email should introduce yourself, describe your content, and talk about what type of audience you have (how many subscribers, where are they located, how old are they, etc. This information is all available in your Creator Studio analytics).  
 Make sure to link to your channel so they can verify what you say (do not hide your subscriber count).  
 Emphasize what value you could provide the brand with (i.e. ‘I’ve had a lot of success with videos on managing acne and I’m sure my subscribers would love to see a review of your cream’) and outline what kind of video you’d like to make (i.e. a five-minute review focusing on the product, or a short feature in a longer makeup tutorial).
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Simple Camera Setup for Beauty Vloggers**
 
@@ -191,7 +178,21 @@ ISO 400 should be a happy medium for shooting inside with your ring light, but y
 
 ![set film speed](https://images.wondershare.com/filmora/article-images/set-film-speed3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037346/7443" target="_top" id="2037346">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037346" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037346/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 For more info on [camera settings for beauty videos, click here](https://www.filmora.io/video-tutorials/how-to-set-up-your-camera-%E2%80%93-the-makeup-series-12.html).
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Lighting for Beauty**
 
@@ -208,10 +209,16 @@ If you only have a ring light/front light then you may end up looking like you�
  ![light background](https://images.wondershare.com/filmora/article-images/light-background4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1444782">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### **To Stand Out Against your Background (‘Backlighting’)**
@@ -236,13 +243,6 @@ You can use softboxes, LED panels, clamp lights, household lamps, or any other l
 * **_Clamp lights ($10 each) and paper lanterns ($10 each) provide great lighting and are much more affordable than professional lighting kits._ The paper lanterns will provide even, diffused, light and the clamp lights will be easy to set up wherever you need them.**
 * **_Check out these [DIY tips for creating your own reflectors and diffusers](https://www.filmora.io/community-blog/save-money-with-clever-diy-youtube-gear%21-462.html)._**
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151871/7443" target="_top" id="2151871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151871" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151871/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Top Ring Lights for YouTube**
 
 ####  
@@ -260,13 +260,6 @@ This light is dimmable and can be adjusted to the angle that suits your shot. Th
 This lightweight ring light is easy to transport, set up, and mount your phone or camera to. It’s a fluorescent ‘daylight’ (5400K) light, so the colors in your videos will look natural.
 
 This light is dimmable, so you can turn it down if it’s too bright, and the Prismatic Light Stand will allow you to tilt your light to the perfect angle. This will be handy if you’re mounting your camera inside the ring but want to place it slightly above your face instead of having it look at you head on.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Build Your Own Diva Ring Light**
 
@@ -314,6 +307,13 @@ If you’re using autofocus, you can hold products up to the screen and wait for
 2. **_Highlight small details._** Describe what you’re doing in a lot of detail and don’t gloss over anything. Assume the person watching your tutorial doesn’t know anything about putting on makeup.
 3. **_Take stills for your thumbnail._** Remember to take some still photos of your finished makeup to use in your YouTube thumbnail.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
+  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **How to Make a Makeup Tutorial – After Shooting**
 
 Once you’ve finished recording and put away all your camera gear, there’s still work to do. You still need to edit your video and post it on YouTube. Here are some tips for that:
@@ -351,22 +351,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/0-tips-to-make-your-youtube-shorts-channels-stand-out/"><u>[New] 10 Tips to Make Your YouTube Shorts Channels Stand Out</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-cultivating-a-community-building-followers-on-youtube-without-spending/"><u>[New] 2024 Approved Cultivating a Community Building Followers on YouTube Without Spending</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-expert-director-sound-and-picture-synthesis/"><u>[New] 2024 Approved Expert Director Sound & Picture Synthesis</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-free-music-unlocked-the-ultimate-library-for-videographers/"><u>[New] 2024 Approved Free Music Unlocked The Ultimate Library for Videographers</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-instant-video-visionary/"><u>[New] 2024 Approved Instant Video Visionary</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-mastering-collaborative-video-creation-a-guide-to-youtube-partnering/"><u>[New] 2024 Approved Mastering Collaborative Video Creation A Guide to YouTube Partnering</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-screenrecorder-evaluation-tool/"><u>[New] 2024 Approved ScreenRecorder Evaluation Tool</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-streamline-video-calls-using-google-hangouts-efficiently-for-2024/"><u>[New] Streamline Video Calls Using Google Hangouts Efficiently for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-ensuring-every-snapchatter-friendly-footage-via-mac/"><u>[Updated] Ensuring Every Snapchatter-Friendly Footage via Mac</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-upgrade-your-facebook-experience-with-the-best-5-extensions-for-2024/"><u>[Updated] Upgrade Your Facebook Experience with the Best 5 Extensions for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/comprehensive-troubleshooting-techniques-when-to-find-d3dx92e26dll/"><u>Comprehensive Troubleshooting Techniques: When to Find d3dx9_2e_26.dll</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-fix-life360-shows-wrong-location-on-samsung-galaxy-a24-drfone-by-drfone-virtual-android/"><u>How to Fix Life360 Shows Wrong Location On Samsung Galaxy A24? | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/is-fake-gps-location-spoofer-a-good-choice-on-apple-iphone-se-2020-drfone-by-drfone-virtual-ios/"><u>Is Fake GPS Location Spoofer a Good Choice On Apple iPhone SE (2020)? | Dr.fone</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/preserving-the-past-a-comprehensible-process-of-photograph-digitization-for-2024/"><u>Preserving the Past A Comprehensible Process of Photograph Digitization for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/-guide-to-softening-youtube-videos-surroundings/"><u>Quick Guide to Softening YouTube Videos' Surroundings</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/-sensation-keywords-for-enhancing-video-shows-virality/"><u>Short Sensation Keywords for Enhancing Video Shows' Virality</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/top-rated-mp4-video-encoders-of-202e-a-comprehensive-guide-to-optimize-your-video-content/"><u>Top Rated MP4 Video Encoders of 202E: A Comprehensive Guide to Optimize Your Video Content</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-plant-pals-playlist-the-best-agrigames-for-friends/"><u>[New] In 2024, Plant Pals' Playlist The Best AgriGames for Friends</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/avigating-to-the-shadows-of-youtube-videos-for-2024/"><u>[New] Navigating to the Shadows of YouTube Videos for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ocial-star-search-leading-view-counts-on-youtube/"><u>[New] Social Star Search Leading View Counts on YouTube</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-the-key-ingredients-for-successful-instagram-unboxing-reels-for-2024/"><u>[New] The Key Ingredients for Successful Instagram Unboxing Reels for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-the-marketers-mvp-list-top-10-instagram-video-editing-apps/"><u>[New] The Marketer's MVP List Top 10 Instagram Video Editing Apps</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-hands-on-guide-to-optimize-your-youtube-channels-with-adsense/"><u>[Updated] 2024 Approved Hands-On Guide to Optimize Your YouTube Channels with AdSense</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-cutting-edge-free-audio-for-youtube-visionaries-for-2024/"><u>[Updated] Cutting-Edge Free Audio for YouTube Visionaries for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-digital-arcade-over-a-hundred-game-channels-for-2024/"><u>[Updated] Digital Arcade Over a Hundred Game Channels for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-earning-mastery-in-streams-a-comprehensive-review-for-2024/"><u>[Updated] Earning Mastery in Streams A Comprehensive Review for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-premium-top-tier-vr-game-equipment-list/"><u>[Updated] Premium Top-Tier VR Game Equipment List</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-boost-your-posts-top-3-instagram-highlight-methods/"><u>2024 Approved Boost Your Posts Top 3 Instagram Highlight Methods</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-boosting-speed-for-periscope-live-video/"><u>2024 Approved Boosting Speed for Periscope Live Video</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-procure-no-cost-visual-aids-from-prominent-4-youtube-feeds/"><u>2024 Approved Procure No-Cost Visual Aids From Prominent 4 Youtube Feeds</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-oneplus-11r-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For OnePlus 11R? | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-tecno-spark-20-drfone-by-drfone-virtual-android/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Tecno Spark 20 | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-the-essential-toolkit-3d-video-entrances-ranked/"><u>In 2024, The Essential Toolkit 3D Video Entrances Ranked</u></a></li>
 </ul></div>
 

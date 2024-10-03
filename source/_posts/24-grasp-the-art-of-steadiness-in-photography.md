@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Grasp the Art of Steadiness in Photography"
-date: 2024-09-21T16:56:04.413Z
-updated: 2024-09-28T16:52:12.648Z
+date: 2024-10-02T17:56:33.615Z
+updated: 2024-10-03T21:27:21.015Z
 tags:
   - ai video
   - ai youtube
@@ -42,10 +42,10 @@ Wondershare Filmora has the best video stabilization tool is your videos have a 
 Here are 3 of our favorite DIY tripods.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049382/7443" target="_top" id="2049382">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049382" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049382/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **DIY smartphone tripod using binder clips or hair clips**
@@ -63,10 +63,10 @@ Here it is with binder clips:
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049379/7443" target="_top" id="2049379">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 And here it is with hair clips:
@@ -74,15 +74,28 @@ And here it is with hair clips:
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983553">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **DIY adjustable tripod using books and a towel**
 
@@ -108,13 +121,6 @@ Gorillapod’s are cool because you can use them like normal tripods, carry them
 Your wire should be fairly stiff and you’ll need three pieces the same length, which should be at least 10 inches. Old clothes hangers work well. This needs to be something strong enough to support the weight of your camera, but soft enough that it’s not impossible for you to bend.
 
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
 
@@ -159,18 +165,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-a-simple-path-to-enhanced-youtube-sign-ups-create-animated-subscription-bar-using-filmora/"><u>[New] 2024 Approved A Simple Path to Enhanced YouTube Sign-Ups - Create Animated Subscription Bar Using Filmora</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-charting-creators-fortune-revenue-generated-from-youtube-advertisements/"><u>[New] 2024 Approved Charting Creator's Fortune Revenue Generated From Youtube Advertisements?</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-imageslice-editor/"><u>[New] 2024 Approved ImageSlice Editor</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-maintaining-mystery-techniques-for-smoothing-out-visuals/"><u>[New] 2024 Approved Maintaining Mystery Techniques for Smoothing Out Visuals</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-navigating-video-dimensions-a-focused-look-at-aspect-ratios/"><u>[New] 2024 Approved Navigating Video Dimensions A Focused Look at ASPECT RATIOS</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-the-best-practices-for-silent-film-making/"><u>[New] 2024 Approved The Best Practices for Silent Film Making</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-melody-to-video-quick-sound-import-tricks/"><u>[Updated] Melody to Video Quick Sound Import Tricks</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-play-srt-on-pcos-x-for-2024/"><u>[Updated] Play SRT on PC/OS X for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/best-anime-and-cartoon-masterpieces-of-now-and-everlasting-favorites/"><u>Best Anime and Cartoon Masterpieces of Now and Everlasting Favorites</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-use-device-manager-to-reinstall-hardware-drivers-on-windows-10-by-drivereasy-guide/"><u>How to use Device Manager to reinstall hardware drivers on Windows 10</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-ispoofer-on-honor-play-8t-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on Honor Play 8T? | Dr.fone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/00-films-distilled-youtube-channels-guide/"><u>Top 100 Films Distilled YouTube Channels Guide</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/trail-blazing-cars-key-security-breakers-2024/"><u>Trail-Blazing Cars' Key Security Breakers, 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/pike-youtube-engagement-through-strategic-timing/"><u>[New] Spike YouTube Engagement Through Strategic Timing</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-dream-weavers-the-marvel-interactive-sculptors/"><u>[Updated] Dream Weavers The Marvel Interactive Sculptors</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-creating-compelling-cost-free-youtube-intros/"><u>[Updated] In 2024, Creating Compelling, Cost-Free YouTube Intros</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-from-unorganized-to-organized-music-youtubes-magic/"><u>[Updated] In 2024, From Unorganized to Organized Music Youtube's Magic</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-gameplay-recording-must-haves/"><u>[Updated] In 2024, Gameplay Recording Must-Haves</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-insider-tips-the-best-instagram-strategies-for-profit/"><u>[Updated] In 2024, Insider Tips The Best Instagram Strategies for Profit</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-experts-insight-downloading-audio-on-apple-gadgets/"><u>2024 Approved Expert's Insight Downloading Audio on Apple Gadgets</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-integrated-video-flow-linking-multiple-youtube-content/"><u>2024 Approved Integrated Video Flow Linking Multiple YouTube Content</u></a></li>
+<li><a href="https://howto.techidaily.com/4-solutions-to-fix-unfortunately-your-app-has-stopped-error-on-poco-m6-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Solutions to Fix Unfortunately Your App Has Stopped Error on Poco M6 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/cutting-edge-tiktok-edits-secrets-shared/"><u>Cutting-Edge TikTok Edits Secrets Shared</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/effortless-audio-clarity-eliminating-background-noise-using-artificial-intelligence/"><u>Effortless Audio Clarity: Eliminating Background Noise Using Artificial Intelligence</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/novice-to-notoriety-steps-for-a-youtube-channel-in-gaming/"><u>From Novice to Notoriety Steps for a YouTube Channel in Gaming</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/uch-money-do-youtubers-make-per-view/"><u>How Much Money Do YouTubers Make Per View</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-detect-and-stop-mspy-from-spying-on-your-samsung-galaxy-m14-4g-drfone-by-drfone-virtual-android/"><u>How to Detect and Stop mSpy from Spying on Your Samsung Galaxy M14 4G | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-oppo-find-x7-pin-codepattern-lockpassword-by-drfone-android/"><u>In 2024, How to Unlock Oppo Find X7 PIN Code/Pattern Lock/Password</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/ipad-dvd-ripper-software-easy-conversion-and-playback-of-any-dvd-on-your-ios-device/"><u>IPad DVD Ripper Software - Easy Conversion & Playback of Any DVD on Your iOS Device</u></a></li>
+<li><a href="https://techidaily.com/remove-sony-xperia-1-v-unlock-screen-by-drfone-android-unlock-android-unlock/"><u>Remove Sony Xperia 1 V unlock screen</u></a></li>
 </ul></div>
 

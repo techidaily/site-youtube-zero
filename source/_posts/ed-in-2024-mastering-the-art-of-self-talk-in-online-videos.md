@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Mastering the Art of Self-Talk in Online Videos\""
-date: 2024-09-20T22:32:58.249Z
-updated: 2024-09-21T22:50:47.089Z
+date: 2024-09-29T20:49:26.475Z
+updated: 2024-10-03T16:26:05.054Z
 tags:
   - ai video
   - ai youtube
@@ -59,10 +59,10 @@ Objects and people that just make it into the sides of the frame will appear mor
 If you look closely into Sean’s eyes, you can also see a specular highlight in the shape of a circle. Many people like the way eyes look against a ring light.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/977686/11832" target="_top" id="977686">
+  <img src="//a.impactradius-go.com/display-ad/11832-977686" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/977686/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2.  Medium Vlog Set-Up
@@ -78,6 +78,13 @@ At the 39 second mark of the above video, electronic music producer deadmau5 is 
 You can see from how even the background and couch looks across the entire camera frame that there is no distortion or enhanced perspective.
 
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3.  Two Person Vlog Set-Up
 
@@ -103,20 +110,27 @@ It is difficult to know whether the movement in his eyes is caused by not being 
 
 Looking to find the right lights for your video recording set? Check out our [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Tips for Making a Talking Head Video Better
 
 To make a talking-head video more interesting, you can add some background music to the video, apply some interesting texts or elements. [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) has built-in royalty-free music tracks and sound effects as well as [text templates](https://tools.techidaily.com/wondershare/filmora/download/), filters and motivating elements. Download the free trial version below and release your creativity.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -137,5 +151,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-perfecting-your-podcast-top-5-mac-friendly-recorder-recommendations/"><u>[New] 2024 Approved Perfecting Your Podcast Top 5 Mac-Friendly Recorder Recommendations</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-visualeditormaster-reviews-complete-analysis/"><u>[New] 2024 Approved VisualEditorMaster Reviews – Complete Analysis</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-a-step-by-step-journey-clearing-images-with-picsart/"><u>[New] In 2024, A Step-By-Step Journey Clearing Images with Picsart</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/martphone-strategies-to-create-dynamic-and-effective-youtube-thumbnails/"><u>[New] Smartphone Strategies to Create Dynamic and Effective YouTube Thumbnails</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-your-path-to-youtube-stardom-3-strategies-for-captivating-reaction-videos/"><u>[Updated] 2024 Approved Your Path to YouTube Stardom 3 Strategies for Captivating Reaction Videos</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-integrating-external-websites-into-instagrams-ecosystem-for-2024/"><u>[Updated] Integrating External Websites Into Instagram's Ecosystem for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-a-thorough-analysis-elevating-video-recording-with-obs/"><u>2024 Approved A Thorough Analysis Elevating Video Recording with OBS</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-navigating-the-crossroads-of-full-time-work-and-youtube/"><u>2024 Approved Navigating the Crossroads of Full-Time Work & YouTube</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/fastest-time-lapse-capturing-system-5/"><u>Fastest Time-Lapse Capturing System #5</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-essential-free-mcb-theme-templates/"><u>In 2024, Essential Free MCB Theme Templates</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-can-i-use-a-fake-gps-without-mock-location-on-realme-c67-4g-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Use a Fake GPS Without Mock Location On Realme C67 4G? | Dr.fone</u></a></li>
+<li><a href="https://driver-error.techidaily.com/resolving-driver-issues-solutions-for-unsupported-devices-in-windows-os/"><u>Resolving Driver Issues: Solutions for Unsupported Devices in Windows OS</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/top-5-itel-p40plus-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>Top 5 Itel P40+ Bypass FRP Tools for PC That Actually Work</u></a></li>
+</ul></div>
 

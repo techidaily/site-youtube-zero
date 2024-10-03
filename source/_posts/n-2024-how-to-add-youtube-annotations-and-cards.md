@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, How to Add YouTube Annotations and Cards?"
-date: 2024-09-15T21:36:47.763Z
-updated: 2024-09-21T19:09:23.335Z
+date: 2024-10-01T16:10:01.475Z
+updated: 2024-10-03T20:20:57.709Z
 tags:
   - ai video
   - ai youtube
@@ -72,6 +72,13 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 * Apply changes and exit
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to add YouTube annotations
 
 YouTube Annotation is addition of a text layer, link or hotspots over your video. They add interactive boxes which link to other websites or videos (any link you want).
@@ -82,10 +89,24 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148633/16836" target="_top" id="2148633">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148633" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148633/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Apply changes
 
@@ -125,6 +146,13 @@ No matter what kind of annotations you are using, you should never use more than
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -144,12 +172,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/rom-editing-to-sharing-using-premiere-with-youtube/"><u>[New] From Editing to Sharing Using Premiere with YouTube</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-quantum-hdr-unveiled-insightful-guide-for-professionals/"><u>[New] Quantum HDR Unveiled Insightful Guide for Professionals</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/nlock-seamless-replay-on-youtube-with-our-pro-tips/"><u>[New] Unlock Seamless Replay on YouTube with Our Pro Tips</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-the-power-of-personalization-upgrade-your-youtube-url/"><u>[Updated] 2024 Approved The Power of Personalization Upgrade Your YouTube URL</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-peaking-at-number-one-on-youtube-what-to-know/"><u>2024 Approved Peaking at Number One on YouTube What to Know</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-strategic-monetization-for-game-streams/"><u>2024 Approved Strategic Monetization for Game Streams</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-unveiling-mr-beasts-economic-status/"><u>2024 Approved Unveiling Mr. Beast's Economic Status</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ing-visibility-the-art-of-crafting-youtube-channel-backlinks/"><u>Boosting Visibility The Art of Crafting YouTube Channel Backlinks</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/comparative-review-winx-dvd-ripper-versus-handbrake-free-trials-and-top-picks-for-video-converter-software/"><u>Comparative Review: WinX DVD Ripper Versus HandBrake - Free Trials & Top Picks for Video Converter Software</u></a></li>
+<li><a href="https://discover-bits.techidaily.com/easy-guide-setting-up-the-arctic-zephyr-2-theme-in-your-kodi-interface/"><u>Easy Guide: Setting Up the Arctic Zephyr 2 Theme in Your Kodi Interface</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/effortless-internal-sound-recording-in-android/"><u>Effortless Internal Sound Recording in Android</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ning-the-financial-success-strategies-of-t-series-on-youtube/"><u>Examining the Financial Success Strategies of T-Series on YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/o-download-part-of-youtube-video/"><u>How to Download Part of YouTube Video?</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-3-solutions-to-find-your-nokia-c12-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Solutions to Find Your Nokia C12 Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-strategies-to-prevent-account-suspension-on-youtube/"><u>In 2024, Strategies to Prevent Account Suspension on YouTube</u></a></li>
+<li><a href="https://win-dash.techidaily.com/transform-mp4-files-into-ts-with-these-top-3-complimentary-software-solutions/"><u>Transform MP4 Files Into TS with These Top 3 Complimentary Software Solutions!</u></a></li>
+<li><a href="https://howto.techidaily.com/zte-axon-40-lite-camera-not-working-unexpected-error-fix-it-now-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>ZTE Axon 40 Lite Camera Not Working Unexpected Error? Fix It Now | Dr.fone</u></a></li>
+</ul></div>
 

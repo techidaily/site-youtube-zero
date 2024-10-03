@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, A Compreenas Guide to Choosing Ideal Lenses for Filmmaking"
-date: 2024-09-25T16:39:35.012Z
-updated: 2024-09-28T16:23:13.477Z
+date: 2024-09-30T18:09:08.094Z
+updated: 2024-10-03T19:59:33.670Z
 tags:
   - ai video
   - ai youtube
@@ -61,6 +61,13 @@ With standard lenses or normal lenses, you won’t get the stretched out objects
 
 Out of all the other ranges in focal lengths, telephoto lenses will appear the most zoomed in. This can be beneficial for the shooter who wants to get a closer shot of a scene without having to physically be in close proximity to the scene. Objects that are further away in the background also appear larger and closer than they would appear on wide-angle or standard lenses.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Vlogging With Each Focal Length Group
 
 You can get your talking head footage using lenses from any of the three focal length groups. Depending on how you plan to vlog most of the time, though, one of the three focal lengths might be more suitable for you.
@@ -83,27 +90,20 @@ As telephoto lenses are even more zoomed in, you’ll need to be even further aw
 
   In the above video, Marcos Rocha compares different focal lengths for talking head videos. Which focal length range do you like the look of?
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902278/19272" target="_top" id="1902278">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902278/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Crop Factor
 
 Focal lengths in camera lenses are measured in millimeters. You can vlog yourself handheld with a 24mm lens on a camera with a full-frame sensor (the sensor is the piece of hardware inside your camera that turns the light it receives into a digital image). But if you use a 24mm lens on a camera with a smaller sensor, like an APS-C sensor or even smaller Micro 4/3 sensor, more of you will get cropped out (see below).
 
  ![Crop Factor](https://images.wondershare.com/filmora/article-images/camera-lenses-crop-factor.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959764/19272" target="_top" id="1959764">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959764" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959764/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Focal Length Equivalency Table
 
@@ -124,35 +124,22 @@ This table shows you the focal lengths needed to achieve the same shot between c
 
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
 
  ![Camera lenses Aperture Range](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture-range.png)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Because larger aperture lenses let more light in, they need a shorter time for cameras to compose an image. This is why larger aperture lenses are also called “fast” lenses.
 
 Fast lenses are more expensive because they cost more to produce. There’s a lot more that goes into them, including larger and higher quality glass elements.
 
 But do you even need a fast lens?
-
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="864" height="1296" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Vlogging With a Fast Lens
 
@@ -167,6 +154,19 @@ But do you even need a fast lens?
 * More expensive
 * Moving subjects more likely to get out of focus when shooting with a large aperture
 * Better continuous autofocus performance needed when shooting moving subjects with a large aperture
+
+<!-- affiliate ads begin -->
+<span id="1160850">
+					<video width="576" height="324" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Optical Image Stabilization
 
@@ -203,22 +203,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-skyrocket-traffic-the-ultimate-list-of-video-growth-techniques/"><u>[New] 2024 Approved Skyrocket Traffic The Ultimate List of Video Growth Techniques</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-swiftly-expand-your-youtube-following-for-minimal-cost/"><u>[New] 2024 Approved Swiftly Expand Your YouTube Following for Minimal Cost</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-the-math-behind-making-money-youtubes-viewer-insights/"><u>[New] 2024 Approved The Math Behind Making Money YouTube’s Viewer Insights</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-top-15-youtube-experts-in-modern-science-exploration/"><u>[New] 2024 Approved Top 15 YouTube Experts in Modern Science Exploration</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-expert-techniques-for-uploading-youtubes-on-dailymotion-for-2024/"><u>[New] Expert Techniques for Uploading YouTubes on Dailymotion for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-mastering-top-faces-essential-fb-videos/"><u>[New] In 2024, Mastering Top Faces Essential FB Videos</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/updated-bringing-images-to-life-expert-level-photo-text-editing/"><u>[Updated] Bringing Images to Life Expert-Level Photo Text Editing</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-easy-sound-alteration-for-everyday-vocalization-with-free-software-for-2024/"><u>[Updated] Easy Sound Alteration for Everyday Vocalization with Free Software for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-harmony-in-minutes-no-credit-due/"><u>2024 Approved Harmony in Minutes, No Credit Due</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/bring-your-videos-to-life-top-live-photo-creation-apps-and-how-tos/"><u>Bring Your Videos to Life Top Live Photo Creation Apps and How-Tos</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-avoid-blandness-in-your-vids-top-recommended-youtube-thumbnail-heights/"><u>In 2024, Avoid Blandness in Your Vids Top Recommended YouTube Thumbnail Heights</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-beautys-buzz-youtube-gurus-predicted/"><u>In 2024, Beauty's Buzz YouTube Gurus Predicted</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-digitally-delving-into-deleted-youtubes-easy-watch-options/"><u>In 2024, Digitally Delving Into Deleted YouTubes Easy Watch Options</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-discovering-and-perfecting-your-individual-style/"><u>In 2024, Discovering & Perfecting Your Individual Style</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/interpreting-distinctions-360-content-and-virtual-reality-for-2024/"><u>Interpreting Distinctions 360° Content & Virtual Reality for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/social-media-giant-rolls-out-innovative-admin-control-tools/"><u>Social Media Giant Rolls Out Innovative Admin Control Tools</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ate-guide-to-effective-video-marketing-tools-8-for-2024/"><u>Ultimate Guide to Effective Video Marketing Tools (8) for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/levate-your-youtube-presence-strategic-tagging-and-titling-techniques-for-2024/"><u>[New] Elevate Your YouTube Presence Strategic Tagging and Titling Techniques for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/inancial-flourishing-in-youtube-content-markets/"><u>[New] Financial Flourishing in YouTube Content Markets</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-elite-audio-modifying-tools-tailored-to-youtube-creators/"><u>[New] In 2024, Elite Audio Modifying Tools Tailored to YouTube Creators</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/uick-guide-on-converting-videos-into-dynamic-gifs-online/"><u>[New] Quick Guide on Converting Videos Into Dynamic Gifs Online</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-top-5-low-cost-pinterest-video-download-software/"><u>[New] Top 5 Low-Cost Pinterest Video Download Software</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-creating-unique-youtube-music-mixtapes/"><u>[Updated] 2024 Approved Creating Unique YouTube Music Mixtapes</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-the-complete-wm-maker-playbook-for-youtube-clips-perfection/"><u>[Updated] 2024 Approved The Complete WM Maker Playbook for YouTube Clips Perfection</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-prevent-unwanted-recordings-quit-time-tricks/"><u>[Updated] In 2024, Prevent Unwanted Recordings Quit Time Tricks</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/2024-approved-green-settings-in-cinematic-production/"><u>2024 Approved Green Settings in Cinematic Production</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-navigating-the-process-of-verifying-your-youtube-id/"><u>2024 Approved Navigating the Process of Verifying Your YouTube ID</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-quick-adaptation-video-size-to-mac-screen-proportion/"><u>2024 Approved Quick Adaptation Video Size to Mac Screen Proportion</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-share-with-impact-tiktok-videos-on-twitter/"><u>2024 Approved Share with Impact TikTok Videos on Twitter</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-streamline-your-360-videos-for-youtube-with-easy-upload-tricks/"><u>2024 Approved Streamline Your 360 Videos for YouTube with Easy Upload Tricks</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-which-livestreaming-tool-wins-obs-or-bandicam/"><u>2024 Approved Which Livestreaming Tool Wins OBS or Bandicam?</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/comprehensive-samsung-galaxy-fit-analysis-the-perfect-companion-for-fitness-enthusiasts/"><u>Comprehensive Samsung Galaxy Fit Analysis - The Perfect Companion for Fitness Enthusiasts</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-unveiling-youtubes-full-rotation-streaming-potential/"><u>In 2024, Unveiling YouTube’s Full-Rotation Streaming Potential</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-motorola-moto-g04-drfone-by-drfone-virtual-android/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Motorola Moto G04? | Dr.fone</u></a></li>
 </ul></div>
 

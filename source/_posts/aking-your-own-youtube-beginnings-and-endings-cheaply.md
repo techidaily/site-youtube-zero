@@ -1,7 +1,7 @@
 ---
 title: "[New] Making Your Own YouTube Beginnings & Endings Cheaply"
-date: 2024-09-27T16:49:47.785Z
-updated: 2024-09-28T16:08:48.481Z
+date: 2024-09-27T17:13:10.113Z
+updated: 2024-10-03T16:44:44.819Z
 tags:
   - ai video
   - ai youtube
@@ -83,10 +83,10 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -125,10 +125,10 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://bluettiit.sjv.io/c/5597632/2148129/17093" target="_top" id="2148129">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148129" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148129/17093" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -152,20 +152,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-skyrocket-your-income-on-youtube-the-power-of-500-loyal-fans/"><u>[New] 2024 Approved Skyrocket Your Income on Youtube The Power of 500 Loyal Fans</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-exclusive-fb-picturevid-producer-no-fee-for-2024/"><u>[New] Exclusive FB Picture/Vid Producer - No Fee for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/2024-approved-comprehensively-reviewing-top-10-no-cost-video-communication-apps-for-professional-and-academic-needs/"><u>2024 Approved Comprehensively Reviewing Top 10 No-Cost Video Communication Apps for Professional and Academic Needs</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-how-zooming-up-with-fb-live-transforms-broadcasts/"><u>2024 Approved How Zooming Up with FB Live Transforms Broadcasts</u></a></li>
-<li><a href="https://location-fake.techidaily.com/3-ways-to-change-location-on-facebook-marketplace-for-itel-a05s-drfone-by-drfone-virtual-android/"><u>3 Ways to Change Location on Facebook Marketplace for Itel A05s | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/affordable-security-top-review-of-the-iseebell-video-doorbell-under-50/"><u>Affordable Security: Top Review of the ISeeBell Video Doorbell Under $50</u></a></li>
-<li><a href="https://blog-min.techidaily.com/best-3-software-to-transfer-files-tofrom-your-realme-v30-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Best 3 Software to Transfer Files to/from Your Realme V30 via a USB Cable | Dr.fone</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/choosing-the-right-format-boosting-your-youtube-videos-performance/"><u>Choosing the Right Format – Boosting Your YouTube Videos’ Performance</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/effortless-integration-posting-twitter-vids-on-instagram-profile-for-2024/"><u>Effortless Integration Posting Twitter Vids on Instagram Profile for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-a-dive-into-history-the-definitive-list-of-student-friendly-channels-1-10/"><u>In 2024, A Dive Into History The Definitive List of Student-Friendly Channels #1-10</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-audio-visual-synopsis-creator/"><u>In 2024, Audio Visual Synopsis Creator</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-building-a-strong-visual-narrative-in-youtube-videos/"><u>In 2024, Building a Strong Visual Narrative in YouTube Videos</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-core-asmr-platforms-explored/"><u>In 2024, Core ASMR Platforms Explored</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-delving-into-trending-video-exchange/"><u>In 2024, Delving Into Trending Video Exchange</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/in-depth-analysis-xbox-one-x-the-reigning-champion-in-modern-consoles/"><u>In-Depth Analysis: Xbox One X - The Reigning Champion in Modern Consoles</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ish-on-titles-creative-concepts-for-cookery-vids-for-2024/"><u>[New] Dish on Titles Creative Concepts for Cookery Vids for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nnovative-video-concepts-through-google-trends-exploration-for-2024/"><u>[New] Innovative Video Concepts Through Google Trends Exploration for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-ultimate-guide-to-crafting-breathtaking-time-lapses-with-gopro/"><u>[New] The Ultimate Guide to Crafting Breathtaking Time-Lapses with GoPro</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-9-ultimate-free-online-editors-for-content-creators/"><u>[Updated] 2024 Approved 9 Ultimate Free Online Editors for Content Creators</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-analyzing-video-success-self-vs-rivals-in-the-youtube-arena/"><u>2024 Approved Analyzing Video Success Self Vs. Rivals in the YouTube Arena</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-beginners-tutorial-adobe-capture-screen-sharing-techniques/"><u>2024 Approved Beginner's Tutorial Adobe Capture Screen Sharing Techniques</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-bridging-past-and-present-successfully-live-streaming-recorded-media/"><u>2024 Approved Bridging Past and Present Successfully Live-Streaming Recorded Media</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-designing-your-musical-journey-youtube-playlist-construction-tips-webapp/"><u>2024 Approved Designing Your Musical Journey YouTube Playlist Construction Tips Web/App</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-joining-friends-and-family-online-facebook-setup-guide/"><u>2024 Approved Joining Friends and Family Online (Facebook Setup Guide)</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-searching-comments-on-youtube/"><u>2024 Approved Searching Comments on YouTube</u></a></li>
+<li><a href="https://discover-brilliant.techidaily.com/iueeoewenplusobppluswlleeuupluse3qombhiatioodreoctoeeoeoblplusoageawtoeoiewfpeociuwprplusidvtog5a6m5ywo6ieq55sx5yyw57eo6zug44k944ov44oi44gu44ks44kk44ojig/"><u>無償で動画編集 - ロゴ無し、水玉入り可能: 完全自由化編集ソフトのガイド</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/p-by-step-guide-to-forming-effective-youtube-partner-relationships/"><u>A Step-by-Step Guide to Forming Effective YouTube Partner Relationships</u></a></li>
+<li><a href="https://discover-bits.techidaily.com/get-your-hands-on-premium-downloads-at-no-cost-choose-from-the-best-tools-and-books/"><u>Get Your Hands on Premium Downloads at No Cost – Choose From the Best Tools and Books</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-honor-100-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Honor 100 without Losing Data | Dr.fone</u></a></li>
+<li><a href="https://win-dash.techidaily.com/kodak-printer-driver-downloads-secure-and-update-with-ease/"><u>Kodak Printer Driver Downloads - Secure and Update with Ease</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/k-youtube-success-with-top-8-thumbnail-strategies/"><u>Unlock YouTube Success with Top 8 Thumbnail Strategies</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/winning-against-windows-10s-pnp-detected-fatal-malfunction-a-step-by-step-guide/"><u>Winning Against Windows 10'S 'PNP Detected' Fatal Malfunction – A Step-by-Step Guide</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  The Ultimate Guide  Incorporating Informative Commentary in YouTube Videos\""
-date: 2024-09-15T00:00:06.790Z
-updated: 2024-09-21T19:55:35.747Z
+date: 2024-09-28T21:31:03.707Z
+updated: 2024-10-03T18:07:20.570Z
 tags:
   - ai video
   - ai youtube
@@ -72,6 +72,13 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 * Apply changes and exit
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to add YouTube annotations
 
 YouTube Annotation is addition of a text layer, link or hotspots over your video. They add interactive boxes which link to other websites or videos (any link you want).
@@ -82,10 +89,24 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094418/7443" target="_top" id="2094418">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094418" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094418/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Apply changes
 
@@ -125,6 +146,13 @@ No matter what kind of annotations you are using, you should never use more than
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997635/19272" target="_top" id="1997635">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997635" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997635/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -144,12 +172,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/chieving-profitability-on-youtube-average-view-count-for-success-for-2024/"><u>[New] Achieving Profitability on YouTube Average View Count for Success for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ullview-media-collaboration-guidebook/"><u>[New] FullView Media Collaboration Guidebook</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-lost-video-playback-sony-a6400-problems-explored/"><u>[New] Lost Video Playback Sony A6400 Problems Explored</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/aximize-views-the-art-of-timestamp-integration-on-youtube/"><u>[New] Maximize Views The Art of Timestamp Integration on YouTube</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-restoring-lost-eyes-only-snapshots-on-snapchat/"><u>[Updated] 2024 Approved Restoring Lost Eyes-Only Snapshots on Snapchat</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-essential-specs-for-smooth-operation-of-big-sur-for-2024/"><u>[Updated] Essential Specs for Smooth Operation of Big Sur for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-illuminate-iphone-clips-simple-solutions-to-lighten-video/"><u>[Updated] Illuminate iPhone Clips Simple Solutions to Lighten Video</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-10-tricks-for-turning-youtube-watchlists-around/"><u>[Updated] In 2024, 10 Tricks for Turning YouTube Watchlists Around</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-unlocking-full-screen-recording-features-in-mi-11-for-2024/"><u>[Updated] Unlocking Full-Screen Recording Features in Mi 11 for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-enhancing-your-spotify-collection-with-youtube-music-integration/"><u>2024 Approved Enhancing Your Spotify Collection with YouTube Music Integration</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-sony-xperia-1-v-by-drfone-android/"><u>In 2024, AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Sony Xperia 1 V</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-realme-c67-5g-phone-without-google-account-by-drfone-android/"><u>In 2024, How to Unlock Realme C67 5G Phone without Google Account?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-of-ergodynes-topo-mat-your-reliable-companion-in-combatting-workplace-fatigue/"><u>In-Depth Analysis of ErgoDyne's Topo Mat: Your Reliable Companion in Combatting Workplace Fatigue</u></a></li>
+</ul></div>
 

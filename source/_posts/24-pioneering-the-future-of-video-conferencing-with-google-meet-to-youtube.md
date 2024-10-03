@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Pioneering the Future of Video Conferencing with Google Meet to YouTube"
-date: 2024-09-25T16:31:27.484Z
-updated: 2024-09-28T16:14:28.005Z
+date: 2024-09-30T19:18:46.788Z
+updated: 2024-10-03T19:31:14.285Z
 tags:
   - ai video
   - ai youtube
@@ -54,13 +54,6 @@ For **Google Meet YouTube live**, there are some requirements. The reason is tha
 
 **Note:** To know the exact pricing plans of Google Workspace, you have to contact Google Support.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. Approval of YouTube Channel for Live
 
 To conduct live streaming, you must receive approval from the YouTube channel. For this, you must access your channel's YouTube Studio to perform the account verification. Now to activate and enable live streaming on your YouTube account, check the following steps:
@@ -69,22 +62,22 @@ Step1 Open your YouTube account and click on the "Profile" icon given at the top
 
 ![choose the youtube studio option](https://images.wondershare.com/filmora/article-images/2022/11/stream-google-meet-to-youtube-1.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1977020">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step2 A new window will be displayed on your screen. From the left panel, select "Content" among other options. Under the section called "Live," locate the "Get Started" option. Afterward, tap on the "Request" option and perform the verification steps for enabling live streaming. After 24 hours, you would get approval for live streaming on YouTube. Hence, you would be able to live stream Google Meet meetings through your YouTube channel.
 
 ![tap on get ting started option](https://images.wondershare.com/filmora/article-images/2022/11/stream-google-meet-to-youtube-2.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1938141">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Connect your YouTube Channel to Google Meet
 
@@ -93,10 +86,10 @@ Once you get approval for live streaming, you can connect the YouTube channel to
 Furthermore, you should use the same email address to enter the Google Meet that is connected to your YouTube account. By using the same email address, you can ensure smooth live streaming of Google Meet sessions to your YouTube channel. Also, you can only use laptops or desktops for initiating live streaming. The reason is that the **Google Meet live stream** on YouTube is not currently available on mobile devices.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: How to Live Stream from Google Meet to YouTube
@@ -112,13 +105,6 @@ Step3 Make sure that the Google account attached to your YouTube channel is capa
 Step4 Now enter your Google Meet session and click on the “Activities” option. From the Activities menu, select "Live Streaming." Now a small menu will open for live-streaming settings. You can create a new event and add an event title. Make sure to choose the privacy options and desired language. Afterward, click on the “Start Streaming” option.
 
 Step5 A small pop-up will appear that will tell you to remind your participants about live streaming. After reminding, click on the "Start" button. You can see the red "Live" button that will indicate to you the ongoing live-streaming session. Once you have concluded the live streaming by clicking on the "Stop Streaming" button, you can check the video analytics by visiting your YouTube channel.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012401/19272" target="_top" id="2012401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012401" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012401/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Bonus Tip: Easily Record your Google Meet Live Stream
 
@@ -136,6 +122,13 @@ Download Wondershare Filmora and open its interface. Click the “Screen Recorde
 
 ![select the screen recorder](https://images.wondershare.com/filmora/article-images/2022/11/stream-google-meet-to-youtube-3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step2 Adjust Settings and Start Recording
 
 From Settings, you can also select the quality, frame rate, and color of mouse clicks. Once you have adjusted all the settings properly, hit the “REC” button.
@@ -149,16 +142,10 @@ After the countdown, the screen recording will begin. To stop the recording, you
 ![screen recording completed](https://images.wondershare.com/filmora/article-images/2022/11/stream-google-meet-to-youtube-5.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1834903">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1521325/16446" target="_top" id="1521325">
+  <img src="//a.impactradius-go.com/display-ad/16446-1521325" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1521325/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -192,10 +179,10 @@ For **Google Meet YouTube live**, there are some requirements. The reason is tha
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094479/7443" target="_top" id="2094479">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094479" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094479/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Note:** To know the exact pricing plans of Google Workspace, you have to contact Google Support.
@@ -212,11 +199,31 @@ Step2 A new window will be displayed on your screen. From the left panel, select
 
 ![tap on get ting started option](https://images.wondershare.com/filmora/article-images/2022/11/stream-google-meet-to-youtube-2.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1993645">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. Connect your YouTube Channel to Google Meet
 
 Once you get approval for live streaming, you can connect the YouTube channel to your Google Meet account. If the Host Management option is disabled, anyone within the Google Meet session can start live streaming. Conversely, only hosts or co-hosts can begin live streaming if this option is activated. Moreover, the individual who is starting the live stream from Google Meet will get connected to his YouTube channel.
 
 Furthermore, you should use the same email address to enter the Google Meet that is connected to your YouTube account. By using the same email address, you can ensure smooth live streaming of Google Meet sessions to your YouTube channel. Also, you can only use laptops or desktops for initiating live streaming. The reason is that the **Google Meet live stream** on YouTube is not currently available on mobile devices.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 2: How to Live Stream from Google Meet to YouTube
 
@@ -233,16 +240,10 @@ Step4 Now enter your Google Meet session and click on the “Activities” optio
 Step5 A small pop-up will appear that will tell you to remind your participants about live streaming. After reminding, click on the "Start" button. You can see the red "Live" button that will indicate to you the ongoing live-streaming session. Once you have concluded the live streaming by clicking on the "Stop Streaming" button, you can check the video analytics by visiting your YouTube channel.
 
 <!-- affiliate ads begin -->
-<span id="1982499">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2148773/18498" target="_top" id="2148773">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148773" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148773/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Bonus Tip: Easily Record your Google Meet Live Stream
@@ -250,13 +251,6 @@ Step5 A small pop-up will appear that will tell you to remind your participants 
 Do you want to save your **Google Meet live-stream session**? The best tool through which you can save your essential live-streaming sessions is [Wondershare Filmora Screen Recorder](https://tools.techidaily.com/wondershare/filmora/download/). By using this efficient screen recorder, you can access your saved live streaming session and revise the important points discussed in it.
 
 The screen recorder of Filmora is capable of capturing webcam and screen recording simultaneously. You can select a customized recording area through this tool. For example, you can choose a full screen, a specific window, or a customized area. Furthermore, this screen recording tool can also capture your microphone and system’s sounds in high quality. At the same time, as a powerful video editor, you can edit your videos with various advanced features of Filmora to bring them to the next level. Click the video below to learn more about Filmora's new features.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Steps to Record Live Streaming Using Filmora Screen Recorder
 
@@ -311,24 +305,20 @@ To save and access your live streaming sessions later, you can try the screen re
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-ascend-youtube-rankings-through-optimal-dating/"><u>[New] 2024 Approved Ascend YouTube Rankings Through Optimal Dating</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-charting-the-course-to-digital-stardom-launch-your-chanel-today/"><u>[New] 2024 Approved Charting the Course to Digital Stardom Launch Your Chanel Today</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-elevating-your-content-choosing-right-youtube-duosgroups/"><u>[New] 2024 Approved Elevating Your Content Choosing Right YouTube Duos/Groups</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-foundations-first-what-to-invest-in-for-youtubing/"><u>[New] 2024 Approved Foundations First What To Invest In for YouTubing</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-infographic-led-exploration-of-future-social-trends/"><u>[New] 2024 Approved Infographic-Led Exploration of Future Social Trends</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-online-capture-screen-to-youtube-posting-with-pcmac/"><u>[New] 2024 Approved Online Capture Screen-to-YouTube Posting with PC/Mac</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-premium-download-experience-best-youtube-playlist-extractors-reviewed/"><u>[New] 2024 Approved Premium Download Experience Best YouTube Playlist Extractors Reviewed</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-recruiting-revolutionaries-10-most-motivational-episodes/"><u>[New] 2024 Approved Recruiting Revolutionaries - 10 Most Motivational Episodes</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-scripting-significant-soliloquies/"><u>[New] 2024 Approved Scripting Significant Soliloquies</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-unlocking-mini-music-magic-tips-for-shortform-soundtracks/"><u>[Updated] In 2024, Unlocking Mini-Music Magic Tips for Shortform Soundtracks</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-photographic-experience-with-aurora-hdr-software/"><u>[Updated] Photographic Experience with Aurora HDR Software</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-quintessential-quests-screenwriting-gems/"><u>[Updated] Quintessential Quests Screenwriting Gems</u></a></li>
-<li><a href="https://location-social.techidaily.com/4-most-known-ways-to-find-someone-on-tinder-for-lava-blaze-2-pro-by-name-drfone-by-drfone-virtual-android/"><u>4 Most-Known Ways to Find Someone on Tinder For Lava Blaze 2 Pro by Name | Dr.fone</u></a></li>
-<li><a href="https://apple-account.techidaily.com/apple-id-unlock-from-apple-iphone-xs-max-how-to-fix-it-by-drfone-ios/"><u>Apple ID Unlock From Apple iPhone XS Max? How to Fix it?</u></a></li>
-<li><a href="https://win-answers.techidaily.com/fixes-found-detroit-the-human-experience-stabilizes-on-windows-pc/"><u>Fixes Found: Detroit - The Human Experience Stabilizes on Windows PC</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/in-2024-live-feed-obs-on-instagram-app/"><u>In 2024, Live Feed OBS on Instagram App</u></a></li>
-<li><a href="https://win-able.techidaily.com/quick-fixes-for-opening-a-stubborn-razer-synapse-interface/"><u>Quick Fixes for Opening a Stubborn Razer Synapse Interface</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-zte-nubia-flip-5g-drfone-by-drfone-virtual-android/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On ZTE Nubia Flip 5G | Dr.fone</u></a></li>
-<li><a href="https://howto.techidaily.com/troubleshooting-guide-how-to-fix-an-unresponsive-realme-11-pro-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Troubleshooting Guide How to Fix an Unresponsive Realme 11 Pro Screen | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-entrepreneur-writes-top-youtube-sites-for-business-success/"><u>[New] In 2024, Entrepreneur' Writes Top YouTube Sites for Business Success</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/parking-inspiration-outstanding-youtube-content-themes-for-2024/"><u>[New] Sparking Inspiration Outstanding YouTube Content Themes for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-chordcapture-studio-free-download-and-evaluate/"><u>[Updated] 2024 Approved ChordCapture Studio Free, Download & Evaluate</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-smart-budget-audio-gear-for-online-sensation-hopefuls/"><u>[Updated] In 2024, Smart Budget Audio Gear for Online Sensation Hopefuls</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-top-5-ios-apps-for-seamless-psp-gaming-experience-for-2024/"><u>[Updated] Top 5 iOS Apps For Seamless PSP Gaming Experience for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-understanding-and-implementing-cc-licenses-wisely/"><u>2024 Approved Understanding & Implementing CC Licenses Wisely</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/rt-with-precision-10-leading-tools-from-flv-to-youtube-platforms-for-2024/"><u>Convert with Precision 10 Leading Tools From Flv to YouTube Platforms for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/1723175718586-expertly-selected-best-aio-cooling-units-of-2024-beat-the-heat/"><u>Expertly Selected Best AIO Cooling Units of 2024: Beat the Heat</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-nokia-g310-drfone-by-drfone-virtual-android/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Nokia G310? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-turn-off-google-location-to-stop-tracking-you-on-vivo-v27-pro-drfone-by-drfone-virtual-android/"><u>How to Turn Off Google Location to Stop Tracking You on Vivo V27 Pro | Dr.fone</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-bring-your-ideas-to-life-top-animation-software-for-newbies-and-pros/"><u>In 2024, Bring Your Ideas to Life Top Animation Software for Newbies and Pros</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-video-enhancement-embedding-youtube-into-google-slides/"><u>In 2024, Video Enhancement Embedding YouTube Into Google Slides</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/live-radio-transmissions-recorded-with-ease-an-experts-guide-for-2024/"><u>Live Radio Transmissions Recorded with Ease An Expert's Guide for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/step-by-step-masterclass-securely-transferring-cinema-content-to-mac-and-macbook-pcs/"><u>Step-by-Step Masterclass: Securely Transferring Cinema Content to Mac and MacBook PCs</u></a></li>
+<li><a href="https://fake-location.techidaily.com/wondering-the-best-alternative-to-hola-on-vivo-x100-pro-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>Wondering the Best Alternative to Hola On Vivo X100 Pro? Here Is the Answer | Dr.fone</u></a></li>
 </ul></div>
 

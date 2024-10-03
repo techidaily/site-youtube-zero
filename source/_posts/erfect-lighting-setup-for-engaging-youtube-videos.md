@@ -1,7 +1,7 @@
 ---
 title: "[New] Perfect Lighting Setup for Engaging YouTube Videos"
-date: 2024-09-14T18:25:49.924Z
-updated: 2024-09-21T22:42:00.803Z
+date: 2024-09-28T20:13:11.039Z
+updated: 2024-10-03T22:05:50.729Z
 tags:
   - ai video
   - ai youtube
@@ -60,26 +60,40 @@ Home lighting is another source of light that many new YouTubers use. In the pas
 
 ![Mixed Lighting](https://images.wondershare.com/filmora/article-images/home-lighting-for-youtube-videos.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
+  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Notice how the color of Daniel's skin looks much more orange here (above) than the color of the skin in the two side-by-side window lighting examples? The side of the face also appears to look bluer. This all happened because he mixed up different color temperatures shining out of the two lights (cooler window light and warmer ceiling light).
 
 Most home lighting is warmer in its color temperature. If you want to use your home lights without everything being orange-tinted, you’ll need to switch out your light bulbs for daytime LED light bulbs.
 
 Ceiling lights are also typically situated in the center of a room in order to light an entire room evenly. This is not likely to be the best location for your filming video. Since the ceiling light was directly above the face in the above example, you can see harder shadows beneath his cheeks.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Home Studio Lighting
 
 If you rather not deal with all the window and home lighting challenges, you can set up studio lighting in your home.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918679/19272" target="_top" id="1918679">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918679" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918679/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1. Light Control
 
 The first thing you’ll want to do to set up studio lighting in your home is to pick a room to film in and eliminate as much external lighting as you can. Use blinds, curtains, towels, or any thick fabric to block sunlight from shining into your room.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037345/7443" target="_top" id="2037345">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037345" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037345/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2. 3-Point Lighting
 
@@ -92,13 +106,6 @@ Out of the three lights, the key light should be the brightest. When it is posit
 To minimize the shadows on your right side, use a weaker light as a fill light. You don’t want your fill light to completely eliminate all your shadows or else your shot will look flat.
 
 Lastly, a backlight positioned behind you can give an appealing highlight to the ends of your head and even help to separate your hair from blending into your background if both happen to be dark.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3. 4-Point Lighting
 
@@ -117,10 +124,10 @@ For more information on lighting equipment, check out my [Top 17 Video Lighting 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -142,5 +149,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-files.techidaily.com/new-2024-approved-your-ultimate-resource-for-hassle-free-and-affordable-online-passport-photos/"><u>[New] 2024 Approved Your Ultimate Resource for Hassle-Free & Affordable Online Passport Photos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/igital-dominance-top-youtube-watch-count-chronicles-for-2024/"><u>[New] Digital Dominance Top YouTube Watch Count Chronicles for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-does-money-flow-into-shopping-guides-vids/"><u>[New] Does Money Flow Into Shopping Guides Vids?</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ow-to-create-animated-bouncing-text-2-ways-for-2024/"><u>[New] How to Create Animated Bouncing Text [2 Ways] for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-watch-9-free-full-length-christmas-movies-on-youtube/"><u>[New] In 2024, Watch 9 Free Full Length Christmas Movies On Youtube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-interactive-engagement-adding-emojis-to-youtubes-comments/"><u>[Updated] 2024 Approved Interactive Engagement Adding Emojis to Youtubes' Comments</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-your-pathway-to-youtube-live-success-stories/"><u>[Updated] 2024 Approved Your Pathway to YouTube Live Success Stories</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-social-media-shifts-yearly-data-visualization-guide/"><u>[Updated] In 2024, Social Media Shifts Yearly Data Visualization Guide</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-uncomplicated-online-music-conversion-top-6-free-ios-apps-for-video-and-audio/"><u>[Updated] In 2024, Uncomplicated Online Music Conversion Top 6 Free iOS Apps for Video & Audio</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-optimal-activities-coexisting-with-listening-podcasts-for-2024/"><u>[Updated] Optimal Activities Coexisting with Listening Podcasts for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/3-things-you-must-know-about-fake-snapchat-location-on-lava-yuva-2-drfone-by-drfone-virtual-android/"><u>3 Things You Must Know about Fake Snapchat Location On Lava Yuva 2 | Dr.fone</u></a></li>
+<li><a href="https://driver-download.techidaily.com/easy-steps-dell-speakers-software-updates-and-downloads/"><u>Easy Steps: Dell Speakers Software Updates and Downloads</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-apple-iphone-se-asking-for-passcode-after-ios-1714-update-what-to-do-by-drfone-ios/"><u>In 2024, Apple iPhone SE Asking for Passcode after iOS 17/14 Update, What to Do?</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-evaluating-the-storage-power-of-64128gb-units-for-vids/"><u>In 2024, Evaluating the Storage Power of 64/128GB Units for Vids</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/cketing-youtube-views-strategies-to-dodge-bots-for-2024/"><u>Skyrocketing YouTube Views Strategies to Dodge Bots for 2024</u></a></li>
+<li><a href="https://driver-download.techidaily.com/step-by-step-installing-the-latest-lenovo-thinkpad-t45-2016-drivers-instantly-and-effortlessly/"><u>Step-by-Step: Installing the Latest Lenovo ThinkPad T45 2016 Drivers Instantly & Effortlessly!</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/rt-of-disregarding-harmful-youtube-comments/"><u>The Art of Disregarding Harmful YouTube Comments</u></a></li>
+<li><a href="https://fox-that.techidaily.com/unstuck-your-ios-devices-keyboard-quick-solutions-to-get-it-working-again/"><u>Unstuck Your iOS Device's Keyboard: Quick Solutions to Get It Working Again</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-2024-approved-converting-regular-videos-with-best-vr-video-converters/"><u>Updated 2024 Approved Converting Regular Videos with Best VR Video Converters</u></a></li>
+</ul></div>
 

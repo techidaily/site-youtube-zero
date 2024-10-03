@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Perfecting Stability  A No-Tripod Guide for 2024\""
-date: 2024-09-20T20:39:45.398Z
-updated: 2024-09-22T00:03:37.690Z
+date: 2024-10-02T22:03:31.979Z
+updated: 2024-10-03T18:16:48.976Z
 tags:
   - ai video
   - ai youtube
@@ -55,6 +55,13 @@ Here it is with binder clips:
 
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
@@ -62,6 +69,13 @@ And here it is with hair clips:
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **DIY adjustable tripod using books and a towel**
 
@@ -80,6 +94,13 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
+  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -87,13 +108,6 @@ Gorillapod’s are cool because you can use them like normal tripods, carry them
 Your wire should be fairly stiff and you’ll need three pieces the same length, which should be at least 10 inches. Old clothes hangers work well. This needs to be something strong enough to support the weight of your camera, but soft enough that it’s not impossible for you to bend.
 
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
 
@@ -118,10 +132,10 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997717/19272" target="_top" id="1997717">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997717" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997717/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -143,5 +157,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/onverting-spotify-playlist-content-for-youtube-music-compatibility/"><u>[New] Converting Spotify Playlist Content for YouTube Music Compatibility</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/xploring-the-possibility-of-monthly-youtube-income/"><u>[New] Exploring the Possibility of Monthly YouTube Income</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/treamlined-converting-top-six-free-ios-apps-for-youtube-to-mp3-for-2024/"><u>[New] Streamlined Converting Top Six Free iOS Apps for YouTube-to-MP3 for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-getting-started-audacitys-guide-to-microphone-use-on-mac/"><u>[Updated] 2024 Approved Getting Started Audacity's Guide to Microphone Use on Mac</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-youtube-money-matters-how-to-understand-your-partner-payouts/"><u>[Updated] 2024 Approved YouTube Money Matters How to Understand Your Partner Payouts</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-how-to-craft-an-engaging-solo-auditory-adventure/"><u>[Updated] How to Craft an Engaging Solo Auditory Adventure</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-exploring-the-difference-between-ig-reels-and-stories/"><u>[Updated] In 2024, Exploring the Difference Between IG Reels & Stories</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ring-income-average-creator-revenue-from-adverts-on-youtube-for-2024/"><u>Exploring Income Average Creator Revenue From Adverts on YouTube for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/guide-complet-du-centre-daide-en-ligne-pour-utiliser-efficacement-le-ripper-winx-et-son-outil-de-conversion-video/"><u>Guide Complet Du Centre D'aide en Ligne Pour Utiliser Efficacement Le Ripper WinX Et Son Outil De Conversion Vidéo</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-show-wi-fi-password-on-poco-x6-pro-by-drfone-android/"><u>In 2024, How to Show Wi-Fi Password on Poco X6 Pro</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-microphone-matchmaking-adapting-to-your-youtube-channels-needs/"><u>In 2024, Microphone Matchmaking Adapting to Your YouTube Channel's Needs</u></a></li>
+<li><a href="https://win11.techidaily.com/mastering-microsoft-excel-a-complete-guide-to-utilizing-the-fv-formula/"><u>Mastering Microsoft Excel: A Complete Guide to Utilizing the FV Formula</u></a></li>
+<li><a href="https://program-issues.techidaily.com/mastering-the-fix-ultimate-guide-to-getting-your-hp-display-working-again/"><u>Mastering the Fix: Ultimate Guide to Getting Your HP Display Working Again</u></a></li>
+<li><a href="https://fox-useful.techidaily.com/optimize-update-detection-processes-using-installed-base-detector-tool/"><u>Optimize Update Detection Processes Using Installed Base Detector Tool</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/superior-prompt-quality-vs-expense-a-value-insight/"><u>Superior Prompt Quality vs Expense: A Value Insight?</u></a></li>
+</ul></div>
 

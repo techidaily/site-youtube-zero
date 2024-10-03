@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, The Convenient Way to Mute Youtube Channels on PC/Mobile"
-date: 2024-09-22T16:23:24.133Z
-updated: 2024-09-28T16:10:22.880Z
+date: 2024-10-01T17:28:12.716Z
+updated: 2024-10-03T20:07:22.833Z
 tags:
   - ai video
   - ai youtube
@@ -58,13 +58,6 @@ thumbnail: https://thmb.techidaily.com/b034e397cf58f21c63fc5dd80cb149d6528213f9e
 
 ![submit and confirm](https://images.wondershare.com/filmora/article-images/submit2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Part 2: How to block YouTube channels on Mobile Phones (Android & iPhone)**
 
  One can also block YouTube channels on mobile devices in the same manner as you would do it on the desktop computer. It will do the same effect and prevent bullying users from interacting with your content.
@@ -75,16 +68,23 @@ thumbnail: https://thmb.techidaily.com/b034e397cf58f21c63fc5dd80cb149d6528213f9e
 
 ![find users](https://images.wondershare.com/filmora/article-images/find-users.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * 4\. When you’re on the account page, open the menu at the top-right corner of the screen and tap Block user.
 
 ![tap block users](https://images.wondershare.com/filmora/article-images/tap-block-user2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Part 3: Block content on YouTube kids**
 
@@ -97,22 +97,15 @@ thumbnail: https://thmb.techidaily.com/b034e397cf58f21c63fc5dd80cb149d6528213f9e
 ![confirm parent](https://images.wondershare.com/filmora/article-images/a-parent3.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * 2\. Sign in with your preferred Google account.
 
 ![parent account](https://images.wondershare.com/filmora/article-images/parent-account4.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 * 3\. Here you’ll see a button **Send Parental Consent Emai**l, press it.
 * 4\. You’ll get an activation code on your email address.
@@ -120,23 +113,30 @@ thumbnail: https://thmb.techidaily.com/b034e397cf58f21c63fc5dd80cb149d6528213f9e
 
  Now as you’re signed in as a parent you can block channels and specific content.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **I. Block on Home screen**
 
 * 1\. On the Home screen press the dotted menu next to the video
 
 ![home screen](https://images.wondershare.com/filmora/article-images/home-screen5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139113/17108" target="_top" id="2139113">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139113" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139113/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * 2\. In the menu list, you will see **Block this video**, tap it.
 * 3\. You’ll be asked to enter the numbers written on the screen or a custom passcode.
 
 ![get passcode](https://images.wondershare.com/filmora/article-images/pass-code6.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027181/19272" target="_top" id="2027181">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027181" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027181/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **II. Block from Watch Page**
 
@@ -181,22 +181,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-this-years-unexpected-cinematic-gems/"><u>[New] 2024 Approved This Year's Unexpected Cinematic Gems</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-top-9-premium-wedding-films-online-youtube-and-vimeo/"><u>[New] 2024 Approved Top 9 Premium Wedding Films Online Youtube & Vimeo</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-your-marketing-journey-begins-here-experience-the-full-spectrum-of-over-50-free-ads/"><u>[New] 2024 Approved Your Marketing Journey Begins Here - Experience the Full Spectrum of Over 50 FREE Ads!</u></a></li>
-<li><a href="https://extra-information.techidaily.com/updated-10-best-practices-for-boosting-srt-on-pc-and-macos/"><u>[Updated] 10 Best Practices for Boosting SRT on PC & macOS</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-precisionsync-analyst-perspectives-for-2024/"><u>[Updated] PrecisionSync Analyst Perspectives for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-kinetic-control-on-android-the-kinemaster-dive/"><u>2024 Approved Kinetic Control on Android The KineMaster Dive</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/a-visual-guide-to-excellent-collage-making/"><u>A Visual Guide to Excellent Collage Making</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-16-crowning-youtube-opens-for-enhanced-reach/"><u>In 2024, 16 Crowning YouTube Opens for Enhanced Reach</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-9-fitness-trends-to-captivate-your-online-audience-with-action/"><u>In 2024, 9 Fitness Trends to Captivate Your Online Audience with Action</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-amplify-engagement-utilizing-youtube-analytics-wisely/"><u>In 2024, Amplify Engagement Utilizing YouTube Analytics Wisely</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-collaborative-video-workflows-for-content-growth/"><u>In 2024, Collaborative Video Workflows for Content Growth</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-crafting-a-sports-highlight-step-by-step-tutorial/"><u>In 2024, Crafting a Sports Highlight Step-by-Step Tutorial</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-from-footage-to-masterpiece-best-1080p-video-editing-software-solutions/"><u>In 2024, From Footage to Masterpiece Best 1080P Video Editing Software Solutions</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-mastering-distinctiveness-amidst-top-tiktok-stars/"><u>In 2024, Mastering Distinctiveness Amidst Top TikTok Stars</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-secrets-to-successful-twitpicingvideos-included/"><u>In 2024, Secrets to Successful Twitpicing—Videos Included</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-why-does-the-pokemon-go-battle-league-not-available-on-oneplus-11r-drfone-by-drfone-virtual-android/"><u>In 2024, Why does the pokemon go battle league not available On OnePlus 11R | Dr.fone</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-from-beginner-to-pro-5-final-cut-pro-editing-tips-to-improve-your-skills/"><u>Updated 2024 Approved From Beginner to Pro 5 Final Cut Pro Editing Tips to Improve Your Skills</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/opycatting-charisma-making-ingenious-parodies-for-2024/"><u>[New] Copycatting Charisma Making Ingenious Parodies for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-breakthrough-techniques-for-outstanding-youtube-openers-technique-1plus2/"><u>[New] In 2024, Breakthrough Techniques for Outstanding YouTube Openers (Technique 1+2)</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-checking-credentials-on-youtube/"><u>[New] In 2024, Checking Credentials on YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-unlocking-potential-creating-compelling-content-on-your-phone/"><u>[Updated] 2024 Approved Unlocking Potential Creating Compelling Content on Your Phone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-mastering-the-craft-perfecting-podcast-trailer-production/"><u>[Updated] Mastering the Craft Perfecting Podcast Trailer Production</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-top-10-ai-powered-name-generators-for-podcasts-online-for-2024/"><u>[Updated] Top 10 AI-Powered Name Generators for Podcasts Online for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ing-a-profitable-channel-in-your-first-youtube-steps-for-2024/"><u>Crafting a Profitable Channel in Your First Youtube Steps for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/oad-and-save-youtube-thumbnails-with-simplicity-and-speed-for-2024/"><u>Download and Save YouTube Thumbnails with Simplicity & Speed for 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-samsung-galaxy-m14-4g-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Samsung Galaxy M14 4G Phones with/without a PC</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-sign-excel-2013-by-digital-signature-by-ldigisigner-sign-a-excel-sign-a-excel/"><u>How to sign Excel 2013 by digital signature</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-oneplus-11r-frp-in-3-different-ways-by-drfone-android/"><u>In 2024, How To Bypass OnePlus 11R FRP In 3 Different Ways</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-tecno-spark-10-4g-phone-without-any-data-loss-by-drfone-android/"><u>In 2024, How to Unlock Tecno Spark 10 4G Phone without Any Data Loss</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-snapshot-styles-a-guide-to-using-old-school-vhs-in-modern-editing/"><u>In 2024, Snapshot Styles A Guide to Using Old-School VHS in Modern Editing</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-step-by-step-guide-on-using-gaming-youtube-banner-templates/"><u>In 2024, Step-By-Step Guide on Using Gaming YouTube Banner Templates</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/astery-choosing-top-dj-videos-for-events/"><u>Mix Mastery Choosing Top DJ Videos for Events</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ved-mystery-of-absentee-shorts-for-2024/"><u>Resolved Mystery of Absentee Shorts for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/top-strategies-to-lock-in-your-key-chat-threads-as-favorites-on-instagram/"><u>Top Strategies to Lock in Your Key Chat Threads as Favorites on Instagram</u></a></li>
+<li><a href="https://techtrends.techidaily.com/transforming-heic-photos-into-jpegs-across-windows-10-and-mac-systems-simple-tips-and-tricks/"><u>Transforming HEIC Photos Into JPEGs Across Windows 10 & Mac Systems - Simple Tips & Tricks</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/unveiling-the-flip-side-of-chatgpt-plus/"><u>Unveiling the Flip Side of ChatGPT Plus</u></a></li>
 </ul></div>
 

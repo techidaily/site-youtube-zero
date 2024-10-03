@@ -1,7 +1,7 @@
 ---
 title: "Enlightening Your YouTube Footage with Proper Lighting for 2024"
-date: 2024-09-22T16:58:24.874Z
-updated: 2024-09-28T17:00:19.780Z
+date: 2024-09-26T21:06:41.544Z
+updated: 2024-10-03T17:38:53.388Z
 tags:
   - ai video
   - ai youtube
@@ -52,6 +52,19 @@ Window lighting for me was especially difficult to work with because I live in a
 
 ![  YouTube Video Lighting ](https://images.wondershare.com/filmora/article-images/window-lighting-comparison.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1424531">
+					<video width="864" height="NaN" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Above are two freeze frames from one of Daniel's past window-lit vlogs. Although these two frames are both from the same vlog, you can see that the image on the right looks brighter due to clearer skies at that moment. These varying amounts of light is what you will have to deal with if you choose to light your YouTube video with window lighting.
 
 ### 2. Home Lighting
@@ -59,6 +72,13 @@ Above are two freeze frames from one of Daniel's past window-lit vlogs. Although
 Home lighting is another source of light that many new YouTubers use. In the past, when my window light wasn’t strong enough to light my video recording space, I would turn on the ceiling light.
 
 ![Mixed Lighting](https://images.wondershare.com/filmora/article-images/home-lighting-for-youtube-videos.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006960/19272" target="_top" id="2006960">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Notice how the color of Daniel's skin looks much more orange here (above) than the color of the skin in the two side-by-side window lighting examples? The side of the face also appears to look bluer. This all happened because he mixed up different color temperatures shining out of the two lights (cooler window light and warmer ceiling light).
 
@@ -71,22 +91,15 @@ Ceiling lights are also typically situated in the center of a room in order to l
 If you rather not deal with all the window and home lighting challenges, you can set up studio lighting in your home.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1. Light Control
 
 The first thing you’ll want to do to set up studio lighting in your home is to pick a room to film in and eliminate as much external lighting as you can. Use blinds, curtains, towels, or any thick fabric to block sunlight from shining into your room.
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148648/16836" target="_top" id="2148648">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148648" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148648/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2. 3-Point Lighting
 
@@ -108,13 +121,6 @@ What you’ll need to ensure that your background is sufficiently lit is 4-point
 
 For more information on lighting equipment, check out my [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Touch Up YouTube Videos with Filmora
 
 [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is one of the best video editing software for YouTube beginners to start the YouTube channel. So, if you find the lighting isn't perfect after recording, you can use the Auto Color Enhancement feature in Filmora to adjust the color with one-click. Or, you can change the white balance, Light, color, and HSL manually. Filmora also features some presets and [LUTs templates](https://tools.techidaily.com/wondershare/filmora/download/), which allows you to apply pre-programmed effects to video for color correction faster.
@@ -122,10 +128,10 @@ For more information on lighting equipment, check out my [Top 17 Video Lighting 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044586/7443" target="_top" id="2044586">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044586" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896541/19272" target="_top" id="1896541">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896541" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044586/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896541/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -151,18 +157,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-shegames-legends-youtubes-number-one-ten/"><u>[New] 2024 Approved SheGames Legends YouTube's Number One Ten</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-streamlining-video-updates-on-youtube/"><u>[New] 2024 Approved Streamlining Video Updates on YouTube</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-the-definitive-guide-to-ios-and-android-maker-tools/"><u>[New] 2024 Approved The Definitive Guide to iOS & Android Maker Tools</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-the-essential-blueprint-for-inspiring-valorant-video-thumbnails/"><u>[New] 2024 Approved The Essential Blueprint for Inspiring Valorant Video Thumbnails</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-unrestricted-creativity-the-ultimate-android-editing-selection/"><u>[New] 2024 Approved Unrestricted Creativity The Ultimate Android Editing Selection</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/new-in-2024-speak-up-right-away-timely-responses-to-discord-chats/"><u>[New] In 2024, Speak Up Right Away Timely Responses to Discord Chats</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/solved-crop-mp3-files-quickly-and-easily/"><u>[SOLVED] | Crop Mp3 Files |Quickly & Easily</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-recording-realities-evaluating-the-power-and-precision-of-apeaksoftware/"><u>[Updated] 2024 Approved Recording Realities – Evaluating the Power and Precision of Apeaksoftware</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/diy-karaoke-bash-in-the-comfort-of-your-living-room-step-by-step/"><u>DIY Karaoke Bash in the Comfort of Your Living Room - Step by Step</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Come up With the Best Pokemon Team On Apple iPhone 7 Plus? | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-mirror-your-nubia-z50s-pro-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>In 2024, How to Mirror Your Nubia Z50S Pro Screen to PC with Chromecast | Dr.fone</u></a></li>
-<li><a href="https://techtrends.techidaily.com/siris-secret-talent-how-to-command-apples-virtual-assistant-to-read-text-on-your-devices/"><u>Siri's Secret Talent: How to Command Apple’s Virtual Assistant to Read Text on Your Devices</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/updated-top-10-podcasting-audio-to-text-transcription-software-for-2024/"><u>Updated Top 10 Podcasting Audio to Text Transcription Software for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-design-dynamo-series-top-complimentary-text-psdfree-for-2024/"><u>[New] Design Dynamo Series Top Complimentary Text PSDFree for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/mplementing-video-transcripts-via-youtube-captions-for-2024/"><u>[New] Implementing Video Transcripts via YouTube Captions for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-discover-times-tales-top-10-historical-channels-to-study-with/"><u>[New] In 2024, Discover Time's Tales Top 10 Historical Channels to Study With</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-5-effective-tricks-for-youtube-subscriber-surges-for-2024/"><u>[Updated] 5 Effective Tricks for YouTube Subscriber Surges for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-transform-your-farm-with-stardews-most-innovative-mods-7-best/"><u>[Updated] In 2024, Transform Your Farm with Stardew's Most Innovative Mods (7 Best)</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-master-the-art-of-video-annotation-using-markers-with-ease-for-2024/"><u>[Updated] Master the Art of Video Annotation Using Markers with Ease for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/combat-the-dxgierror-windows-devices-reattached/"><u>Combat the DXGI_ERROR: Windows Devices Reattached</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/easy-steps-to-update-and-install-graphics-driver-for-hp-g3-series-computers/"><u>Easy Steps to Update and Install Graphics Driver for HP G3 Series Computers</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/sive-guide-10-immersive-youtube-vr-films-for-2024/"><u>Exclusive Guide 10 Immersive YouTube VR Films for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/from-copycat-to-originalist-crafting-funny-relatable-memes/"><u>From Copycat to Originalist Crafting Funny, Relatable Memes</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-the-edge-in-gaming-step-by-step-amd-vega-graphics-card-firmware-update/"><u>Get the Edge in Gaming: Step-by-Step AMD Vega Graphics Card Firmware Update</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-amazon-prime-fan-favorites-highest-likes-and-view-counts/"><u>In 2024, Amazon Prime Fan Favorites Highest Likes & View Counts</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ltimate-guide-hashtags-that-work-in-gaming-vlogs-for-2024/"><u>The Ultimate Guide Hashtags That Work in Gaming Vlogs for 2024</u></a></li>
 </ul></div>
 

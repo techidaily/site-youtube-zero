@@ -1,7 +1,7 @@
 ---
 title: "Examining How YouTube Curates Its Highlighted Discussion Threads for 2024"
-date: 2024-09-19T18:20:19.796Z
-updated: 2024-09-21T18:09:37.069Z
+date: 2024-09-30T16:46:05.588Z
+updated: 2024-10-03T17:49:06.267Z
 tags:
   - ai video
   - ai youtube
@@ -59,15 +59,36 @@ For instance, you may want to check the following links. The 2 URLs lead you to 
 
 Notice the name "lc" in the first URL- that stands for linked comment. YouTube might include this additional parameter. If a reply comment (HR) gets highlighted, the parent comment gets raised to the top.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: What Does The Highlighted Comment Look Like?
 
 YouTube has been working on improving the navigation of the comment section for videos, and highlighted comments are one of them. These comments appear even above the pinned comments on a video. The label of a highlighted comment is displayed above the commentator's name in a light grey shade.
 
 ![YouTube Highlighted Comments](https://images.wondershare.com/filmora/article-images/youtube-highlighted-comments.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 YouTube labels comment replies as well and call it "Highlighted Reply." You can see this tag above the replier's name in the same color tone.
 
 ![YouTube Highlighted Reply](https://images.wondershare.com/filmora/article-images/youtube-highlighted-reply.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: How to Make My Comment Highlighted?
 
@@ -76,13 +97,6 @@ Now, making YouTube highlight your comment on a popular video is nothing less th
 Thus, anybody who wants to get their YouTube comment an HC tag has to follow a few simple steps, which we will discuss below in another section. Finding the correct or relevant video content that can benefit your channel from such a comment is an excellent place to start.
 
 For example, if you are a YouTuber who deals in tech information, you need to look for a popular video or channel with a similar genre, in this case, technical knowledge. The more popular the channel is, the more is the chance of a viewer checking the comments on its videos. You will only benefit if you're comment is highlighted on pages of Youtuber's who are huge.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 4: How to Get the URL of Highlighted Comments?
 
@@ -94,13 +108,6 @@ Suppose you are a viewer who is going through the comments section of a video. I
 
 On the other hand, for a YouTuber, getting access to the comment URL is relatively straightforward. The host will get a notification on his or her registered email-id when a viewer publishes a comment on their posted video. You will find the link to the highlighted comment in the notification
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094418/7443" target="_top" id="2094418">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094418" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094418/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 5: How to Reply to Highlighted Comments?
 
 Replying to "highlighted comments" on your YouTube channel is pretty easy since this feature was developed, keeping the user's convenience in mind. If you want to follow up or reply to such comments, you can do so from your email or YouTube Dashboard.
@@ -108,6 +115,13 @@ Replying to "highlighted comments" on your YouTube channel is pretty easy since 
 If you click the notification bell icon, whenever a viewer drops a new comment on one of your videos, YouTube will send you a notification via email. On opening the email, you will find a clickable "Reply" option. Or else, if you follow the comment section in the YouTube Dashboard, you can directly view or reply to highlighted comments from here as well.
 
 Have you ever wondered why a highlighted comment always shows at the top of the comment list? Both the above options will lead you to the comment thread on YouTube. To help you find the new activity easily, it appears with the highlight tag on it. The purpose is to remind you that you are here for that specific comment.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 6: How to Remove Highlighted Comments?
 
@@ -122,13 +136,6 @@ Alternatively, you can try out a few temporary solutions.
 <https://www.youtube.com/watch?v=XWhjJjhpmQA>
 
 1. Try logging out from your Google Account and browse YouTube (anonymously). Doing this will ensure that you no longer see any highlighted comments. However, at the same time, this will restrict you from interacting in any way with that video, let alone leaving a comment.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134247/18498" target="_top" id="2134247">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134247" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134247/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 7: Tips for Writing a Comment that will be Pinned as a Highlighted Comment?
 
@@ -179,5 +186,24 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-files.techidaily.com/new-efficiency-in-advertising-post-facebook-algorithm-overhaul-for-2024/"><u>[New] Efficiency in Advertising Post-Facebook Algorithm Overhaul for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-from-high-speed-to-serenity-making-captivating-slow-movies-on-instagram/"><u>[New] In 2024, From High-Speed to Serenity Making Captivating Slow Movies on Instagram</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-integrating-mixer-with-macos-for-smooth-streaming/"><u>[New] Integrating Mixer with macOS for Smooth Streaming</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/o-cost-youtube-audio-tools-for-seamless-mp3-downloads-for-2024/"><u>[New] No-Cost YouTube Audio Tools for Seamless MP3 Downloads for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/treamline-video-production-with-free-music/"><u>[New] Streamline Video Production with Free Music</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/he-ultimate-guide-to-rapidly-eliminating-youtube-feedback-for-2024/"><u>[New] The Ultimate Guide to Rapidly Eliminating YouTube Feedback for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/outubes-best-font-choices-for-striking-thumbnails/"><u>[New] YouTube's Best Font Choices for Striking Thumbnails</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-the-ultimate-strategy-to-dominate-youtube-via-creator-hub/"><u>[Updated] 2024 Approved The Ultimate Strategy to Dominate YouTube Via Creator Hub</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-editing-excellence-the-ultimate-guide-to-top-notebooks-for-2024/"><u>[Updated] Editing Excellence The Ultimate Guide to Top Notebooks for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-editors-elite-gadgets-best-machines-for-screen-magic/"><u>[Updated] In 2024, Editor’s Elite Gadgets Best Machines for Screen Magic</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-transform-your-photos-to-slideshow-for-2024/"><u>[Updated] Transform Your Photos to Slideshow for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ing-content-step-by-step-guide-to-youtube-video-editing-for-2024/"><u>Crafting Content Step by Step Guide to YouTube Video Editing for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-vpna-to-fake-gps-location-on-xiaomi-redmi-note-13-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use VPNa to Fake GPS Location On Xiaomi Redmi Note 13 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/intel-uhd-graphics-driver-download-and-update-windows-1011/"><u>Intel UHD Graphics Driver Download & Update - Windows 10/11</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/e-creativity-boost-identifying-the-best-video-editing-tools-for-2024/"><u>Mobile Creativity Boost Identifying the Best Video Editing Tools for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/solving-the-realtek-hd-audio-issue-why-your-program-isnt-starting-up/"><u>Solving the Realtek HD Audio Issue: Why Your Program Isn't Starting Up</u></a></li>
+<li><a href="https://facebook.techidaily.com/understanding-metas-verification-process/"><u>Understanding Meta's Verification Process</u></a></li>
+</ul></div>
 

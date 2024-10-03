@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Finding Storylines with Google Trends Analysis Techniques\""
-date: 2024-09-21T16:48:19.422Z
-updated: 2024-09-28T16:11:53.564Z
+date: 2024-09-29T18:06:23.439Z
+updated: 2024-10-03T21:28:00.349Z
 tags:
   - ai video
   - ai youtube
@@ -51,13 +51,6 @@ Unless you do news or political commentary on your channel these probably aren�
 
 To get information more relevant to your channel you’re going to have to do some filtering.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: Getting Results That Matter to You
 
 In the Google Trend home page, scroll down to the 'Recently Trending' section and click on 'More Trending Searches'.
@@ -88,6 +81,13 @@ Having something to say doesn’t have to mean having a strong opinion. If you j
 
 Clicking on these results will give you more specific data including how often the topic has been searched recently and links to recent news articles. These can give you a better idea of why it is trending and help you come up with what you want to say.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3: Battle of the Keywords
 
 Once you have a topic in mind for your next video – whether it came from Google Trends or your own noggin – think about what the most important keyword for that topic might be.
@@ -102,22 +102,29 @@ What happens after you click **enter** is pretty much magic. Say I want to make 
 
 ![Google Trends YouTube Video Keywords](https://images.wondershare.com/filmora/article-images/google-trends-search-term.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 You can see near the top that this chart represents searches for the topic over the last 5 years, which isn’t necessarily useful (although it is sort of cool that you can see when Filmora was ‘born’). I’m going to narrow that down to results from the U.S in the last week.
 
 ![Google Trends YouTube Video Ideas Filmora](https://images.wondershare.com/filmora/article-images/google-trends-search-term-time-range.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938721/19272" target="_top" id="1938721">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938721" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938721/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 There, now I can see how the popularity of Filmora as a search term has spiked on specific days and times (if you hover over a spike it tells you the time and day) and plan to post my video at a time that capitalizes on these trends.
 
 Next, what other words do I want to include in my video title? Is this a review, a tutorial, or a how-to? By clicking on my search term Filmora, I can edit it to read ‘filmora review’. Then I can click **\+ Compare** and type in ‘filmora tutorial’ and ‘how to use Filmora’. Google Trends will create a chart comparing the popularity of those 3 terms.
 
 ![Google Trends Filmora Keywords](https://images.wondershare.com/filmora/article-images/google-trends-search-term-comparison.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2044585/7443" target="_top" id="2044585">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044585" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044585/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 _I also ‘zoomed out’ to 90 days – if I’d only looked at how they compared over the last week my results could have been skewed._
 
@@ -126,13 +133,6 @@ It’s pretty clear from the chart that ‘filmora review’ is the strongest of
 Although, when you do a comparison like this you should also go to YouTube and search for each potential keyword/phrase individually. It might turn out that there is a ton of strong competition for the most popular search term, and not as much for the second or third most popular. Here’s a search for ‘Filmora Review’ on YouTube:
 
 ![YouTube search Filmora Keyword](https://images.wondershare.com/filmora/article-images/google-trends-youtube-keyword-search.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948905/19272" target="_top" id="1948905">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948905" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948905/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 _If my view of YouTube looks different from yours it’s because I’m using the [VidIQ plugin for Chrome](https://chrome.google.com/webstore/detail/vidiq-vision-for-youtube/pachckjkecffpdphbpmfolblodfkgbhl?hl=en). It’s free and it gives you all kinds of extra info about videos and channels._
 
@@ -144,18 +144,18 @@ One of the biggest benefits of identifying trends and making videos about them q
 
 Want to make coming up with YouTube video ideas a habit? [This post here](https://www.filmora.io/community-blog/how-to-come-up-with-better-youtube-video-ideas-391.html) will help you develop a process to generate more ideas and properly evaluate them.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080347/19272" target="_top" id="2080347">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080347" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080347/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Making Better YouTube Videos with [Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
 As one of the most widely used video editing software among YouTubers, Filmora provides plentiful editing tools, such as cut, trim, [video stabilization](https://tools.techidaily.com/wondershare/filmora/download/), [noise removal](https://tools.techidaily.com/wondershare/filmora/download/), [chroma key compositing](https://tools.techidaily.com/wondershare/filmora/download/), and color grading. Besides, there are royalty-free music track and sound effects available in the built-in Audio library, and title templates and presets, as well as elements and effects. Download the free trial version below and get started now.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148635/16836" target="_top" id="2148635">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148635" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148635/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -180,14 +180,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-carryminati-financial-triumphs-with-ajey-nagar/"><u>[New] 2024 Approved CarryMinati Financial Triumphs with Ajey Nagar</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-elite-media-maestro-picture-perfect-with-pitches/"><u>[New] 2024 Approved Elite Media Maestro Picture Perfect with Pitches</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-fitness-forward-6-video-concepts-to-energize-your-online-community/"><u>[New] 2024 Approved Fitness Forward 6 Video Concepts to Energize Your Online Community</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-learn-to-record-save-and-share-youtube-content-a-cost-free-approach/"><u>[New] 2024 Approved Learn to Record, Save, & Share YouTube Content A Cost-Free Approach</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-melodic-overlays-on-digital-imagery/"><u>2024 Approved Melodic Overlays on Digital Imagery</u></a></li>
-<li><a href="https://driver-install.techidaily.com/effortless-lenovo-ideapad-u310-driver-rollout/"><u>Effortless Lenovo Ideapad U310 Driver Rollout</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-captivating-cinematic-experience-video-filters-for-pcmobile/"><u>In 2024, Captivating Cinematic Experience Video Filters for PC/Mobile</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ways-to-trade-pokemon-go-from-far-away-on-google-pixel-7a-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to trade pokemon go from far away On Google Pixel 7a? | Dr.fone</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/transform-trivial-images-into-masterpieces-online-for-2024/"><u>Transform Trivial Images Into Masterpieces Online for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/une-into-music-top-free-apps-for-youtube-songs-on-android-phones-for-2024/"><u>[New] Tune Into Music Top Free Apps for YouTube Songs on Android Phones for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-perfecting-your-youtube-videos-for-igtv-integration/"><u>[Updated] 2024 Approved Perfecting Your Youtube Videos for IGTV Integration</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-boost-production-value-with-free-sfx-libraries-for-2024/"><u>[Updated] Boost Production Value with Free SFX Libraries for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-harnessing-powerful-tools-for-effective-youtubers-seo-for-2024/"><u>[Updated] Harnessing Powerful Tools for Effective YouTubers' SEO for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-how-to-avoid-and-reverse-strikes-on-your-youtube-channel/"><u>2024 Approved How to Avoid and Reverse Strikes on Your YouTube Channel</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/comprehensive-evaluation-unveiling-the-features-of-garmin-forerunner/"><u>Comprehensive Evaluation: Unveiling the Features of Garmin Forerunner</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/dissecting-ais-pivotal-role-in-prompt-creation-and-employment-trends/"><u>Dissecting AI's Pivotal Role in Prompt Creation & Employment Trends</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/te-your-channels-templates-at-no-charge-in-2024/"><u>Elevate Your Channels - Templates at No Charge, In 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/from-chief-to-subordinate-repercussions-for-gpt/"><u>From Chief to Subordinate: Repercussions for GPT</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-how-to-turn-your-google-meet-into-a-youtube-live-event/"><u>In 2024, How To Turn Your Google Meet Into a YouTube Live Event</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-mastering-the-art-of-vlogging-your-ultimate-journey-begins-here/"><u>In 2024, Mastering The Art of Vlogging Your Ultimate Journey Begins Here</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-rhythms-ally-finding-best-dj-content-online/"><u>In 2024, Rhythm's Ally Finding Best DJ Content Online</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/solutions-to-spy-on-oppo-a1-5g-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>Solutions to Spy on Oppo A1 5G with and without jailbreak | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/tips-and-tricks-to-avoid-photo-crashes-on-windows-11-for-2024/"><u>Tips & Tricks to Avoid Photo Crashes on Windows 11 for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/troubleshooting-excessive-cpu-use-in-starfield-game-latest-fixes/"><u>Troubleshooting Excessive CPU Use in Starfield Game: Latest Fixes</u></a></li>
+<li><a href="https://techidaily.com/turn-off-screen-lock-smart-8-pro-by-drfone-android-unlock-android-unlock/"><u>Turn Off Screen Lock - Smart 8 Pro</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-free-animation-solutions-top-picks-for-windows-and-mac-computers/"><u>Updated In 2024, Free Animation Solutions Top Picks for Windows and Mac Computers</u></a></li>
 </ul></div>
 

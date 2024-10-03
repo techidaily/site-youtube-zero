@@ -1,7 +1,7 @@
 ---
 title: "[New] Elevate Your Content with Professional End Screen Templates"
-date: 2024-09-21T16:14:49.273Z
-updated: 2024-09-28T16:34:16.588Z
+date: 2024-09-28T19:02:54.148Z
+updated: 2024-10-03T17:29:37.638Z
 tags:
   - ai video
   - ai youtube
@@ -90,6 +90,13 @@ Here’s one for the Minecraft fans:
 
 Another way to get your YouTube end screens for free, of course, is to make them yourself. Canva is a great free online design tool for this.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How To Build Your Outro For Free (Step-by-step Canva Tutorial)
 
 1\. First, you have to sign up with an e-mail address
@@ -100,61 +107,48 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![create-outro-end-screen-with-canva  ](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
-  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 3\. After clicking “Design!,” a new browser will open with a blank canvas.
 
 4\. Next, do an image search for “YouTube End Screen,” choose an end screen with a layout that you would like to build off of, and save the image onto your computer.
 
 ![download-youtube-outro-end-screen](https://images.wondershare.com/filmora/article-images/download-youtube-outro-end-screen.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 5\. Upload the image onto your Canva project.
 
 ![upload-downloaded-youtube-end-screen-canva ](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 6\. Stretch your image to the ends of your canvas.
 
 ![stretch-end-screen-templates-canva ](https://images.wondershare.com/filmora/article-images/stretch-end-screen-templates-canva.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 7\. Insert your own shapes, lines, colours, images, and text over the image.
 
 ![adjust-end-screen-templates-in-canva](https://images.wondershare.com/filmora/article-images/adjust-end-screen-templates-in-canva.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983474">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 8\. When you’re done, delete the original image so that you’re left with just your own design. Go ahead and click “download.”
 
 ![youtube-end-screen-made-with-canva](https://images.wondershare.com/filmora/article-images/youtube-end-screen-made-with-canva.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975816/19272" target="_top" id="1975816">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975816" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975816/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 If you're looking for other options to design your end screen, make sure to also check out our article on [The YouTube Outro Guide](https://tools.techidaily.com/wondershare/filmora/download/). To edit the YouTube video with more effects and templates, you can try [Wondershare Filmora video editor.](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -183,19 +177,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/023s-standout-youtube-music-playback-gems/"><u>[New] 2023'S Standout YouTube Music Playback Gems</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-decoding-the-mystery-of-where-are-my-youtube-comments/"><u>[New] 2024 Approved Decoding the Mystery of Where Are My YouTube Comments?</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-discover-the-art-of-youtube-playlist-shuffling/"><u>[New] 2024 Approved Discover the Art of YouTube Playlist Shuffling</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-editessence-system/"><u>[New] 2024 Approved EditEssence System</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-boosting-your-browser-lightning-speed-profile-hunts/"><u>[New] In 2024, Boosting Your Browser Lightning Speed Profile Hunts</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-the-evolution-of-excellence-lg-bp550/"><u>[Updated] The Evolution of Excellence - LG BP550</u></a></li>
-<li><a href="https://fake-location.techidaily.com/best-10-mock-location-apps-worth-trying-on-oppo-reno-9a-drfone-by-drfone-virtual-android/"><u>Best 10 Mock Location Apps Worth Trying On Oppo Reno 9A | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/crafting-dynamic-gifs-from-video-an-illustrative-tutorial-for-2024/"><u>Crafting Dynamic Gifs From Video An Illustrative Tutorial for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/-vlogging-ideas-what-to-talk-about-while-vlogging/"><u>Daily Vlogging Ideas What to Talk About While Vlogging?</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-a-working-guide-for-pachirisu-pokemon-go-map-on-honor-x9a-drfone-by-drfone-virtual-android/"><u>In 2024, A Working Guide For Pachirisu Pokemon Go Map On Honor X9a | Dr.fone</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/optimal-high-speed-and-high-capacity-usb-storage-devices/"><u>Optimal High-Speed and High-Capacity USB Storage Devices</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/overview-of-the-best-vivo-y200e-5g-screen-mirroring-app-drfone-by-drfone-android/"><u>Overview of the Best Vivo Y200e 5G Screen Mirroring App | Dr.fone</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/the-complete-guide-to-vivo-y100i-frp-bypass-everything-you-need-to-know-by-drfone-android/"><u>The Complete Guide to Vivo Y100i FRP Bypass Everything You Need to Know</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/tubez-dor-pour-laudio-guide-detaille-de-conversion-mp4-en-mp3-avec-un-logiciel-gratuit-windows-10/"><u>Tubez D'or Pour L’audio: Guide Détaillé De Conversion MP4 en MP3 Avec Un Logiciel Gratuit Windows 10</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-analyzing-the-differences-twitch-vs-youtube-platforms/"><u>[New] 2024 Approved Analyzing the Differences Twitch vs YouTube Platforms</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/he-key-to-sharing-success-youtubes-most-impactful-hashes/"><u>[New] The Key to Sharing Success YouTube's Most Impactful Hashes</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/op-5-video-and-picture-capturing-tools-for-smartphones/"><u>[New] Top 5 Video & Picture Capturing Tools for Smartphones</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-dance-directives-finding-ideal-dj-templates/"><u>[Updated] Dance Directives Finding Ideal DJ Templates</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-a-comparative-analysis-androids-finest-video-downloaders/"><u>[Updated] In 2024, A Comparative Analysis Android's Finest Video Downloaders</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/st-try-microphones-for-exceptional-asmr-sounds-for-2024/"><u>10 Must-Try Microphones for Exceptional ASMR Sounds for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comparing-top-e-readers-ipad-kindle-and-nook-head-to-head/"><u>Comparing Top E-Readers: IPad, Kindle, and Nook Head-to-Head</u></a></li>
+<li><a href="https://win-dash.techidaily.com/easy-steps-to-set-up-jizz-planet-extension-in-kodi-v19-the-ultimate-guide/"><u>Easy Steps to Set Up Jizz Planet Extension in Kodi v19 - The Ultimate Guide</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-complete-tutorial-sending-photos-from-apple-iphone-6-plus-to-ipad-drfone-by-drfone-transfer-from-ios/"><u>In 2024, Complete Tutorial Sending Photos From Apple iPhone 6 Plus to iPad | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Realme C33 2023 | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-perfect-presentations-with-a-personal-touch-adding-audio/"><u>In 2024, Perfect Presentations with a Personal Touch Adding Audio</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-win11s-1-5-pick-for-budget-friendly-screen-capture-apps/"><u>In 2024, Win11's #1-5 Pick for Budget-Friendly Screen Capture Apps</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ring-yoga-top-10-youtube-resources-for-enlightened-living-for-2024/"><u>Mastering Yoga Top 10 YouTube Resources for Enlightened Living for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-your-music-after-honor-x8b-has-been-deleted-by-fonelab-android-recover-music/"><u>Recover your music after Honor X8b has been deleted</u></a></li>
 </ul></div>
 

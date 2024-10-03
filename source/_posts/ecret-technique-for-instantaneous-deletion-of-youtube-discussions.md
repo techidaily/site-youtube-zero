@@ -1,7 +1,7 @@
 ---
 title: "The Secret Technique for Instantaneous Deletion of Youtube Discussions"
-date: 2024-09-18T02:44:19.088Z
-updated: 2024-09-21T16:01:26.204Z
+date: 2024-09-28T18:34:09.303Z
+updated: 2024-10-03T20:00:49.962Z
 tags:
   - ai video
   - ai youtube
@@ -51,6 +51,13 @@ In this section, we will tell you how you can do it from your desktop.
 4. When you locate the comment, click on the three vertical dots on the right-hand side of the comment. From the drop-down list, click on Remove. The process is complete, and YouTube will remove your comment.
 
 You also have the option to report the comment or [hide the user from your channel](https://tools.techidaily.com/wondershare/filmora/download/).
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049369/7443" target="_top" id="2049369">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049369" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049369/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to Delete All YouTube Comments from Mobile?
 
@@ -109,10 +116,10 @@ To find your History from your desktop, you need to click on the three horizonta
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100533/7443" target="_top" id="2100533">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100533" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100533/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Delete All Your Posted YouTube Comments?
@@ -124,6 +131,13 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
 
 ![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
@@ -132,33 +146,20 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1155462">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Final Thoughts
 
 YouTube can be an unsafe place with unwanted comments everywhere. In this blog, we tried to show how you can get rid of comments on your and on others’ YouTube accounts. The next time you see an offensive comment or post something mistakenly, don’t forget to try our tips and make YouTube a safe platform again.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -179,5 +180,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/levate-your-youtube-presence-with-optimal-post-times-for-2024/"><u>[New] Elevate Your YouTube Presence with Optimal Post Times for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-discover-leading-fonts-boosting-your-youtube-thumbnails/"><u>[New] In 2024, Discover Leading Fonts Boosting Your YouTube Thumbnails</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-earning-mastery-youtube-short-video-tips-for-2024/"><u>[Updated] Earning Mastery Youtube Short Video Tips for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-boosting-revenue-with-the-perfect-youtube-trailer-strategy/"><u>[Updated] In 2024, Boosting Revenue with the Perfect YouTube Trailer Strategy</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-copyright-safe-techniques-for-youtube-to-mp4/"><u>[Updated] In 2024, Copyright-Safe Techniques for Youtube-to-MP4</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-enhancing-your-videos-final-impression/"><u>[Updated] In 2024, Enhancing Your Video's Final Impression</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-reclaiming-brightness-in-youtube-videos/"><u>[Updated] In 2024, Reclaiming Brightness in YouTube Videos</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-live-broadcasting-bliss-comprehensive-list-of-hardware-and-software-for-successful-streams/"><u>[Updated] Live Broadcasting Bliss Comprehensive List of Hardware & Software for Successful Streams</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-the-art-of-disregarding-harmful-youtube-comments/"><u>2024 Approved The Art of Disregarding Harmful YouTube Comments</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-visual-language-warp-the-photographic-transformers-guide/"><u>2024 Approved Visual Language Warp The Photographic Transformer's Guide</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/apple-iphone-6-asking-for-passcode-after-ios-1714-update-what-to-do-by-drfone-ios/"><u>Apple iPhone 6 Asking for Passcode after iOS 17/14 Update, What to Do?</u></a></li>
+<li><a href="https://discover-brilliant.techidaily.com/easy-guide-adding-animated-images-gifs-into-your-email-messages/"><u>Easy Guide: Adding Animated Images (GIFs) Into Your Email Messages</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-decoding-the-best-free-video-experience-vlc-clashes-with-mpc/"><u>In 2024, Decoding the Best Free Video Experience VLC Clashes with MPC</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-instagram-video-sharing-tips/"><u>In 2024, Instagram Video Sharing Tips</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-the-impact-of-instant-subscribing-on-online-viewing-habits/"><u>In 2024, The Impact of Instant Subscribing on Online Viewing Habits</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-if-your-nokia-c32-auto-does-not-work-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What To Do if Your Nokia C32 Auto Does Not Work | Dr.fone</u></a></li>
+</ul></div>
 

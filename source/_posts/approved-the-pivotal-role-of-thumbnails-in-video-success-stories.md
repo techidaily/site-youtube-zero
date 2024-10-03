@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  The Pivotal Role of Thumbnails in Video Success Stories\""
-date: 2024-09-14T18:11:30.884Z
-updated: 2024-09-21T16:28:50.858Z
+date: 2024-10-01T22:15:09.272Z
+updated: 2024-10-03T19:12:55.816Z
 tags:
   - ai video
   - ai youtube
@@ -49,6 +49,13 @@ Here are some examples of popular thumbnail styles.
 
  ![Popular YouTube Thumbnail Layout](https://images.wondershare.com/filmora/article-images/popular-youtube-thumbnail-layout.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. The Classic Thumbnail (Photo or Screenshot)
 
 A photo that shows what happens in your video – whether that means the finished ‘look’ from your makeup tutorial or you posing in front of the landmark you shot your travel vlog in front of – is a great way to let viewers know what to expect. While curiosity can be a big motive behind clicking on a video thumbnail (or anything online), when people have searched for a specific topic they want to be convinced that your video has what they’re looking for.
@@ -74,6 +81,13 @@ In some cases you might use text to make it clear what type of video you’ve ma
 You should also avoid fonts that are harder to read. Fonts with a lot of curves can be harder to read, and you want to make sure you choose a color that stands out from your background. Yellow might work against black, but it probably won’t work against the beige wall of your sunny bedroom. Sans serif fonts tend to be best.
 
 Another tactic used in successful thumbnails is to add small graphics, like emojis or small images (i.e. pumpkins for a Halloween video), which are related to your video’s content. As with text, you don’t want to overload your thumbnail with images, but they’re a great way to add something eye-catching that’s a bit different from competing thumbnails.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. The Emotional Laser (Background + Face Reacting)
 
@@ -105,13 +119,6 @@ In your thumbnail maker or a program like Photoshop, you’ll need to put your p
 
 If instead of an object you plan to fill the other side of your thumbnail with text, question marks, emojis, or some other graphic element then now is the time to add it.
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
-  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: How to Upload a YouTube Thumbnail
 
 When you upload a new video to YouTube, you will see a **Custom thumbnail** option under **Video thumbnails** after your upload is complete.
@@ -129,13 +136,6 @@ YouTube recommends that thumbnail images have a resolution of **1280x720px**, an
 
 Make sure that all of your thumbnails adhere to YouTube’s Community guidelines. Anything sexually suggestive, violent, or otherwise graphic could result in your video being age-restricted.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3: YouTube Thumbnail Makers
 
 You don’t have to go out and buy a photo editor like Photoshop to make custom video thumbnails (although it’s a good thing to use if you already have it). Here are two free online programs you can use instead:
@@ -149,6 +149,19 @@ Generally, using Canva is as easy as dragging and dropping things where you want
 You can make changes to the colors in your Spark thumbnail easily by selecting a new color scheme or filter. You can even toggle through layouts easily. When you choose a new layout, Spark will rearrange all the pieces of your current thumbnail to align with the new layout so you can quickly see what it looks like instead of having to rebuild.
 
 Click to check more [YouTube thumbnail makers](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<span id="2135472">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 4: How to Make Thumbnails That Get Clicks (Without Clickbait!)
 
@@ -189,16 +202,10 @@ Type your video’s title or topic into the search engine on YouTube and look at
 Generally, if most of the thumbnails have the same layout, you’ll want to mimic that layout. Where you can break from the crowd is in the colors, fonts, and graphics you use.
 
 <!-- affiliate ads begin -->
-<span id="701707">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1975836/19272" target="_top" id="1975836">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975836" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975836/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 5: Animated YouTube Thumbnails
@@ -236,5 +243,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/xpanding-youtube-audience-through-perpetual-creative-commons-for-2024/"><u>[New] Expanding YouTube Audience Through Perpetual Creative Commons for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-how-does-youtube-work-after-a-video-is-uploaded/"><u>[New] In 2024, How Does YouTube Work After a Video Is Uploaded</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-startup-steps-for-stream-money-in-periscope-for-2024/"><u>[New] Startup Steps for Stream Money in Periscope for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-strategies-for-youtube-music-fusions/"><u>[Updated] 2024 Approved Strategies for YouTube Music Fusions</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-diy-movie-making-youtubes-boutique-method/"><u>[Updated] In 2024, DIY Movie Making YouTube's Boutique Method</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-the-essential-guide-to-professional-thumbnail-dimensions-for-youtube/"><u>[Updated] In 2024, The Essential Guide to Professional Thumbnail Dimensions for YouTube</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-13-best-ways-to-make-money-on-reddit-no-experience-needed/"><u>2024 Approved 13 Best Ways to Make Money on Reddit - No Experience Needed</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-leading-8-software-for-linux-video-editors/"><u>2024 Approved Leading 8 Software for Linux Video Editors</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/9-best-phone-monitoring-apps-for-motorola-defy-2-drfone-by-drfone-virtual-android/"><u>9 Best Phone Monitoring Apps for Motorola Defy 2 | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/comparing-tech-giants-iphone-15-pro-max-versus-samsung-galaxy-s24-ultra-which-one-wins/"><u>Comparing Tech Giants: IPhone 15 Pro Max Versus Samsung Galaxy S24 Ultra – Which One Wins?</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/redits-designed-for-you-free-top-6-suggestions/"><u>End Credits Designed for You Free Top 6 Suggestions</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/essential-guide-to-preserving-screen-chats/"><u>Essential Guide to Preserving Screen Chats</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/how-to-make-a-slideshow-with-music-for-2024/"><u>How to Make a Slideshow with Music for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-tailored-tricks-building-a-personalized-youtube-follow-buttons/"><u>In 2024, Tailored Tricks Building a Personalized YouTube Follow Buttons</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/leveraging-periscope-for-real-time-engagement-for-2024/"><u>Leveraging Periscope for Real-Time Engagement for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/1723210098701-lost-your-signal-locate-and-fix-your-sd-card/"><u>Lost Your Signal: Locate and Fix Your SD Card!</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ring-your-youtube-pinpointing-a-specialized-audience/"><u>Mastering Your YouTube Pinpointing a Specialized Audience</u></a></li>
+</ul></div>
 
