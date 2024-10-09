@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Strategies for Adequate Lighting in YouTube Videos\""
-date: 2024-10-01T22:53:27.922Z
-updated: 2024-10-03T18:01:13.647Z
+date: 2024-10-07T22:09:55.150Z
+updated: 2024-10-08T19:37:00.357Z
 tags:
   - ai video
   - ai youtube
@@ -52,14 +52,14 @@ Window lighting for me was especially difficult to work with because I live in a
 
 ![  YouTube Video Lighting ](https://images.wondershare.com/filmora/article-images/window-lighting-comparison.jpg)
 
-Above are two freeze frames from one of Daniel's past window-lit vlogs. Although these two frames are both from the same vlog, you can see that the image on the right looks brighter due to clearer skies at that moment. These varying amounts of light is what you will have to deal with if you choose to light your YouTube video with window lighting.
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484910/16446" target="_top" id="1484910">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484910" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484910/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+Above are two freeze frames from one of Daniel's past window-lit vlogs. Although these two frames are both from the same vlog, you can see that the image on the right looks brighter due to clearer skies at that moment. These varying amounts of light is what you will have to deal with if you choose to light your YouTube video with window lighting.
 
 ### 2. Home Lighting
 
@@ -77,22 +77,21 @@ Ceiling lights are also typically situated in the center of a room in order to l
 
 If you rather not deal with all the window and home lighting challenges, you can set up studio lighting in your home.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948937/19272" target="_top" id="1948937">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948937" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948937/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1. Light Control
 
 The first thing you’ll want to do to set up studio lighting in your home is to pick a room to film in and eliminate as much external lighting as you can. Use blinds, curtains, towels, or any thick fabric to block sunlight from shining into your room.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880972/19272" target="_top" id="1880972">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880972" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880972/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1936838">
+					<video width="374" height="48" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2. 3-Point Lighting
@@ -108,10 +107,10 @@ To minimize the shadows on your right side, use a weaker light as a fill light. 
 Lastly, a backlight positioned behind you can give an appealing highlight to the ends of your head and even help to separate your hair from blending into your background if both happen to be dark.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148638/16836" target="_top" id="2148638">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148638" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148638/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3. 4-Point Lighting
@@ -129,6 +128,13 @@ For more information on lighting equipment, check out my [Top 17 Video Lighting 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -151,20 +157,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-2024-approved-unstuck-video-streams-from-photobooth-screens/"><u>[New] 2024 Approved Unstuck Video Streams From Photobooth Screens</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/igh-end-hardware-unveiled-by-gaming-influencers-for-2024/"><u>[New] High-End Hardware Unveiled by Gaming Influencers for 2024</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/updated-10-passport-photo-generator-download-print-for-free/"><u>[Updated] 10 Passport Photo Generator Download, Print for Free</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-ascend-in-the-youtube-arena-through-creative-studio-mastery-for-2024/"><u>[Updated] Ascend in the YouTube Arena Through Creative Studio Mastery for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-charting-new-pathways-in-art-an-exclusive-look-at-the-top-10-low-cost-creator-platforms-on-youtube/"><u>[Updated] In 2024, Charting New Pathways in Art An Exclusive Look at the Top 10 Low-Cost Creator Platforms on YouTube</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ced-techniques-for-youtube-editing-via-finalcut-pro/"><u>Advanced Techniques for YouTube Editing via FinalCut Pro</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ing-youtubes-untapped-markets-niche-strategies/"><u>Charting Youtube's Untapped Markets Niche Strategies</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-apple-iphone-15-plus-to-roku-drfone-by-drfone-ios/"><u>How to Mirror Apple iPhone 15 Plus to Roku? | Dr.fone</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-stop-my-spouse-from-spying-on-my-realme-v30-drfone-by-drfone-virtual-android/"><u>How to Stop My Spouse from Spying on My Realme V30 | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-vivo-y78t-drfone-by-drfone-virtual-android/"><u>In 2024, Additional Tips About Sinnoh Stone For Vivo Y78t | Dr.fone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-from-newcomer-to-pro-a-step-by-step-creator-hub-guidebook/"><u>In 2024, From Newcomer to Pro A Step-by-Step Creator Hub Guidebook</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-in-depth-examination-lg-bp350-screen-specifications-and-reviews/"><u>In 2024, In-Depth Examination LG BP350 Screen Specifications and Reviews</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/in-2024-youtubes-trophy-chain-for-engaged-audiences/"><u>In 2024, YouTube's Trophy Chain for Engaged Audiences</u></a></li>
-<li><a href="https://fox-that.techidaily.com/silencing-your-ipad-solutions-for-preventing-automatic-ringing-with-your-iphone/"><u>Silencing Your iPad: Solutions for Preventing Automatic Ringing with Your iPhone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ng-youtube-shorts-into-a-money-machine-essentials-and-earnings-prospects-for-2024/"><u>Turning YouTube Shorts Into a Money Machine Essentials and Earnings Prospects for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-comic-corner-best-funny-content-on-the-planet-web/"><u>[New] 2024 Approved Comic Corner Best Funny Content on the Planet Web</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-elevate-your-yt-marketing-essential-tips-for-higher-rankings/"><u>[New] 2024 Approved Elevate Your YT Marketing Essential Tips for Higher Rankings</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-elevate-youtube-presence-ideal-release-windows/"><u>[New] 2024 Approved Elevate Youtube Presence Ideal Release Windows</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-expert-guide-to-creating-compact-engaging-youtube-content/"><u>[New] 2024 Approved Expert Guide to Creating Compact, Engaging YouTube Content</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-from-zero-to-youtube-pros-creating-an-account-rightly/"><u>[New] 2024 Approved From Zero to YouTube Pros Creating an Account Rightly</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-making-compelling-media-previews-for-channels/"><u>[New] 2024 Approved Making Compelling Media Previews for Channels</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-paving-the-way-to-success-with-professional-insights-into-youtube-banners/"><u>[New] 2024 Approved Paving the Way to Success with Professional Insights Into YouTube Banners</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/he-minimum-view-count-for-youtube-success-stories-for-2024/"><u>[New] The Minimum View Count for YouTube Success Stories for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-the-spoken-word-unveiled-enhancing-expressiveness-on-slides/"><u>[New] The Spoken Word Unveiled Enhancing Expressiveness on Slides</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-keyboard-moguls-choices-leading-16-youtube-intros-for-more-watchers/"><u>[Updated] 2024 Approved Keyboard Moguls' Choices Leading 16 YouTube Intros for More Watchers</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-flawless-illustration-from-photographs-cross-platform-compatibility/"><u>2024 Approved Flawless Illustration From Photographs Cross-Platform Compatibility</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-xbox-extra-storage-options-best-5-ranked-list/"><u>2024 Approved Xbox Extra Storage Options Best 5 Ranked List</u></a></li>
+<li><a href="https://games-able.techidaily.com/easy-steps-to-install-sd-on-steam-deck/"><u>Easy Steps to Install SD on Steam Deck</u></a></li>
+<li><a href="https://common-error.techidaily.com/enhanced-fixes-when-system-resources-are-overstretched/"><u>Enhanced Fixes When System Resources Are Overstretched</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-convert-avchd-mts-files-for-samsung-galaxy-s24-by-aiseesoft-video-converter-play-mts-on-android/"><u>How to convert AVCHD .mts files for Samsung Galaxy S24?</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/kinemasters-complete-guide-to-flawless-transitions/"><u>Kinemaster's Complete Guide to Flawless Transitions</u></a></li>
 </ul></div>
 

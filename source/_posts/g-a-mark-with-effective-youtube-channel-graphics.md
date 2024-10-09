@@ -1,7 +1,7 @@
 ---
 title: "Making a Mark with Effective YouTube Channel Graphics"
-date: 2024-10-02T19:30:17.639Z
-updated: 2024-10-03T16:38:44.667Z
+date: 2024-10-04T02:16:17.430Z
+updated: 2024-10-09T03:48:30.998Z
 tags:
   - ai video
   - ai youtube
@@ -59,10 +59,10 @@ Using patterns for the background of your channel banner can help your channel l
 ![ YouTube Channel Banner Background](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-background.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: Should I Use My Face?
@@ -80,19 +80,6 @@ That doesn’t mean you have to hire a photographer to take pictures for your ch
 #### _Don’t: Use Outdated Pictures_
 
 It is always best to use a current photo of yourself. Many times viewers will go and follow you on social media as well. If they see that you have current photos on your social media but not on your channel, they are become confused and perhaps lose interest.
-
-<!-- affiliate ads begin -->
-<span id="1424533">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: What Should I Write on My Banner?
 
@@ -118,13 +105,6 @@ Including social media icons in your channel art lets people know where they can
 
 ![ YouTube Channel Banner Safe Area](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-safe-area.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080328/19272" target="_top" id="2080328">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080328" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080328/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 _Make sure everything important fits in the safe area!_
 
 #### _Do: Include Brief Channel Description or Tag Line_
@@ -136,6 +116,19 @@ I’ve noticed that YouTubers that use 2-3 descriptive words in their channel ar
 YouTubers that use tag lines are using their channel as a platform to carry out a specific mission on giving help or educating others.
 
 Whether you decide to use descriptive words or a tag line, they will help your channel tremendously by setting expectations for your viewers.
+
+<!-- affiliate ads begin -->
+<span id="1424528">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 4: How Can I Make My Channel Art Look Good?
 
@@ -163,13 +156,20 @@ Now that you know how to make a good YouTube banner, what will you do next?
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528696/16446" target="_top" id="1528696">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528696" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528696/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -193,22 +193,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/n-2024-assessing-the-value-of-4-second-rapid-subscriptions-on-youtube/"><u>[New] In 2024, Assessing the Value of 4-Second Rapid Subscriptions on Youtube</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-step-by-step-guide-for-cutting-edge-editing-in-gopro-studio/"><u>[New] Step-by-Step Guide for Cutting-Edge Editing in GoPro Studio</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/1716069357515-updated-2024-approved-an-easy-to-follow-methodology-for-initiating-a-productive-skype-conversation-among-various-os-users/"><u>[Updated] 2024 Approved An Easy-to-Follow Methodology for Initiating a Productive Skype Conversation Among Various OS Users.</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-instructional-guide-modify-comment-accessibility-on-youtube/"><u>[Updated] 2024 Approved Instructional Guide Modify Comment Accessibility on YouTube</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-prime-youtube-personalities-and-their-stellar-subscriber-tally/"><u>[Updated] 2024 Approved Prime YouTube Personalities and Their Stellar Subscriber Tally</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-in-2024-7-ideas-to-improve-the-unboxing-experience/"><u>[Updated] In 2024, 7 Ideas to Improve the Unboxing Experience</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-mastering-video-spin-a-comprehensive-2023-users-guide-to-youtube-angles/"><u>[Updated] In 2024, Mastering Video Spin A Comprehensive 2023 User's Guide to YouTube Angles</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-the-easiest-way-to-shorten-youtube-links-here-are-the-top-5-choices/"><u>[Updated] In 2024, The Easiest Way to Shorten YouTube Links? Here Are the Top 5 Choices</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-master-9-fixes-for-youtube-buffering-woes/"><u>[Updated] Master 9 Fixes for YouTube Buffering Woes</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-mastering-video-introduction-on-ios-and-android-devices/"><u>2024 Approved Mastering Video Introduction on iOS & Android Devices</u></a></li>
-<li><a href="https://location-fake.techidaily.com/3utools-virtual-location-not-working-on-oppo-reno-8t-5g-fix-now-drfone-by-drfone-virtual-android/"><u>3uTools Virtual Location Not Working On Oppo Reno 8T 5G? Fix Now | Dr.fone</u></a></li>
-<li><a href="https://extra-information.techidaily.com/dive-into-quality-tips-for-shooting-crystal-clear-gopro-video-below-the-surface/"><u>Dive Into Quality Tips for Shooting Crystal Clear GoPro Video Below the Surface</u></a></li>
-<li><a href="https://driver-error.techidaily.com/how-to-fix-the-iphone-mass-storage-error-with-easy-steps/"><u>How to Fix the iPhone Mass Storage Error with Easy Steps</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-3-ways-to-change-location-on-facebook-marketplace-for-motorola-edgeplus-2023-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Change Location on Facebook Marketplace for Motorola Edge+ (2023) | Dr.fone</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-guide-to-various-video-recording-devices/"><u>In 2024, Guide to Various Video Recording Devices</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/o-tripod-path-to-flawless-images-for-2024/"><u>The No-Tripod Path to Flawless Images for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ing-on-youtube-using-creative-studio-tools-for-2024/"><u>Thriving on YouTube Using Creative Studio Tools for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-brand-makeover-made-easy-revel-in-our-array-of-over-50-free-online-promotional-artwork/"><u>[New] 2024 Approved Brand Makeover Made Easy Revel in Our Array of over 50 Free Online Promotional Artwork</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-confirmation-procedures-for-youtube-users/"><u>[New] 2024 Approved Confirmation Procedures for YouTube Users</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-controlling-who-can-leave-a-comment-on-your-youtube-videos/"><u>[New] 2024 Approved Controlling Who Can Leave a Comment on Your YouTube Videos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-enhance-tv-broadcasts-with-seamless-video-loops-from-youtube/"><u>[New] 2024 Approved Enhance TV Broadcasts with Seamless Video Loops From YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-exploring-genres-a-collection-of-15-innovative-musician-focused-videos/"><u>[New] 2024 Approved Exploring Genres A Collection of 15 Innovative Musician-Focused Videos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-how-to-turn-mundane-games-into-epic-scenes/"><u>[New] 2024 Approved How to Turn Mundane Games Into Epic Scenes</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-navigating-youtubes-digital-canvas-studio-essentials/"><u>[New] 2024 Approved Navigating YouTube's Digital Canvas Studio Essentials</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-optimize-your-video-library-youtubes-to-dailymotion-directly/"><u>[New] 2024 Approved Optimize Your Video Library YouTubes to Dailymotion Directly</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-a-tactical-approach-to-youtube-video-enhancement-with-imovie/"><u>[Updated] 2024 Approved A Tactical Approach to YouTube Video Enhancement with iMovie</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-detecting-bots-amongst-your-brands-facebook-supporters/"><u>[Updated] In 2024, Detecting Bots Amongst Your Brand's Facebook Supporters</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-skyrocket-sales-traffic-with-the-15-cutting-edge-facebook-gadgets/"><u>2024 Approved Skyrocket Sales Traffic with the 15 Cutting-Edge Facebook Gadgets</u></a></li>
+<li><a href="https://techtrends.techidaily.com/guida-rapida-alla-riproduzione-di-dvd-download-ed-emulazione-per-sistemi-operativi-windows-e-mac-os-x/"><u>Guida Rapida Alla Riproduzione Di DVD: Download Ed Emulazione per Sistemi Operativi Windows E Mac OS X</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-to-structuring-youtube-content-with-separate-chapters-for-2024/"><u>Guide to Structuring YouTube Content with Separate Chapters for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-change-lock-screen-wallpaper-on-vivo-y200-by-drfone-android/"><u>In 2024, How to Change Lock Screen Wallpaper on Vivo Y200</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/inexpensive-pcs-optimized-video-settings-guide-for-2024/"><u>Inexpensive PCs Optimized Video Settings Guide for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/premier-listing-of-superior-free-lut-downloads-for-2024/"><u>Premier Listing of Superior Free LUT Downloads for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/rumor-or-reality-uncover-expected-price-features-and-launch-date-for-the-new-apple-ring-device/"><u>Rumor or Reality?: Uncover Expected Price, Features & Launch Date for the New Apple Ring Device</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/successfully-updating-your-intel-optane-hbm-drives-with-the-latest-windows-drivers-complete-tutorial/"><u>Successfully Updating Your Intel Optane HBM Drives with the Latest Windows Drivers - Complete Tutorial</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-2024-approved-local-video-streaming-made-easy-chromecast-guide-for-windows-mac-android-and-ios-devices/"><u>Updated 2024 Approved Local Video Streaming Made Easy Chromecast Guide for Windows, Mac, Android, and iOS Devices</u></a></li>
 </ul></div>
 

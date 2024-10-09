@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Perfect Your Presentation  The YT Guide to Background Softening\""
-date: 2024-09-26T19:28:35.526Z
-updated: 2024-10-03T19:05:24.707Z
+date: 2024-10-01T19:13:22.100Z
+updated: 2024-10-08T19:22:56.395Z
 tags:
   - ai video
   - ai youtube
@@ -65,13 +65,6 @@ To get a shallow depth of field, make sure your aperture is wide. Do this by set
 
 Creating a bokeh effect is mostly the same, except that it works best when your subject/depth of field is very close to the camera, and you have a light source off in the background. Zoom Lenses do not usually have wide enough apertures to create bokeh backgrounds.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915825/19272" target="_top" id="1915825">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915825" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915825/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Blur Video Background in Post-Production with [Wondershare Filmora Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)
 
 If you need to blur the video background after shooting, you can use some video editing software to add the bokeh effect or the tilt-off effect in post-production. Here, I will show you how to do that in Filmora.
@@ -79,10 +72,10 @@ If you need to blur the video background after shooting, you can use some video 
 Filmora is one of the most widely used video editing software among YouTubers. Its user-friendly interface and tutorial guide enables green-hands to start video editing quickly. Besides, you can find many free filters, effects, and elements pre-programmed, so you can use them directly without looking for presets and templates somewhere else.
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528689/16446" target="_top" id="1528689">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528689" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528689/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1\. Add Bokeh Filter to Video in Filmora
@@ -94,20 +87,13 @@ Note: you should select **Included** to see all bokeh effects pre-programmed in 
 ![ Filmora Bokeh effect ](https://images.wondershare.com/filmora/article-images/filmora9-bokeh-effect.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080328/19272" target="_top" id="2080328">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080328" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080328/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Double click the bokeh effect to preview the result, and if you find the bokeh effect fits the video, just drop it to the track above the video. And the bokeh filter or overlay will be applied to the video automatically.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144285/7443" target="_top" id="2144285">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144285" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144285/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2\. Use Tilt-Shift Circle/Linear Effect to Blur Video Background
 
@@ -116,6 +102,13 @@ Filmora features two tilt effects, tilt-shift circle and tilt-shift linear, whic
 Go to the **Effects** tab and then switch to the **Utility** menu under **Included** category.
 
 ![ Filmora Tilt-Shift effects ](https://images.wondershare.com/filmora/article-images/tilt-shift-effects.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037474/7443" target="_top" id="2037474">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037474" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037474/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Here, I will select the **Tilt-Shift Circle** effect and drop it to the track above the video. Now, you can adjust the size, position, and intensity of the tilt-shift circle effect
 
@@ -126,6 +119,13 @@ You see, the video background is blurred, and the people are highlighted. Now it
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151856/7443" target="_top" id="2151856">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151856" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -148,22 +148,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-elevating-your-experiences-advanced-gopro-time-lapse-tactics/"><u>[New] Elevating Your Experiences Advanced GoPro Time-Lapse Tactics</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/xpert-advice-for-staying-copyright-compliant-online/"><u>[New] Expert Advice for Staying Copyright Compliant Online</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-elite-5-earbuds-youtubes-best-companions/"><u>[Updated] 2024 Approved Elite 5 Earbuds YouTube's Best Companions</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-rectified-hidden-status-of-shorts/"><u>[Updated] 2024 Approved Rectified Hidden Status of Shorts</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-vimeo-vs-youtube-the-differentiators-analysis/"><u>[Updated] 2024 Approved Vimeo V/S YouTube The Differentiator's Analysis</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-revitalizing-a-frozen-obs-video-source-feed-for-2024/"><u>[Updated] Revitalizing a Frozen OBS Video Source Feed for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-instagram-archive-in-minutes-with-these-tools/"><u>2024 Approved Instagram Archive in Minutes with These Tools</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-pinpointing-your-signature-style-and-marketplace-role/"><u>2024 Approved Pinpointing Your Signature Style & Marketplace Role</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-the-dynamics-of-youtubes-creator-payments/"><u>2024 Approved The Dynamics of YouTube's Creator Payments</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/r-bonanza-the-funniest-content-on-the-internet-for-2024/"><u>Banter Bonanza The Funniest Content on the Internet for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/comprehensive-guide-to-free-premium-video-callers/"><u>Comprehensive Guide to Free, Premium Video Callers</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/steps-how-to-master-the-best-of-9-free-youtube-logomakers/"><u>Easy Steps How to Master the Best of 9 Free YouTube Logomakers</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/tly-slice-your-videos-macs-finest-mp4-applications-for-2024/"><u>Expertly Slice Your Videos Mac's Finest MP4 Applications for 2024</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-disabled-iphone-xs-maxipad-without-computer-drfone-by-drfone-ios/"><u>How to Unlock Disabled iPhone XS Max/iPad Without Computer | Dr.fone</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-instagram-harmony-understanding-rights/"><u>In 2024, Instagram Harmony Understanding Rights</u></a></li>
-<li><a href="https://windows11.techidaily.com/the-essential-guide-to-choosing-top-fps-counter-software-for-windows-11/"><u>The Essential Guide to Choosing Top FPS Counter Software for Windows 11</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/winx-dvd-and/"><u>무료 WinX DVD 리퍼 & 비디오 컨버터 소프트웨어에 대한 [공식] 사이트 - 다운로드 옵션</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-the-intersection-of-brain-research-and-strategic-business-management/"><u>[New] 2024 Approved The Intersection of Brain Research and Strategic Business Management</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-unveiling-sites-that-link-you-to-youtube-promo-deals/"><u>[New] 2024 Approved Unveiling Sites That Link You to YouTube Promo Deals</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-farm-frenzy-reimagined-top-10-social-agriculture-games/"><u>[New] In 2024, Farm Frenzy Reimagined Top 10 Social Agriculture Games</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-journey-through-high-dynamic-range-pc-viewing-and-creative-pursuits/"><u>[Updated] 2024 Approved Journey Through High Dynamic Range PC Viewing & Creative Pursuits</u></a></li>
+<li><a href="https://win-able.techidaily.com/experience-the-thrill-of-days-gone-official-pc-release-announced/"><u>Experience the Thrill of 'Days Gone': Official PC Release Announced!</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-best-microphone-for-youtubers/"><u>In 2024, Best Microphone for YouTubers</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-direct-capture-screen-record-on-pcmac-plus-youtube-upload/"><u>In 2024, Direct Capture Screen Record on PC/Mac + YouTube Upload</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-discovering-your-youtube-comments-on-various-devices/"><u>In 2024, Discovering Your YouTube Comments on Various Devices</u></a></li>
+<li><a href="https://win11.techidaily.com/initiate-15-approaches-to-system-controls/"><u>Initiate: 15 Approaches to System Controls</u></a></li>
+<li><a href="https://extra-support.techidaily.com/sound-first-screen-second-podcasts-vs-youtube-analysis-for-2024/"><u>Sound First, Screen Second – Podcasts Vs YouTube Analysis for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/unpacking-apps-the-az-screenshotter-approach-for-2024/"><u>Unpacking Apps - The AZ Screenshotter Approach for 2024</u></a></li>
 </ul></div>
 

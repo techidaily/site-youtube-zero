@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  End-Screen Essentials for Social Media Success on YouTube\""
-date: 2024-09-30T21:19:43.104Z
-updated: 2024-10-03T18:14:55.526Z
+date: 2024-10-06T05:27:45.272Z
+updated: 2024-10-08T16:49:55.938Z
 tags:
   - ai video
   - ai youtube
@@ -90,6 +90,13 @@ Here’s one for the Minecraft fans:
 
 Another way to get your YouTube end screens for free, of course, is to make them yourself. Canva is a great free online design tool for this.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151856/7443" target="_top" id="2151856">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151856" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How To Build Your Outro For Free (Step-by-step Canva Tutorial)
 
 1\. First, you have to sign up with an e-mail address
@@ -99,13 +106,6 @@ Another way to get your YouTube end screens for free, of course, is to make them
 2\. Once logged in, select “use custom dimensions” and plug in “1920” pixels as your width and “1080” pixels as your height (this, of course, may vary depending on the resolution of your video project).
 
 ![create-outro-end-screen-with-canva  ](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 3\. After clicking “Design!,” a new browser will open with a blank canvas.
 
@@ -117,26 +117,26 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![upload-downloaded-youtube-end-screen-canva ](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 6\. Stretch your image to the ends of your canvas.
 
 ![stretch-end-screen-templates-canva ](https://images.wondershare.com/filmora/article-images/stretch-end-screen-templates-canva.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094428/7443" target="_top" id="2094428">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094428" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094428/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 7\. Insert your own shapes, lines, colours, images, and text over the image.
 
 ![adjust-end-screen-templates-in-canva](https://images.wondershare.com/filmora/article-images/adjust-end-screen-templates-in-canva.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902289/19272" target="_top" id="1902289">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902289" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902289/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 8\. When you’re done, delete the original image so that you’re left with just your own design. Go ahead and click “download.”
@@ -150,10 +150,10 @@ If you're looking for other options to design your end screen, make sure to also
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2148772/18498" target="_top" id="2148772">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148772" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148772/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -177,19 +177,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-the-battle-of-broadcads-vimeo-and-youtubes-face-off/"><u>[New] 2024 Approved The Battle of Broadcads Vimeo & YouTube's Face-Off</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-amd-gpu-revival-suite/"><u>[New] AMD GPU Revival Suite</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/oost-your-content-access-free-vocal-sfx-for-2024/"><u>[New] Boost Your Content Access Free Vocal SFX for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/n-2024-circumnavigating-youtubes-block-list/"><u>[New] In 2024, Circumnavigating YouTube's Block List</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-churning-charts-todays-1-backdrop-music-for-youtube-shorts/"><u>[Updated] 2024 Approved Churning Charts Today's #1 Backdrop Music for YouTube Shorts</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-fundamental-techniques-converting-visual-media-on-pinterest-to-mp3s/"><u>2024 Approved Fundamental Techniques Converting Visual Media on Pinterest To MP3s</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/chatgpt-now-talks-openais-latest-update-adds-voice-to-ai-assistant/"><u>ChatGPT Now Talks: OpenAI's Latest Update Adds Voice to AI Assistant</u></a></li>
-<li><a href="https://howto.techidaily.com/fixes-for-apps-keep-crashing-on-honor-v-purse-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixes for Apps Keep Crashing on Honor V Purse | Dr.fone</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/-acquisitions-starting-off-with-profitable-youtube-channel-buys/"><u>Ideal Acquisitions Starting Off with Profitable YouTube Channel Buys</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-enhance-and-clean-up-youtube-footage-borderless-tutorial/"><u>In 2024, Enhance and Clean Up YouTube Footage Borderless Tutorial</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-bypass-android-lock-screen-using-emergency-call-on-oppo-a78-5g-by-drfone-android/"><u>In 2024, How to Bypass Android Lock Screen Using Emergency Call On Oppo A78 5G?</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-remove-forgotten-pin-of-your-samsung-galaxy-s24-ultra-by-drfone-android/"><u>In 2024, How to Remove Forgotten PIN Of Your Samsung Galaxy S24 Ultra</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-punchline-perfection-creating-memes-that-make-people-tickle/"><u>In 2024, Punchline Perfection Creating Memes that Make People Tickle</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ate-ideate-implement-step-by-step-guide-to-building-a-youtube-channel/"><u>Initiate, Ideate, Implement Step-by-Step Guide to Building a YouTube Channel</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-5-pro-tips-to-perfectly-tag-videos-and-maximize-views/"><u>[New] 2024 Approved 5 Pro Tips to Perfectly Tag Videos and Maximize Views</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-daily-digital-domination-top-10-youtube-viewership-ranking/"><u>[New] 2024 Approved Daily Digital Domination Top 10 YouTube Viewership Ranking</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-giggle-gallery-exploring-the-best-15-hilarious-video-picks/"><u>[New] 2024 Approved Giggle Gallery Exploring the Best 15 Hilarious Video Picks</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-leading-resource-hubs-for-youtube-intro-files/"><u>[New] 2024 Approved Leading Resource Hubs for YouTube Intro Files</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-picture-talk-engineer/"><u>[New] 2024 Approved Picture Talk Engineer</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-10-ways-free-and-paid-to-record-skype-calls-on-windows-and-mac/"><u>[Updated] 10 Ways [Free & Paid] to Record Skype Calls on Windows & Mac</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-excellence-guild-crafting-photos-plus-sounds-visuals-for-2024/"><u>[Updated] Excellence Guild Crafting Photos + Sounds, Visuals for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/a-comprehensive-look-at-the-top-ranking-1byone-digital-tv-antenna-perfect-for-indoor-use-and-your-budget/"><u>A Comprehensive Look at the Top-Ranking 1Byone Digital TV Antenna - Perfect for Indoor Use and Your Budget</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-makeover-made-easy-revel-in-our-array-of-over-50-free-online-promotional-artwork-in-2024/"><u>Brand Makeover Made Easy Revel in Our Array of over 50 Free Online Promotional Artwork, In 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/1722986080955-effortless-fixes-for-when-fortnite-wont-launch-get-back-to-gaming/"><u>Effortless Fixes for When Fortnite Won't Launch – Get Back to Gaming!</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/fully-updated-download-d3-graphics-and-chipset-drivers-for-gigabyte-z370p/"><u>Fully Updated: Download D3 Graphics and Chipset Drivers for Gigabyte Z370P</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-check-if-your-xiaomi-redmi-12-is-unlocked-by-drfone-android/"><u>In 2024, How To Check if Your Xiaomi Redmi 12 Is Unlocked</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-6-appsservices-to-trace-any-huawei-p60-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, Top 6 Apps/Services to Trace Any Huawei P60 Location By Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://fox-within.techidaily.com/material-ui-react-dashboard-template-downloadable-and-free-version-from-creative-tim/"><u>Material-UI React Dashboard Template - Downloadable & Free Version From Creative Tim</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-in-2024-avi-video-editor-for-windows-8-latest-2023-update-for-seamless-editing/"><u>New In 2024, AVI Video Editor for Windows 8 Latest 2023 Update for Seamless Editing</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Mastering YouTube's Video Comment Features for 2024"
-date: 2024-09-20T16:43:27.061Z
-updated: 2024-09-21T17:44:35.725Z
+date: 2024-10-03T01:49:01.001Z
+updated: 2024-10-08T23:25:13.212Z
 tags:
   - ai video
   - ai youtube
@@ -95,6 +95,19 @@ Selecting this option holds all the comments from all the users, and waits for y
 
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
+<!-- affiliate ads begin -->
+<span id="1160850">
+					<video width="576" height="324" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Turn on or Turn off Comments for Specific Videos
 
 As you might have noticed, any video that is marked as ‘Made for kids’ doesn’t allow users to post comments. You can exploit this feature to enable or disable commenting on specific YouTube videos as well.
@@ -115,7 +128,21 @@ From under the **Audience** section in the right window of the **Video details**
 
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925565/19272" target="_top" id="1925565">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925565" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925565/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
 
@@ -132,6 +159,13 @@ At the time of this writing, YouTube doesn’t allow anyone to post a comment on
 You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **Automated Filters** tab in the right window, add the words to block in the **Blocked words** field. You can add multiple words by separating them with commas. To block the comments with links, check the **Block links** box. Click **SAVE** to save the changes.
 
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
@@ -166,12 +200,20 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-crystal-clear-viewing-evaluating-the-best-8k-monitors/"><u>[New] 2024 Approved Crystal Clear Viewing Evaluating the Best 8K Monitors</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/31876430-new-2024-approved-thumbnail-tailoring-for-youtube-a-practical-guide-to-image-resizing-and-customization/"><u>[New] 2024 Approved Thumbnail Tailoring for YouTube A Practical Guide to Image Resizing and Customization</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ushing-past-plateaus-the-strategic-guide-for-youtube-success/"><u>[New] Pushing Past Plateaus The Strategic Guide for Youtube Success</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-how-to-use-loilo-game-recorder/"><u>[Updated] In 2024, How to Use LoiLo Game Recorder</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-the-essential-guide-to-iphone-screen-recordings/"><u>2024 Approved The Essential Guide to IPhone Screen Recordings</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-top-5-avant-garde-creators-in-digital-media/"><u>2024 Approved Top 5 Avant-Garde Creators in Digital Media</u></a></li>
+<li><a href="https://program-issues.techidaily.com/cod-warzone-pacific-down-heres-how-to-prevent-sudden-game-shutdowns/"><u>COD: Warzone Pacific Down? Here's How to Prevent Sudden Game Shutdowns</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/cutting-edge-video-editing-on-ios-and-android-devices/"><u>Cutting-Edge Video Editing on iOS and Android Devices</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/o-spark-interest-with-unique-channel-names/"><u>How to Spark Interest With Unique Channel Names</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-passionate-communicator-evaluation-revision-viii/"><u>In 2024, Passionate Communicator Evaluation - Revision VIII</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-ultimate-movie-watchlists-for-efficient-screen-time/"><u>In 2024, Ultimate Movie Watchlists for Efficient Screen Time</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/mastering-file-transfer-windows-11-auto-move-techniques/"><u>Mastering File Transfer: Windows 11 Auto-Move Techniques</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-bring-your-vision-to-life-top-10-music-video-production-studios-for-2024/"><u>New Bring Your Vision to Life Top 10 Music Video Production Studios for 2024</u></a></li>
+</ul></div>
 

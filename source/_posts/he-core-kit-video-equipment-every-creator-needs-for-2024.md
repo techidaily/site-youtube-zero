@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The Core Kit  Video Equipment Every Creator Needs for 2024\""
-date: 2024-09-30T19:52:02.168Z
-updated: 2024-10-03T16:03:01.804Z
+date: 2024-10-04T23:45:22.578Z
+updated: 2024-10-08T19:49:42.889Z
 tags:
   - ai video
   - ai youtube
@@ -55,13 +55,6 @@ On one end of the spectrum, you have basic smartphone cameras and web cameras, w
 
 If you already have a DSLR camera then it’s a good idea to familiarize yourself with it. You have far more freedom to adjust the settings and achieve a professional look for your videos with a DSLR, but that does mean it’ll take some time to become an expert at using it. Ultra-high resolution is not required for YouTube, but it certainly won’t hurt to have additional sharpness and more detail in the scene. If you’re shopping for a DSLR, look for one with a flip screen that allows you to quickly check what your viewers see.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## YouTube Microphone and Audio
 
 **The short version:** Audio quality is extremely important. If you can buy either a new camera or an external microphone, but not both, it might be better to go for the microphone. [Click here for advice on upping your audio quality without an external microphone.](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -84,13 +77,6 @@ If you have the budget available to get some lighting equipment, you can find so
 
 Another useful piece of lighting equipment to have is a reflector. A reflector is usually a piece of white, silver, or gold fabric stretched over a frame. You can use it to bounce light from one light source back towards yourself (this is a great way to fill shadows cast by your main light). Reflectors tend to be inexpensive, but you can also use white cardboard or tinfoil in place of purchasing a reflector.
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
-  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Tripods and Camera Stands
 
 **The short version:** You need something to hold your camera. If you mostly film in your own home that can be a desk or a stack of books, but if you make a lot of videos while you're on the go you probably need a tripod or gimbal. Heavier cameras need heavier tripods.
@@ -102,10 +88,10 @@ When you are choosing a tripod, pay attention to how much it weighs. If the came
 Even if you are using a phone or a webcam to record YouTube videos, you should consider mounting the device on a stable stand. It is possible to find mini tripods ideal for smartphones for as little as $10\. These tripods are small enough to carry in your pocket, so you will be prepared to start making a video no matter where your adventures take you. If you are using a web camera, you should attach it to the stand so that it won’t move accidentally after you touch the surface it is placed on.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Smartphone Camera Gear
@@ -113,16 +99,10 @@ Even if you are using a phone or a webcam to record YouTube videos, you should c
 ![Smartphone Camera Gear](https://images.wondershare.com/filmora/article-images/smartphone-camera-gear.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983552">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **The short version:** There's a lot of gear out there designed with smartphone photos and videos in mind, including clip-on lenses, tripod mounts, phone-mounted LED lights, and inexpensive microphones that plug into the audio jack.
@@ -137,7 +117,21 @@ Another common downside of smartphone cameras is that most of them use digital z
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
+  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -160,22 +154,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-amusing-clip-loading-appraisal/"><u>[New] 2024 Approved Amusing Clip Loading Appraisal</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-comprehensive-insights-into-polarrs-photo-tools/"><u>[New] In 2024, Comprehensive Insights Into Polarr's Photo Tools</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/n-2024-delving-into-youtubes-functionality-after-upload/"><u>[New] In 2024, Delving Into YouTube's Functionality After Upload</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ecure-your-videos-with-free-image-savers-for-2024/"><u>[New] Secure Your Videos with FREE Image Savers for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-the-importance-of-accurate-slug-line-writing-in-screenplays-for-2024/"><u>[New] The Importance of Accurate Slug Line Writing in Screenplays for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-from-flickering-camera-lights-to-financial-highlights/"><u>[Updated] 2024 Approved From Flickering Camera Lights to Financial Highlights</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-how-to-see-old-stories-on-facebook-find-story-archive-easily/"><u>[Updated] How to See Old Stories on Facebook Find Story Archive Easily</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-convenient-method-to-design-original-shorts-thumbnails/"><u>2024 Approved Convenient Method to Design Original Shorts Thumbnails</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-discover-powerful-tagging-tactics-a-guide-to-amplifying-freegame-content/"><u>2024 Approved Discover Powerful Tagging Tactics A Guide to Amplifying FreeGame Content</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-explore-the-10-fastest-expanding-yt-hubs-for-wisdom/"><u>2024 Approved Explore the 10 Fastest-Expanding YT Hubs for Wisdom</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-navigating-filmoras-fcc-initiative-a-guide/"><u>2024 Approved Navigating Filmora's FCC Initiative A Guide</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-update-iphone-6s-plus-without-itunes-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Update iPhone 6s Plus without iTunes? | Dr.fone</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-perfecting-zoom-on-snapchat-for-better-snaps/"><u>In 2024, Perfecting Zoom on Snapchat for Better Snaps</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-simplified-guide-to-switching-clownfish-voices-on-win/"><u>In 2024, Simplified Guide to Switching Clownfish Voices on Win</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ess-content-curation-with-youtubes-watch-later-feature/"><u>Seamless Content Curation with YouTube’s Watch Later Feature</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/social-sightings-exploring-the-most-viewed-tweets-on-twitter-for-2024/"><u>Social Sightings Exploring the Most Viewed Tweets on Twitter for 2024</u></a></li>
-<li><a href="https://win-answers.techidaily.com/total-war-warhammer-ii-stability-fixes-addressing-persistent-game-crash-issues-successfully/"><u>Total War: Warhammer II Stability Fixes - Addressing Persistent Game Crash Issues Successfully</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-how-to-distinguish-real-from-sham-on-your-instagram-circle-quickly/"><u>[New] 2024 Approved How to Distinguish Real From Sham on Your Instagram Circle Quickly</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-secrets-to-profitability-earning-with-youtube-shorts-explored/"><u>[New] 2024 Approved Secrets to Profitability Earning with YouTube Shorts Explored</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-securing-streams-of-cash-from-content-creation/"><u>[New] 2024 Approved Securing Streams of Cash From Content Creation</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-skyrocket-views-with-strategic-youtube-titles-and-descriptions/"><u>[New] 2024 Approved Skyrocket Views with Strategic YouTube Titles & Descriptions</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-technique-for-anonymous-footage-via-image-smoothing/"><u>[New] 2024 Approved Technique for Anonymous Footage via Image Smoothing</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-the-charisma-of-jittery-text-2-methods-unleashed/"><u>[New] 2024 Approved The Charisma of Jittery Text 2 Methods Unleashed</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-the-uncharted-territory-of-youtubes-unlisted-content/"><u>[New] 2024 Approved The Uncharted Territory of YouTube's Unlisted Content</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-timeless-tales-the-ultimate-guide-to-learning-from-history-channels/"><u>[New] 2024 Approved Timeless Tales The Ultimate Guide to Learning From History Channels</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-top-free-youtube-audio-extractors-for-pc-mac-ios-and-android/"><u>[New] 2024 Approved Top Free YouTube Audio Extractors for PC, Mac, iOS & Android</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-ultimate-streaming-hits-for-movie-lovers/"><u>[New] 2024 Approved Ultimate Streaming Hits for Movie Lovers</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/downloading-samfw-frp-tool-30-for-oppo-reno-8t-5g-by-drfone-android/"><u>Downloading SamFw FRP Tool 3.0 for Oppo Reno 8T 5G</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/en-ligne-convertissez-votre-fichier-tiff-au-format-gif-pour-rien-avec-movavi/"><u>En Ligne : Convertissez Votre Fichier TIFF Au Format GIF Pour Rien Avec Movavi</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/essential-igtv-feeds-for-modern-viewers/"><u>Essential IGTV Feeds for Modern Viewers</u></a></li>
+<li><a href="https://solve-helper.techidaily.com/extract-your-dvd-content-for-mobile-playback-using-the-no-cost-winx-dvd-converter-mp4-avi-for-iphone-and-android/"><u>Extract Your DVD Content for Mobile Playback Using the No-Cost WinX DVD Converter (MP4, AVI) for iPhone and Android</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-mastering-revenue-division-on-youtube-shorts/"><u>In 2024, Mastering Revenue Division on YouTube Shorts</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-rootjunky-apk-to-bypass-google-frp-lock-for-vivo-y36-by-drfone-android/"><u>In 2024, Rootjunky APK To Bypass Google FRP Lock For Vivo Y36</u></a></li>
+<li><a href="https://win-dash.techidaily.com/step-by-step-tutorial-on-installing-latest-cpu-driver-updates-in-windows/"><u>Step-by-Step Tutorial on Installing Latest CPU Driver Updates in Windows</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/troubleshooting-guide-correcting-the-elusive-code-19-malfunction-in-windows-systems/"><u>Troubleshooting Guide: Correcting the Elusive Code 19 Malfunction in Windows Systems</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-online-tone-generators-can-be-very-useful-while-calibrating-the-audio-equipment-testing-your-hearing-or-tuning-music-instruments-etc-lets-check/"><u>Updated Online Tone Generators Can Be Very Useful While Calibrating the Audio Equipment, Testing Your Hearing or Tuning Music Instruments, Etc. Lets Check</u></a></li>
 </ul></div>
 

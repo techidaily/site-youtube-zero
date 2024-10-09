@@ -1,7 +1,7 @@
 ---
 title: "\"Steady as You Go  Camera Stability Without a Tripod\""
-date: 2024-09-30T16:49:56.647Z
-updated: 2024-10-03T17:29:11.805Z
+date: 2024-10-01T22:30:40.382Z
+updated: 2024-10-08T21:39:08.117Z
 tags:
   - ai video
   - ai youtube
@@ -55,19 +55,33 @@ Here it is with binder clips:
 
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **DIY adjustable tripod using books and a towel**
@@ -87,13 +101,6 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2148129/17093" target="_top" id="2148129">
-  <img src="//a.impactradius-go.com/display-ad/17093-2148129" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148129/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -103,10 +110,10 @@ Your wire should be fairly stiff and you’ll need three pieces the same length,
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037355/7443" target="_top" id="2037355">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037355" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
+  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037355/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
@@ -131,13 +138,6 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -159,22 +159,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-ideal-sound-devices-for-digital-influencers/"><u>[New] 2024 Approved Ideal Sound Devices for Digital Influencers</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-reawakening-dormant-connections-with-your-obs-cam/"><u>[New] 2024 Approved Reawakening Dormant Connections with Your OBS Cam</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/n-2024-elite-gamers-capturing-solutions/"><u>[New] In 2024, Elite Gamers' Capturing Solutions</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-in-2024-troubleshoot-flaky-airdrop-links-simple-steps-to-solutions/"><u>[New] In 2024, Troubleshoot Flaky AirDrop Links Simple Steps to Solutions</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/eamless-sound-transfer-top-10-youtube-to-mp3-picks/"><u>[New] Seamless Sound Transfer Top 10 YouTube to Mp3 Picks</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/parking-your-content-strategy-crafting-a-youtube-channel-from-scratch-for-2024/"><u>[New] Sparking Your Content Strategy Crafting a YouTube Channel From Scratch for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-unlock-hidden-features-of-the-youtube-creator-space/"><u>[Updated] 2024 Approved Unlock Hidden Features of the YouTube Creator Space</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-free-themes-for-dynamic-youtuber-profiles/"><u>[Updated] Free Themes for Dynamic YouTuber Profiles</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-ultimate-11-list-streaming-audio-recorders-uncovered/"><u>[Updated] In 2024, Ultimate #11 List Streaming Audio Recorders Uncovered</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/2024-approved-launching-a-youtube-series-focused-on-product-quality-insights/"><u>2024 Approved Launching a YouTube Series Focused on Product Quality Insights</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-watch-deleted-youtube-secrets-to-accessing-lost-content/"><u>2024 Approved Watch Deleted YouTube Secrets to Accessing Lost Content</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/apex-assemblies-best-laptop-trio-for-4k-visionaries-for-2024/"><u>Apex Assemblies Best Laptop Trio for 4K Visionaries for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/d-the-scenes-how-ajey-monetizes-content-for-2024/"><u>Behind the Scenes How Ajey Monetizes Content for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/the-fire-top-videos-that-inspire-audiences/"><u>Fuel the Fire Top Videos That Inspire Audiences</u></a></li>
-<li><a href="https://fake-location.techidaily.com/full-guide-to-fix-itoolab-anygo-not-working-on-vivo-t2-pro-5g-drfone-by-drfone-virtual-android/"><u>Full Guide to Fix iToolab AnyGO Not Working On Vivo T2 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-14-to-other-iphone-11-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone 14 to other iPhone 11 devices? | Dr.fone</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-frp-on-motorola-edge-40-neo-by-drfone-android/"><u>In 2024, How to Bypass FRP on Motorola Edge 40 Neo?</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-ace-10-budget-friendly-video-subtitle-grabs/"><u>[New] 2024 Approved Ace 10 Budget-Friendly Video Subtitle Grabs</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-bursting-laughter-crafting-engaging-reaction-videos-on-youtube-3-methods/"><u>[New] 2024 Approved Bursting Laughter Crafting Engaging Reaction Videos on YouTube (3 Methods)</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-capture-attention-yt-imagery-and-its-dimension-magic/"><u>[New] 2024 Approved Capture Attention YT Imagery and Its Dimension Magic</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-channel-growth-strategy-going-with-studio-or-beta-progression/"><u>[New] 2024 Approved Channel Growth Strategy Going with Studio or Beta Progression</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-elevate-your-online-presence-making-videos-on-mobile/"><u>[New] 2024 Approved Elevate Your Online Presence Making Videos on Mobile</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-scoping-out-the-12-most-popular-flip-screen-video-cameras/"><u>[New] 2024 Approved Scoping Out the 12 Most Popular Flip-Screen Video Cameras</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-exploring-syma-x8c-battery-life/"><u>[New] In 2024, Exploring Syma X8C Battery Life</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-the-comprehensive-guide-to-screenshot-excellence/"><u>[New] In 2024, The Comprehensive Guide to Screenshot Excellence</u></a></li>
+<li><a href="https://fox-sys.techidaily.com/creative-tims-material-dashboard-enhanced-with-laravel-livewire-support/"><u>Creative Tim's Material Dashboard: Enhanced with Laravel Livewire Support</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/evaluating-the-impact-of-true-to-self-imagery-on-instagram/"><u>Evaluating the Impact of True-to-Self Imagery on Instagram</u></a></li>
+<li><a href="https://win-blog.techidaily.com/expert-tips-and-fixes-for-cod-vanguard-stability-problems-on-your-pc-2024-edition/"><u>Expert Tips and Fixes for CoD Vanguard Stability Problems on Your PC, 2024 Edition</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/navigating-the-world-of-computing-tips-from-toms-hardware-experts/"><u>Navigating the World of Computing: Tips From Tom’s Hardware Experts</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-your-digital-footprint-efficient-channels-monikers/"><u>Prime Your Digital Footprint Efficient Channels' Monikers</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/reviving-lost-files-on-mac-free-and-paid-data-recovery-tools-compared/"><u>Reviving Lost Files on Mac: Free & Paid Data Recovery Tools Compared</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/step-by-step-guide-restoring-airpods-microphone-functionality-on-windows/"><u>Step-by-Step Guide: Restoring AirPods Microphone Functionality on Windows #</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/tourner-facilement-du-fichier-ppm-au-format-gif-sans-frais-solution-de-movavi-detaillee/"><u>Tourner Facilement Du Fichier PPM Au Format GIF Sans Frais - Solution De Movavi Détaillée</u></a></li>
 </ul></div>
 

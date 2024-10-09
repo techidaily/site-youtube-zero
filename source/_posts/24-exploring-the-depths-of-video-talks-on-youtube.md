@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Exploring the Depths of Video Talks on YouTube"
-date: 2024-10-02T16:53:21.716Z
-updated: 2024-10-03T19:15:11.080Z
+date: 2024-10-02T05:41:26.597Z
+updated: 2024-10-08T23:48:12.547Z
 tags:
   - ai video
   - ai youtube
@@ -79,17 +79,17 @@ You can use the YouTube Comment Search browser extension supported by Google Chr
 ![ YouTube Comment Search Extension](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068439/7443" target="_top" id="2068439">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068439" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037334/7443" target="_top" id="2037334">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037334" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068439/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037334/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: Using Comments Search for YouTube Extension
@@ -118,6 +118,13 @@ This mode allows you to enter special commands to carry out an advanced search. 
 2. ‘:all’ to see all comments
 3. ‘:creator’ to get comments made by the creator
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 4: How Do You Search Comments You Have Posted on YouTube?
 
 Did you post a comment on your favorite celebrity’s video? Do you think it may be embarrassing and want to delete it now but cannot find it now amidst so many comments? It is where you can make use of YouTube’s Comment History feature.
@@ -134,14 +141,14 @@ You can see all the comments you have posted in the Comment History in a few qui
 
 ![ YouTube History Comment](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
 
-You can also access the Comments History page directly from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044585/7443" target="_top" id="2044585">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044585" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2016134/19272" target="_top" id="2016134">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016134" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044585/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016134/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+You can also access the Comments History page directly from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
 
 ## Part 5: How to Find Out Who Posts the Most Comments on Your YouTube Videos?
 
@@ -166,13 +173,6 @@ Find feedback or questions. Report offensive comments. If you are a regular YouT
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -194,16 +194,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-the-ultimate-vlog-gear-list-17-edition/"><u>[New] 2024 Approved The Ultimate Vlog Gear List (#17 Edition)</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/n-2024-from-startup-to-success-skyrocketing-youtube-subs/"><u>[New] In 2024, From Startup to Success Skyrocketing Youtube Subs</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/nveiling-the-secrets-to-removing-green-screen-effects-on-mac-for-2024/"><u>[New] Unveiling the Secrets to Removing Green Screen Effects on Mac for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-audience-accessibility-enhancement-adding-subtitles-and-closed-captions-on-youtube-for-2024/"><u>[Updated] Audience Accessibility Enhancement Adding Subtitles and Closed Captions on YouTube for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-capturing-attention-sharing-tweets-as-snaps-for-2024/"><u>[Updated] Capturing Attention Sharing Tweets as Snaps for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-best-cameras-for-frame-by-frame-puppetry/"><u>[Updated] In 2024, Best Cameras for Frame-by-Frame Puppetry</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-mediamatters-size-your-content-for-stellar-instagram/"><u>[Updated] In 2024, MediaMatters Size Your Content for Stellar Instagram</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/2024-approved-essential-skills-for-high-quality-screen-recordings-using-nvidia/"><u>2024 Approved Essential Skills for High-Quality Screen Recordings Using NVIDIA</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-from-filters-to-feeds-optimizing-your-360-video-for-youtube-publishing/"><u>2024 Approved From Filters to Feeds Optimizing Your 360 Video for YouTube Publishing</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/mastering-netflixs-innovative-split-screen-tech/"><u>Mastering Netflix's Innovative Split Screen Tech</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/sh-your-inner-vfx-guru-with-diy-techniques/"><u>Unleash Your Inner VFX Guru with DIY Techniques</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nline-tutorial-adding-youtube-playlists-to-your-site-for-2024/"><u>[New] Online Tutorial Adding YouTube Playlists to Your Site for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-a-gamers-manual-to-top-frame-rate-enhancers/"><u>[Updated] A Gamer's Manual to Top Frame Rate Enhancers</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-mastering-youtube-thumbnails-essential-dimensions-explored/"><u>[Updated] In 2024, Mastering YouTube Thumbnails Essential Dimensions Explored</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-unlock-the-power-of-partnerships-youtube-ads-with-a-famebit-edge/"><u>[Updated] In 2024, Unlock the Power of Partnerships YouTube Ads with a FameBit Edge</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/70597048-updated-transform-videos-with-easy-to-use-sound-effects/"><u>[Updated] Transform Videos with Easy-to-Use Sound Effects!</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/2024-approved-from-fcp-to-vhs-effortless-ways-to-add-retro-flair/"><u>2024 Approved From FCP to VHS Effortless Ways to Add Retro Flair</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/free-to-use-vimeo-tips-to-master-your-videos-for-2024/"><u>Free-to-Use Vimeo Tips to Master Your Videos for 2024</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/huawei-p20-pro-examined-exceptional-photography-capabilities-in-an-impressive-device/"><u>Huawei P20 Pro Examined: Exceptional Photography Capabilities in an Impressive Device</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-videos-from-xiaomi-redmi-13c-5g-to-ipad-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Videos from Xiaomi Redmi 13C 5G to iPad | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-top-10-online-subtitle-extractors-for-budget-friendly-viewers/"><u>In 2024, Top 10 Online Subtitle Extractors for Budget-Friendly Viewers</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-ways-to-find-unlocking-codes-for-oppo-reno-11f-5g-phones-by-drfone-android/"><u>In 2024, Ways To Find Unlocking Codes For Oppo Reno 11F 5G Phones</u></a></li>
 </ul></div>
 

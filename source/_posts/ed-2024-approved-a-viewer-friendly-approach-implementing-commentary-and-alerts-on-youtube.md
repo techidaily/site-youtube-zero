@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  A Viewer-Friendly Approach  Implementing Commentary and Alerts on YouTube\""
-date: 2024-09-27T22:14:52.260Z
-updated: 2024-10-03T16:43:06.445Z
+date: 2024-10-05T19:28:28.808Z
+updated: 2024-10-08T21:20:21.275Z
 tags:
   - ai video
   - ai youtube
@@ -73,10 +73,10 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 * Apply changes and exit
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to add YouTube annotations
@@ -90,10 +90,10 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1657395/16446" target="_top" id="1657395">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657395" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657395/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
@@ -102,10 +102,10 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880940/19272" target="_top" id="1880940">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880940" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880940/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * Apply changes
@@ -147,16 +147,10 @@ No matter what kind of annotations you are using, you should never use more than
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1975555">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -180,21 +174,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-unraveling-the-best-online-video-to-mp3-converters/"><u>[New] 2024 Approved Unraveling the Best Online Video to Mp3 Converters</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-be-inspired-today-the-essentials-of-stunning-photos-on-ig-for-2024/"><u>[New] Be Inspired Today! The Essentials of Stunning Photos on IG for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-elevate-audio-quality-in-podcasts-using-garageband/"><u>[New] In 2024, Elevate Audio Quality in Podcasts Using GarageBand</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-mastering-instagram-highlights-comprehensive-photography-tips/"><u>[New] In 2024, Mastering Instagram Highlights Comprehensive Photography Tips</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/urn-backwards-youtube-content-inversion-tips-for-2024/"><u>[New] Turn Backwards YouTube Content Inversion Tips for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-conveniently-connect-with-others-via-your-playlist-for-2024/"><u>[Updated] Conveniently Connect with Others via Your Playlist for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-mitigating-the-risk-of-youtube-sanctions/"><u>[Updated] Mitigating the Risk of YouTube Sanctions</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-digital-download-king-comprerante-video-acquisition-guide/"><u>2024 Approved Digital Download King Comprerante Video Acquisition Guide</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-youtubes-legal-framework-on-content-screencasting/"><u>2024 Approved YouTube's Legal Framework on Content Screencasting</u></a></li>
-<li><a href="https://games-able.techidaily.com/conquering-your-console-game-pass-portfolio/"><u>Conquering Your Console Game Pass Portfolio</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-resolve-xiaomi-redmi-note-13-proplus-5g-screen-not-working-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Resolve Xiaomi Redmi Note 13 Pro+ 5G Screen Not Working | Dr.fone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-chuckles-galore-navigate-the-best-15-comedic-youtube-crews/"><u>In 2024, Chuckles Galore Navigate the Best 15 Comedic YouTube Crews</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-iphone-6s-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 6s?</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-streaming-masterpieces-best-movie-directories-on-yt/"><u>In 2024, Streaming Masterpieces Best Movie Directories on YT</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/no-root-audio-recording-on-android-devices-tutorial/"><u>No-Root Audio Recording on Android Devices [Tutorial]</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-vivo-y200-device-by-drfone-android/"><u>What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Vivo Y200 Device</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-avoiding-common-pitfalls-in-pc-based-youtube-video-editing/"><u>[New] 2024 Approved Avoiding Common Pitfalls in PC-Based YouTube Video Editing</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-convert-your-youtube-files-effortlessly-to-webm/"><u>[New] 2024 Approved Convert Your YouTube Files Effortlessly to WebM</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-crafting-a-legacy-youtubers-playbook-for-success/"><u>[New] 2024 Approved Crafting a Legacy YouTuber’s Playbook for Success</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-detailed-guide-to-dollar-counts-a-stepwise-strategy-to-track-youtube-earnings/"><u>[New] 2024 Approved Detailed Guide to Dollar Counts A Stepwise Strategy to Track YouTube Earnings</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-free-software-to-convert-youtube-to-mp3-for-iphone-for-2024/"><u>[New] 6 Free Software to Convert YouTube to MP3 for iPhone for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-exploring-new-frontiers-in-gaming-recording-tech/"><u>[New] In 2024, Exploring New Frontiers in Gaming Recording Tech</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-the-ultimate-blueprint-for-crafting-standout-podcast-titles-and-name-samples-for-2024/"><u>[New] The Ultimate Blueprint for Crafting Standout Podcast Titles & Name Samples for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-selective-sights-best-macos-sierra-video-editors/"><u>[Updated] In 2024, Selective Sights Best macOS Sierra Video Editors</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-traffic-with-effective-tools-for-youtube-videos/"><u>Boost Traffic with Effective Tools for YouTube Videos</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/gamers-ultimate-guide-to-9-streams/"><u>Gamer's Ultimate Guide to #9 Streams</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-nubia-red-magic-9-proplus-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On Nubia Red Magic 9 Pro+? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-oppo-find-n3-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Oppo Find N3 | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/metas-new-ai-feature-introducing-an-internal-image-creation-engine-comparable-to-dall-e/"><u>Meta's New AI Feature: Introducing an Internal Image Creation Engine Comparable to DALL-E</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/smart-screenshot-assembly-leading-androidiphone-montage-aids/"><u>Smart Screenshot Assembly Leading Android/iPhone Montage Aids</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-tips-easily-fixing-steams-disk-writing-challenges/"><u>Troubleshooting Tips: Easily Fixing Steam's Disk Writing Challenges</u></a></li>
 </ul></div>
 

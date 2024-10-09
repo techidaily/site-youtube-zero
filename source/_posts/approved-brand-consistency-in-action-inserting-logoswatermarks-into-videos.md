@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Brand Consistency in Action  Inserting Logos/Watermarks Into Videos\""
-date: 2024-09-16T17:17:51.562Z
-updated: 2024-09-22T01:27:29.527Z
+date: 2024-10-03T23:47:31.431Z
+updated: 2024-10-09T04:07:27.135Z
 tags:
   - ai video
   - ai youtube
@@ -47,6 +47,13 @@ A [watermark](https://en.wikipedia.org/wiki/Watermark) is a still image that is 
 * [**Part 1: How to add logo or watermark to in existing YouTube videos**](#part1)
 * [**Part 2: Add logos or watermarks to your videos before uploading**](#part2)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148646/16836" target="_top" id="2148646">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148646" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148646/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 1: How to add logo or watermark to in existing YouTube videos
 
 To add a watermark to your previously uploaded videos you will need to have created and saved your watermark outside of your video editing program.
@@ -63,6 +70,13 @@ To add a watermark to your previously uploaded videos you will need to have crea
 * Click on "add watermark". Then you can choose an image from your computer. After your image is uploaded, click save.
 
 ![add watermark to youtube](https://images.wondershare.com/filmora/article-images/add-watermark.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Notes
 
@@ -83,10 +97,10 @@ Wondershare Filmora which is one of the ideal video editing tools especially whe
 ![youtube watermark on filmora](https://images.wondershare.com/filmora/article-images/youtube-logo-on-filmora.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105859/7443" target="_top" id="2105859">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148633/16836" target="_top" id="2148633">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148633" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148633/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 The following steps have to be taken to add a watermark:
@@ -98,6 +112,13 @@ The following steps have to be taken to add a watermark:
 * Save the video
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148773/18498" target="_top" id="2148773">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148773" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148773/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### 2\. [Windows movie maker](https://windows-movie-maker.en.softonic.com/)
 
@@ -137,10 +158,10 @@ The image should be in .PNG or .GIF format.
 Do you want to make a transparent image as logo for your YouTube? If you want to brand your YouTube channel, we believe it is a must to add transparent logo for YouTube branding. Actually, you can do this in Filmora just with a green screen image. Check the steps below to know the secret.
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557742/17382" target="_top" id="1557742">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557742" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151889/7443" target="_top" id="2151889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151889" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557742/17382" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151889/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Step 1: Import video and image to Filmora
@@ -149,37 +170,24 @@ Open Filmora. Choose **Create New Project**. Click import media files here in Me
 
 ![import video and image](https://images.wondershare.com/filmora/article-images/import-video-9.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094428/7443" target="_top" id="2094428">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094428" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094428/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Step 2: Import video and image to Filmora
 
 Right click on the image clip in the timeline. Choose **Green Screen**. You will see the image is transparent in the preview window. Now, you need to adjust some details. You can adjust edge thickness and edge feather to better edge. If the green screen background is not totally removed, drag tolerance to adjust it.
 
 ![youtube logo transparent image](https://images.wondershare.com/filmora/article-images/change-green-screen-effect.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Step 3: Scale the logo
 
 You can clip the image clip first and go to preview window to scale it down or up by dragging the green dot. You can put the YouTube logo at corner.
 
 ![transparent youtube logo for branding](https://images.wondershare.com/filmora/article-images/transparent-logo-for-youtube.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1982456">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -202,5 +210,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-10-user-friendly-free-tools-to-create-professional-video-thumbnails/"><u>[New] In 2024, 10 User-Friendly Free Tools to Create Professional Video Thumbnails</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-the-art-of-discerning-if-ones-friend-blocked-your-account/"><u>[Updated] 2024 Approved The Art of Discerning if One's Friend Blocked Your Account</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-crafting-distinctive-video-stream-names-tips-for-filmora-users/"><u>[Updated] In 2024, Crafting Distinctive Video Stream Names Tips for Filmora Users</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-the-editors-playbook-advanced-pc-methods-for-youtube-mastery/"><u>[Updated] In 2024, The Editor's Playbook Advanced PC Methods for YouTube Mastery</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-from-free-to-fortune-the-500-sub-club/"><u>2024 Approved From Free to Fortune The 500-Sub Club</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-why-are-recommended-youtube-movies-elusive-on-facebook/"><u>2024 Approved Why Are Recommended YouTube Movies Elusive on Facebook?</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/boost-your-msi-gs65-experience-free-download-of-optimized-windows-drivers-here/"><u>Boost Your MSI GS65 Experience - Free Download of Optimized Windows Drivers Here!</u></a></li>
+<li><a href="https://blog-min.techidaily.com/essential-tips-for-generating-a-windows-10-system-restore-point/"><u>Essential Tips for Generating a Windows 10 System Restore Point</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/on-the-leading-12-youtube-videographers-for-opening-tutorials-freepaid/"><u>Game On The Leading 12 YouTube Videographers for Opening Tutorials (Free/Paid)</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-install-the-latest-ios-beta-version-on-iphone-8-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Install the Latest iOS Beta Version on iPhone 8? | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-cashing-in-on-content-the-carminati-effect-ajay/"><u>In 2024, Cashing In on Content The Carminati Effect (AJay)</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-mini-media-magic-which-social-site-captures-the-crowd-faster-youtubes-or-tiktoks/"><u>In 2024, Mini-Media Magic Which Social Site Captures the Crowd Faster? YouTubes or TikToks?</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/north-case-revival-how-the-maker-movement-continues-fractals-legacy-with-customized-raspberry-pi-enclosures/"><u>North Case Revival: How the Maker Movement Continues Fractal's Legacy with Customized Raspberry Pi Enclosures</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ling-the-leaders-free-top-6-youtube-snackers/"><u>Unveiling the Leaders Free Top 6 YouTube Snackers</u></a></li>
+</ul></div>
 

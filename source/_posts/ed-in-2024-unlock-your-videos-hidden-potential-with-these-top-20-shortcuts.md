@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Unlock Your Video's Hidden Potential with These Top 20 Shortcuts"
-date: 2024-10-02T21:56:54.169Z
-updated: 2024-10-03T21:15:29.476Z
+date: 2024-10-05T20:55:10.989Z
+updated: 2024-10-08T23:05:23.557Z
 tags:
   - ai video
   - ai youtube
@@ -47,10 +47,10 @@ While watching a YouTube video, there might be instances when you want to pause 
 | 'Spacebar'        | Play and Pause (Works as a toggle key) |
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082527/7443" target="_top" id="2082527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082527" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082527/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Category 2: Scrolling YouTube Videos Back and Forth
@@ -73,10 +73,10 @@ If you’re watching videos on YouTube mobile app, you can use double-tap on the
 Long press the Video Player and swipe right will navigate the video forward; and long press the video player and wwipe left will navigate the video backward.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Category 3: Manage Playback Speed
@@ -111,10 +111,10 @@ This category shows the shortcut keys to manage audio for a YouTube video:
 | '↓'               | Decrease volume by 5% |
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902304/19272" target="_top" id="1902304">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902304" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902304/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Category 6: Switching Between Screen Modes
@@ -130,19 +130,6 @@ The shortcut keys given in this table enable you to switch between different scr
 Double press F/T/I on the keyboard will exit the full-screen/theater model/independent mode accordingly.
 
 If you are watching video on YouTube mobile app, you can swipe up the video slightly to enter the full screen mode, and swipe down the video slightly to exit the full screen.
-
-<!-- affiliate ads begin -->
-<span id="1977006">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Category 7: Viewing 360o/VR Videos
 
@@ -178,6 +165,13 @@ As one of the most popular video editing software among YouTubers, Filmora provi
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -199,18 +193,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-2024-approved-unpacking-the-performance-a-complete-guide-to-lg-bp350-monitors/"><u>[New] 2024 Approved Unpacking the Performance A Complete Guide to LG BP350 Monitors</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/igital-domination-worlds-top-10-video-content-kings-and-queens-for-2024/"><u>[New] Digital Domination World's Top 10 Video Content Kings & Queens for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-how-to-pinpoint-premium-video-keywords-on-youtube-for-2024/"><u>[New] How to Pinpoint Premium Video Keywords on YouTube for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/2024-approved-the-compreenasional-path-to-post-perfection-instagram-video-upload-from-pcmac/"><u>2024 Approved The Compreenasional Path to Post-Perfection Instagram Video Upload From PC/Mac</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/-an-attractive-animation-from-any-video-a-comprehensive-youtube-to-gif-guide/"><u>Craft an Attractive Animation From Any Video - A Comprehensive Youtube-to-GIF Guide</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/king-youtube-premium-benefits-vs-costs/"><u>Debunking YouTube Premium Benefits Vs. Costs</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/dual-output-synchronization-for-2024/"><u>Dual Output Synchronization for 2024</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-intercept-text-messages-on-lava-blaze-curve-5g-drfone-by-drfone-virtual-android/"><u>How to Intercept Text Messages on Lava Blaze Curve 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-achieving-cohesion-in-content-with-flv-video-integration/"><u>In 2024, Achieving Cohesion in Content with FlV Video Integration</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-exploring-differences-in-vimeo-and-youtube-services/"><u>In 2024, Exploring Differences in Vimeo & YouTube Services</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/2023-update-youtube-audio-to-mp3-step-by-step-for-2024/"><u>Mac's 2023 Update YouTube Audio to MP3 Step-by-Step for 2024</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/quick-solutions-for-troubleshooting-your-i2c-hid-driver-problems/"><u>Quick Solutions for Troubleshooting Your I2C HID Driver Problems</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/strategies-for-monetizing-your-content-without-infringement-for-2024/"><u>Strategies for Monetizing Your Content Without Infringement for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-direct-linking-of-photos-and-videos-between-devices/"><u>[New] 2024 Approved Direct Linking of Photos & Videos Between Devices</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-17-best-lights-and-lighting-equipment-for-youtube/"><u>[New] In 2024, 17 Best Lights and Lighting Equipment for YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-essential-steps-to-producing-a-youtube-hit-music-reaction-video-guide/"><u>[Updated] 2024 Approved Essential Steps to Producing a YouTube Hit Music Reaction Video Guide</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-orchestrating-a-journey-through-hidden-youtube-archives/"><u>[Updated] 2024 Approved Orchestrating a Journey Through Hidden YouTube Archives</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-avoid-pitfalls-maintaining-youtube-thumbnail-quality/"><u>[Updated] Avoid Pitfalls Maintaining YouTube Thumbnail Quality</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-seamless-edits-start-on-all-your-tech/"><u>[Updated] Seamless Edits Start on All Your Tech</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-10-free-location-spoofers-to-fake-gps-location-on-your-honor-90-lite-drfone-by-drfone-virtual/"><u>In 2024, 10 Free Location Spoofers to Fake GPS Location on your Honor 90 Lite | Dr.fone</u></a></li>
+<li><a href="https://common-error.techidaily.com/noise-issues-gone-expert-solutions-for-restoring-sounds-in-forza-horizon-4-game/"><u>Noise Issues Gone: Expert Solutions for Restoring Sounds in Forza Horizon 4 Game</u></a></li>
+<li><a href="https://win-able.techidaily.com/solving-playback-problems-for-smooth-gaming-in-deathloop-on-pc-setups/"><u>Solving Playback Problems for Smooth Gaming in Deathloop on PC Setups</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/unveiling-youtubes-finest-story-sages-and-weavers-in-23/"><u>Unveiling YouTube's Finest Story Sages and Weavers in '23</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/what-global-tech-pioneers-think-about-ai-the-collective-view-of-the-top-10/"><u>What Global Tech Pioneers Think About AI - The Collective View of the Top 10</u></a></li>
 </ul></div>
 

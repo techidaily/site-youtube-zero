@@ -1,7 +1,7 @@
 ---
 title: "[New] Fresh Ideas to Talk About in Daily Vlogging for 2024"
-date: 2024-09-28T16:29:02.972Z
-updated: 2024-10-03T19:48:57.352Z
+date: 2024-10-04T05:35:14.423Z
+updated: 2024-10-08T18:43:23.499Z
 tags:
   - ai video
   - ai youtube
@@ -50,13 +50,6 @@ The other reason it’s good to have a niche is that you’ll be able to use key
 
 Here are 4 things to talk about in your daily vlog:
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## What are you watching/reading?
 
  If you’re really into a book or tv show, or if you saw a movie recently, then those are all good things to talk about (warn people if you’re going to spoil anything!). You do recaps, reviews, or just share a few thoughts you had. If you’re worried about alienating people who don’t watch/read the same stuff as you then you can keep it more general and just react to a few things from the media you’re consuming while also talking about your day. It’ll give you an anchor to build the rest of your video around, even if it’s not all you talk about.
@@ -79,6 +72,13 @@ It does not matter what it is that is making you have this strong reaction (unle
 
 Alternatively: you could do a vlog about how happy you are to have gotten engaged or a vlog about how happy you are that it was sunny today, and your enthusiasm will carry your audience through either video with you.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528693/16446" target="_top" id="1528693">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528693/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## What did you learn today?
 
  _Fun fact: The original lyrics Paul McCartney imagined for 'Yesterday' were 'Scrambled eggs, oh my baby how I love your legs'._
@@ -96,10 +96,16 @@ The puya chilensis is a plant that ‘eats’ sheep (sheep get stuck to it, star
 Sea monkeys can survive in space.
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1175223/12108" target="_top" id="1175223">
-  <img src="//a.impactradius-go.com/display-ad/12108-1175223" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1175223/12108" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993645">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## EVERYTHING
@@ -107,15 +113,21 @@ Sea monkeys can survive in space.
 You could also just flick the camera on and tell the full story of your day like you’d do in a traditional daily blog. What did you have for breakfast, how was school/work, did you talk to any friends, how was the weather – anything and everything. Generally, these videos can run a bit long and don’t have a lot of snappy editing. They’re faster to make, which is good if you’re doing them every day, but the unpolished nature of them won’t appeal to everyone. It will be exactly what appeals to some people, though.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105869/7443" target="_top" id="2105869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105869" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105869/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Customize Your Vlog Stories with Powerful Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+**We’ve got a new eBook out!**
+
+It’s got strategies that have worked for other YouTubers, boiled down to simple action steps.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
 <a href="https://aligracehair.sjv.io/c/5597632/1938721/19272" target="_top" id="1938721">
@@ -123,12 +135,6 @@ You could also just flick the camera on and tell the full story of your day like
 </a>
 <img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938721/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-**We’ve got a new eBook out!**
-
-It’s got strategies that have worked for other YouTubers, boiled down to simple action steps.
-
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
 
@@ -151,16 +157,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/levate-your-shots-vloggers-guide-to-the-9-finest-camera-gadgets-for-2024/"><u>[New] Elevate Your Shots Vlogger's Guide to the 9 Finest Camera Gadgets for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-elevate-viewership-must-use-youtube-seo-tools/"><u>[Updated] 2024 Approved Elevate Viewership Must-Use YouTube SEO Tools</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-elevate-your-edits-top-10-youtube-editing-strategies-for-2024/"><u>[Updated] Elevate Your Edits Top 10 YouTube Editing Strategies for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-standout-14-animation-techniques-for-texts/"><u>[Updated] In 2024, Standout 14 Animation Techniques for Texts</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-transforming-spaces-the-art-of-metaphysical-marketing-for-2024/"><u>[Updated] Transforming Spaces The Art of Metaphysical Marketing for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-step-forward-with-borders-on-instagram-videos/"><u>2024 Approved Step Forward with Borders on Instagram Videos</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-changefake-your-realme-gt-neo-5-location-on-viber-drfone-by-drfone-virtual-android/"><u>How to Change/Fake Your Realme GT Neo 5 Location on Viber | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-apple-iphone-14-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Apple iPhone 14 Pro | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-fix-pokemon-go-route-not-working-on-infinix-note-30-vip-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Pokemon Go Route Not Working On Infinix Note 30 VIP? | Dr.fone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-make-a-statement-with-free-profile-pics/"><u>In 2024, Make a Statement With Free Profile Pics</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-vlogventures-in-cosmetics-how-to-create-your-fashion-forward-channel/"><u>In 2024, Vlogventures in Cosmetics How to Create Your Fashion-Forward Channel</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-aerial-cinematography-secrets-unveiled-for-2024/"><u>[New] Aerial Cinematography Secrets Unveiled for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-how-to-delete-or-deactivate-an-instagram-account-permanently/"><u>[New] How to Delete or Deactivate An Instagram Account Permanently</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-microcapture-video-logger-analysis-and-options/"><u>[New] MicroCapture Video Logger Analysis & Options</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-a-closer-look-at-earnings-comparing-dailymotion-and-youtube-revenues-for-2024/"><u>[Updated] A Closer Look at Earnings Comparing Dailymotion and YouTube Revenues for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-ranking-youtube-download-apps-for-android-users/"><u>[Updated] In 2024, Ranking YouTube Download Apps for Android Users</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-latest-supported-drivers-for-nvidias-gtx-1080-on-windows-7-systems/"><u>Download Latest Supported Drivers for Nvidia's GTX 1080 on Windows 7 Systems</u></a></li>
+<li><a href="https://blog-min.techidaily.com/html5and/"><u>HTML5動画を安全にダウンロード&保管する簡単な方法</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-affordable-mcb-theme-images-for-channels/"><u>In 2024, Affordable MCB Theme Images for Channels</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-boost-your-channel-top-14-gaming-vids-for-youtube-success/"><u>In 2024, Boost Your Channel Top 14 Gaming Vids for YouTube Success</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-capturing-moving-images-mirrorless-versus-dslr/"><u>In 2024, Capturing Moving Images Mirrorless Versus DSLR</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-comprehensive-coverage-coalition-picking-an-mcn/"><u>In 2024, Comprehensive Coverage Coalition Picking an MCN</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-cultivating-cash-by-critiquing-consumer-commodities-online/"><u>In 2024, Cultivating Cash by Critiquing Consumer Commodities Online</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-deleted-and-found-again-streaming-yts-forgotten-videos/"><u>In 2024, Deleted and Found Again Streaming YT’s Forgotten Videos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/18232277-in-2024-profile-pictures-download-for-free/"><u>In 2024, Profile Pictures - Download for FREE!</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/laughing-with-ai-how-effective-is-chatgpt-at-creating-humor-and-making-people-giggle/"><u>Laughing with AI: How Effective Is ChatGPT at Creating Humor and Making People Giggle?</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/new-in-2024-a-basic-guidebook-to-live-selling-in-todays-digital-world/"><u>New In 2024, A Basic Guidebook To Live Selling in Todays Digital World</u></a></li>
 </ul></div>
 

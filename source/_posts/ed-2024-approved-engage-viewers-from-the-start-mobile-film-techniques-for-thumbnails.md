@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Engage Viewers From the Start  Mobile Film Techniques for Thumbnails\""
-date: 2024-09-27T19:00:45.221Z
-updated: 2024-10-03T20:36:28.492Z
+date: 2024-10-03T02:21:25.379Z
+updated: 2024-10-08T16:59:56.628Z
 tags:
   - ai video
   - ai youtube
@@ -136,6 +136,13 @@ Step1 Open the YouTube app on your mobile device and sign in to your account.
 
 ![youtube install](https://images.wondershare.com/filmora/article-images/youtube-home.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step2 Tap on the **My Videos** tab to view a list of your uploaded videos.
 
 ![youtube select video](https://images.wondershare.com/filmora/article-images/youtube-select-video.JPG)
@@ -143,6 +150,13 @@ Step2 Tap on the **My Videos** tab to view a list of your uploaded videos.
 Step3 Tap on the video and tap the "**Edit**" button in the top right corner of the screen.
 
 ![youtube edit video](https://images.wondershare.com/filmora/article-images/youtube-edit-video.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2044583/7443" target="_top" id="2044583">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044583" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044583/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step4 Tap the **Custom thumbnail** button and **upload** the image you want to use from your photo library.
 
@@ -178,23 +192,9 @@ Step2 Scale up and reposition the photo.
 
 ![filmora import image](https://images.wondershare.com/filmora/article-images/filmora-import-image.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step3 Add a new background to the track below the picture. **Use** the other editing tools in Filmora to customize the image as desired, such as adding text, graphics, and special effects.
 
 ![filmora editing options](https://images.wondershare.com/filmora/article-images/filmora-editing-options.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144271/7443" target="_top" id="2144271">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144271" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144271/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step4 When you are done editing the thumbnail, take a **snapshot** by clicking the camera icon.
 
@@ -213,13 +213,6 @@ This video will show you how to use Filmora to create a custom thumbnail for you
 ## People Also Ask
 
 Here are some common questions that people have when it comes to creating YouTube thumbnails on mobile.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Q1\. What App Do Youtubers Use To Make Thumbnails?
 
@@ -263,13 +256,6 @@ Step2 Tap the **"+"** icon to **add** an image from your gallery.
 
 ![pixellab add image](https://images.wondershare.com/filmora/article-images/pixellab-add-image.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
-  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step3 Edit the image using the available tools, such as cropping, rotating, and adjusting the color and lighting.
 
 ![pixellab editing options](https://images.wondershare.com/filmora/article-images/pixellab-editing-options.jpg)
@@ -285,6 +271,13 @@ Step5 Change the resolution of the image to **1280 x 720 pixels**.
 Step6 Save the image to your gallery by exporting it.
 
 ![pixellab export image](https://images.wondershare.com/filmora/article-images/pixellab-export-image.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  Pros
 
@@ -322,10 +315,10 @@ Step4 Tap the **Custom thumbnail** button and **upload** the image you want to u
 ![youtube upload thumbnail](https://images.wondershare.com/filmora/article-images/youtube-upload-thumbnail.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918684/19272" target="_top" id="1918684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918684" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918684/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step5 Tap Save in the top right corner to upload the thumbnail to your video.
@@ -354,27 +347,27 @@ Step1 Launch Filmora, add the picture to the timeline and **select** the AI Port
 
 ![filmora interface](https://images.wondershare.com/filmora/article-images/filmora-interface.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100537/7443" target="_top" id="2100537">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100537" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100537/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step2 Scale up and reposition the photo.
 
 ![filmora import image](https://images.wondershare.com/filmora/article-images/filmora-import-image.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144281/7443" target="_top" id="2144281">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144281" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948937/19272" target="_top" id="1948937">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948937" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144281/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948937/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step3 Add a new background to the track below the picture. **Use** the other editing tools in Filmora to customize the image as desired, such as adding text, graphics, and special effects.
 
 ![filmora editing options](https://images.wondershare.com/filmora/article-images/filmora-editing-options.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step4 When you are done editing the thumbnail, take a **snapshot** by clicking the camera icon.
 
@@ -393,6 +386,13 @@ This video will show you how to use Filmora to create a custom thumbnail for you
 ## People Also Ask
 
 Here are some common questions that people have when it comes to creating YouTube thumbnails on mobile.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144271/7443" target="_top" id="2144271">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144271" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144271/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Q1\. What App Do Youtubers Use To Make Thumbnails?
 
@@ -439,20 +439,16 @@ Whether you create your thumbnails on your mobile device or your computer, use a
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-miniature-music-menus-actors-in-audio-world/"><u>[New] 2024 Approved Miniature Music Menus Actors in Audio World</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-achieving-seamless-360-streaming-on-facebook-for-2024/"><u>[New] Achieving Seamless 360 Streaming on Facebook for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-seamless-live-recording-on-fb-uncover-4-critical-steps-for-2024/"><u>[New] Seamless Live Recording on FB Uncover 4 Critical Steps for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/op-8-linux-friendly-video-cutters-for-2024/"><u>[New] Top 8 Linux-Friendly Video Cutters for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-mastering-content-restrictions-on-youtube-videos/"><u>[Updated] 2024 Approved Mastering Content Restrictions on YouTube Videos</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-solutions-for-hidden-youtube-shorts-thumbnail-problems/"><u>[Updated] 2024 Approved Solutions for Hidden YouTube Shorts Thumbnail Problems</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-cultivating-a-commercial-community-earnings-through-fb-engagement-for-2024/"><u>[Updated] Cultivating a Commercial Community Earnings Through FB Engagement for 2024</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-xiaomi-13t-drfone-by-drfone-virtual-android/"><u>9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Xiaomi 13T | Dr.fone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/tifying-the-art-behind-live-video-thumbnails/"><u>Demystifying the Art Behind Live Video Thumbnails</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/explore-alternatives-7-impressive-tools-to-replace-chatgpt-for-on-the-go-use/"><u>Explore Alternatives: 7 Impressive Tools to Replace ChatGPT for On-the-Go Use</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-charting-success-navigating-a-3-step-strategy-for-tracking-youtube-income/"><u>In 2024, Charting Success Navigating a 3-Step Strategy for Tracking YouTube Income</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-ultimate-t5-eye-cutting-edge-action-video-capture/"><u>In 2024, Ultimate T5 Eye Cutting-Edge Action Video Capture</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/innovative-approaches-for-mosaic-photography-for-2024/"><u>Innovative Approaches for Mosaic Photography for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/ps5xbox-x-visuals-the-leading-game-screens-ranked-for-2024/"><u>PS5/Xbox X Visuals The Leading Game Screens Ranked for 2024</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/the-ultimate-guide-to-taming-the-turbulent-display/"><u>The Ultimate Guide to Taming the Turbulent Display</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-extract-translate-and-save-youtube-subtitles-for-free/"><u>[New] 2024 Approved Extract, Translate & Save YouTube Subtitles for FREE!</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-from-script-to-screen-crafting-your-unique-youtube-tale/"><u>[New] 2024 Approved From Script to Screen Crafting Your Unique YouTube Tale</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-a-beginners-guide-to-no-cost-countdown-usage-for-2024/"><u>[Updated] A Beginner's Guide to No-Cost Countdown Usage for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-the-secret-to-stellar-instagram-video-engagement-flawless-sizing-techniques/"><u>[Updated] In 2024, The Secret to Stellar Instagram Video Engagement Flawless Sizing Techniques</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-a-course-to-higher-views-with-top-optimization-tactics/"><u>Chart a Course to Higher Views with Top Optimization Tactics</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/enhancing-chatgpt-discussions-with-personalized-gpts-a-step-by-step-guide-on-utilizing-gpt-mentions/"><u>Enhancing ChatGPT Discussions with Personalized GPTs: A Step-by-Step Guide on Utilizing GPT Mentions</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/in-2024-getting-started-on-discord-a-comprehensive-guide-to-broadcasting/"><u>In 2024, Getting Started on Discord A Comprehensive Guide to Broadcasting</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-meizu-21-phone-without-any-data-loss-by-drfone-android/"><u>In 2024, How to Unlock Meizu 21 Phone without Any Data Loss</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/mastering-gta-ntricacies-tackling-game-launch-failures-effectively/"><u>Mastering GTA Ntricacies: Tackling Game Launch Failures Effectively</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/online-free-transcoding-tool-change-your-videos-from-mkv-to-webm-with-movavis-help/"><u>Online Free Transcoding Tool - Change Your Videos From MKV to WebM with Movavi's Help</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-cinematic-creator-a-symphony-of-sights-and-sounds-for-2024/"><u>Prime Cinematic Creator A Symphony of Sights & Sounds for 2024</u></a></li>
 </ul></div>
 

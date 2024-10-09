@@ -1,7 +1,7 @@
 ---
 title: "\"Key Tactics for Identifying Potential YouTube Co-Stars\""
-date: 2024-09-16T23:10:56.729Z
-updated: 2024-09-22T02:04:59.600Z
+date: 2024-10-06T00:22:04.237Z
+updated: 2024-10-08T18:30:27.834Z
 tags:
   - ai video
   - ai youtube
@@ -68,6 +68,13 @@ People sub to Roberto for tech advice, for example, so it makes sense for him to
 
 If you approach somebody about collaborating and they see that you haven’t posted in over a month, or that you don’t have many videos, it might be harder to get them to agree to work with you. The same goes if they watch your videos and don’t think they are at the same quality level as their videos.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Tips From YouTube Guru Nich Nimmin
 
 This is a collab video about collab videos! **[Nick Nimmin’s](https://www.youtube.com/channel/UCei6wyubYC1I1FwZ54LZFiA)** channel is all about YouTube, and Brandon’s channel **[OnePercentBetter](https://www.youtube.com/channel/UCRI6t05DNVlV0XhdI7hx%5Fiw)** has tons of cool self-development animations. It’s Brandon giving the tips in this video, and 3 of his best are:
@@ -83,6 +90,13 @@ When you’re approaching someone for the first time, don’t overwhelm them wit
 #### **3\. Have ideas.**
 
 Don’t make your potential partner do the work of pitching ideas to you. Be open to their ideas, but come up with 1 or 2 ideas of your own you can mention when you approach the creator you want to work with. People will be more likely to say ‘yes’ to a specific idea than to the idea of collaborating in general, if they don’t already know you.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Tips From Freelancer / Lifestyle Vlogger Amy Schmittauer
 
@@ -102,6 +116,13 @@ If you appeared in someone else’s video, you would probably appreciate it if t
 
  _Collab advice starts at around 2:10._
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Tips From Lifestyle and Fashion YouTuber MyLifeAsEva
 
 **[Eva Gutowski](https://www.youtube.com/user/mylifeaseva/featured)** (MyLifeAsEva) is a lifestyle, fashion, and DIY YouTuber who has done numerous collaborations and believes in making real friends on YouTube. In the video above she shares some of her experiences and talks about how to come across as a real person when you approach other YouTubers about collaborating.
@@ -120,13 +141,6 @@ Twitter is the best place to make YouTube friends, in Eva’s opinion. It’s an
 
  Do you have any of your advice on YouTube collaborations?
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Excellent YouTube Video Editor Always Save Your Time
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -134,10 +148,10 @@ Twitter is the best place to make YouTube friends, in Eva’s opinion. It’s an
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896541/19272" target="_top" id="1896541">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896541" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918679/19272" target="_top" id="1918679">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918679" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896541/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918679/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -159,5 +173,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-your-gateway-to-perfect-entries-everywhere/"><u>[New] 2024 Approved Your Gateway to Perfect Entries, Everywhere</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-androids-expert-choice-for-quick-vid-boosting/"><u>[New] Android's Expert Choice for Quick Vid Boosting</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/xpert-conversion-tools-for-video-content/"><u>[New] Expert Conversion Tools for Video Content</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-sculpting-images-a-beginners-guide-to-pics-distortion/"><u>[New] Sculpting Images A Beginner's Guide to Pics Distortion</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-seamless-video-production-a-guide-to-snapchat-multisnaps/"><u>[New] Seamless Video Production A Guide to Snapchat Multisnaps</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-a-step-by-step-guide-through-youtubes-aspect-ratio-landscapes-for-2024/"><u>[Updated] A Step-by-Step Guide Through YouTube's Aspect Ratio Landscapes for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-budding-buyers-guide-monetization-platforms-for-novice-channels/"><u>[Updated] Budding Buyers Guide Monetization Platforms for Novice Channels</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-crafting-the-perfect-harmony-fusing-lyrics-and-images-with-lyric-video-maker/"><u>[Updated] Crafting the Perfect Harmony Fusing Lyrics & Images with Lyric Video Maker</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-maximize-your-income-through-strategic-use-of-youtube-shorts/"><u>2024 Approved Maximize Your Income Through Strategic Use of YouTube Shorts</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/sible-visual-aids-for-youtube-videos-for-2024/"><u>Accessible Visual Aids for YouTube Videos for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-gionee-phone-without-password-by-drfone-android/"><u>How To Unlock Gionee Phone Without Password?</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-unraveling-the-mystery-of-ad-driven-content-creation-cpm/"><u>In 2024, Unraveling the Mystery of Ad-Driven Content Creation (CPM)</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/porating-jump-cuts-for-smoother-edits/"><u>Incorporating Jump Cuts for Smoother Edits</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/revolutionize-your-home-network-with-netgear-nighthawk-x6-wireless-mesh-extender-a-complete-review/"><u>Revolutionize Your Home Network with Netgear Nighthawk X6 Wireless Mesh Extender: A Complete Review</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/simplifying-email-clutter-a-tutorial-on-gmails-label-features/"><u>Simplifying Email Clutter: A Tutorial on Gmail's Label Features</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/g-darkness-for-a-bright-youtube-experience-for-2024/"><u>Taming Darkness for a Bright YouTube Experience for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshooting-how-to-revive-your-non-responsive-utorrent-with-7-methods/"><u>Troubleshooting: How To Revive Your Non-Responsive uTorrent with 7 Methods</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-2024-approved-the-essential-guide-to-equalizing-audio-volumes-in-vlc-media-player/"><u>Updated 2024 Approved The Essential Guide to Equalizing Audio Volumes in VLC Media Player</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/what-you-want-to-know-about-two-factor-authentication-for-icloud-on-your-iphone-xs-by-drfone-ios/"><u>What You Want To Know About Two-Factor Authentication for iCloud On your iPhone XS</u></a></li>
+</ul></div>
 

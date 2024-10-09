@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Creating Heartfelt YouTube Journeys"
-date: 2024-09-15T00:25:56.059Z
-updated: 2024-09-16T18:46:55.840Z
+date: 2024-10-05T18:58:49.556Z
+updated: 2024-10-09T00:46:56.195Z
 tags:
   - ai video
   - ai youtube
@@ -54,6 +54,13 @@ YouTuber Shameless Maya does an excellent job of this. She created a visually ap
 
 On Monday, May 17th, 2010, YouTube celebrated its fifth anniversary. In celebration of hitting their five-year mark, YouTube launched a “My YouTube Story” campaign, which featured fifteen YouTubers sharing how YouTube has changed their lives. Each of these videos would end with “What’s your YouTube story? Tell us by uploading a video.” Ever since that campaign, many YouTubers have shared their YouTube story, including me! After I had been on YouTube for two years, I felt it was time for me to share my own YouTube story with the world. Sharing your story is not only an opportunity for your viewers to get to know you but a way to inspire other creators to start their channels as well. We all have our reasons for why we started, so why not share them?
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
+  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\.  Draw My Life
 
 “Draw My Life” is a popular video where YouTubers share their life stories through a unique series of drawings. Often YouTubers use a white dry erase board and markers so they can erase and redraw the series of their life events. Mr. Kate provides a great example of this as she is a talented artist and DIY’er. The great thing about this is you don’t have to be an artist or a great drawer. It’s a fun way to be creative and tell your story.
@@ -66,15 +73,22 @@ Who isn’t on Snapchat, Instagram, or both these days? Over the past year, I’
 
 Who hasn’t played the “Never Have I Ever” game?! Playing this game as a Q & A is a great way for viewers to get to know you better with some juicy and shocking details about yourself they otherwise wouldn’t know. It’s also a great way to play and collaborate with another YouTuber. Often, the questions will be split and you have to watch both YouTubers’ videos to find out all the details. Highly popular beauty YouTuber Desi Perkins does a great example of this while playing the game with her sister in law.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 6\.  Get Ready With Me Q & A
 
 Get ready with me Q & As are some of my favorite videos to watch because it’s nice to see YouTubers strip-down bare-faced to do their makeup and answer popular questions. It often feels like two old friends sitting down to chat. Jenn, I'm doing a great example of this when she took to twitter asking viewers to ask her questions she would answer on her channel. Not only did she answer the questions but she gave a detailed makeup tutorial and explanation of the products she used as a 2 for 1\. Even if your channel has nothing to do with makeup or fashion, some viewers can still be intrigued to learn more about your fashion and makeup style.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115933/19272" target="_top" id="2115933">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115933" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115933/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 7\.  My Depression/Anxiety or Mental Health Story
@@ -82,10 +96,10 @@ Get ready with me Q & As are some of my favorite videos to watch because it’s 
 Behind all their smiles and outrageous on-camera personas, there are a lot of YouTubers who are dealing with depression and anxiety. Beauty and fashion YouTuber Alyssa Forever not only shared her story on how she dealt with her depression but gave tips and ways to be happier. If you are facing depression, anxiety, or some other mental illness, it can give others hope if you share your story.
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 8\.  Narrated Autobiopic
@@ -104,21 +118,7 @@ YouTube live videos are probably the best ways to interact and share your story 
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -139,5 +139,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-leading-sites-that-outshine-traditional-twitter-usage/"><u>[New] 2024 Approved Leading Sites That Outshine Traditional Twitter Usage</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/mplify-your-videos-value-anywhere-on-multiple-devices-for-2024/"><u>[New] Amplify Your Video's Value Anywhere on Multiple Devices for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-effortlessly-transform-youtube-tunes-to-mp3-with-mac-for-2024/"><u>[Updated] Effortlessly Transform YouTube Tunes to MP3 with Mac for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-key-digital-platforms-enhance-your-youtube-traffic/"><u>[Updated] Key Digital Platforms Enhance Your YouTube Traffic</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-a-comprehensible-explanation-of-youtubes-viewership-puzzle/"><u>2024 Approved A Comprehensible Explanation of YouTube's Viewership Puzzle</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-laying-the-groundwork-for-successful-channels/"><u>2024 Approved Laying The Groundwork For Successful Channels</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/advanced-mac-video-downloaders-superior-substitutes-to-freemake/"><u>Advanced Mac Video Downloaders: Superior Substitutes to Freemake</u></a></li>
+<li><a href="https://apple-account.techidaily.com/apple-id-unlock-from-apple-iphone-15-plus-how-to-fix-it-by-drfone-ios/"><u>Apple ID Unlock From Apple iPhone 15 Plus? How to Fix it?</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-undelete-lost-call-logs-from-oppo-find-n3-flip-by-fonelab-android-recover-call-logs/"><u>Best Android Data Recovery - undelete lost call logs from Oppo Find N3 Flip</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-change-sony-lock-screen-clock-in-seconds-by-drfone-android/"><u>In 2024, How To Change Sony Lock Screen Clock in Seconds</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-leaders-list-of-gps-drones-with-precision-tracking/"><u>In 2024, Leader's List of GPS Drones with Precision Tracking</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ring-the-art-of-crafting-engaging-youtube-screen-closures-for-2024/"><u>Mastering the Art of Crafting Engaging YouTube Screen Closures for 2024</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/parents-guide-to-amazon-fire-hd-kid-friendly-unveiling-the-top-parental-controls-and-performance-review/"><u>Parent's Guide to Amazon Fire HD ˈKid-Friendly': Unveiling the Top Parental Controls and Performance Review</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/ultimate-guide-to-the-best-magsafe-wallets-of-2024-in-depth-testing-and-insights/"><u>Ultimate Guide to the Best MagSafe Wallets of 2024: In-Depth Testing & Insights</u></a></li>
+</ul></div>
 

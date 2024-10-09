@@ -1,7 +1,7 @@
 ---
 title: "\"Mastering Cost-Effective Visual Integration in Writing\""
-date: 2024-09-29T19:56:33.027Z
-updated: 2024-10-03T16:17:52.976Z
+date: 2024-10-07T01:53:58.820Z
+updated: 2024-10-08T20:58:44.052Z
 tags:
   - ai video
   - ai youtube
@@ -55,13 +55,6 @@ Click on the Insert tab, and then choose the Video option from the Media menu. Y
 
 You can then fine-tune the video playback settings from the Playback tab. Preview the results before you move on to the next slide in your presentation, and make necessary adjustments if you don’t like how the video merged with the text.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: Adding Video to Text in Filmora
 
 Besides presentation software, you can also use video editing software products to add a video to text. Filmora lets you add a video to text in just a few simple steps. You can first make a text video with animation first, and then use the picture in picture feature to add the video to text. Here are the detailed information about how to add a video to text in Filmora.
@@ -72,15 +65,28 @@ You should start by creating a new project in Filmora and importing the video yo
 
 ![Add video to text - Filmora9](https://images.wondershare.com/filmora/article-images/add-title-effects.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983474">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Set the preferred duration of the title by dragging one of its ends to the left or right after you place it on the timeline, and then double-click on it to customize it. Click on the Advanced button once the Text tab opens and insert the text into the Input Text box.
 
 ![Add video to text - Filmora9 Advanced Editing](https://images.wondershare.com/filmora/article-images/make-text-video-advanced-text-edit.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902289/19272" target="_top" id="1902289">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902289" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902289/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Proceed to select a font and adjust the text size before deciding if you want to [animate the text](https://tools.techidaily.com/wondershare/filmora/download/). When done, you should export the title as a video file, and then import it back into your project.
@@ -90,10 +96,10 @@ Now it’s time to add the text video and the background video to the project me
 ![Add video to text - Filmora9 Compositing](https://images.wondershare.com/filmora/article-images/compositing-video-9.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975841/19272" target="_top" id="1975841">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975841" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918698/19272" target="_top" id="1918698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918698" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975841/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918698/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Click on the video that contains text to gain access to the Video tab of the Editor panel and then expand the Compositing menu. Change the Blending Mode to Multiply, and the text in the overlaying video should be filled with the parts of the footage from the video below it.
@@ -109,16 +115,10 @@ Merging text with video is equally easy in PowerPoint and Filmora, so you just h
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1328683">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1948909/19272" target="_top" id="1948909">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948909/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -142,24 +142,24 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-earn-extra-your-guide-to-joining-the-youtube-premium-club/"><u>[New] 2024 Approved Earn Extra Your Guide to Joining the YouTube Premium Club</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/new-a-curated-selection-of-top-10-luts-for-lightroom/"><u>[New] A Curated Selection of Top 10 LUTs for LightRoom</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/n-2024-enhancing-youtube-presence-with-strategic-banners/"><u>[New] In 2024, Enhancing YouTube Presence with Strategic Banners</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/n-2024-epicurean-eminence-best-online-chefs-and-cooks/"><u>[New] In 2024, Epicurean Eminence Best Online Chefs & Cooks</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/recision-in-playback-a-compreenhensive-guide-to-youtube-video-loops/"><u>[New] Precision in Playback A Compreenhensive Guide to Youtube Video Loops</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-easy-video-calls-with-googles-hangouts-on-your-android/"><u>[Updated] 2024 Approved Easy Video Calls with Google's Hangouts on Your Android</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-unveiling-youtubes-monthly-monetization-rules/"><u>[Updated] 2024 Approved Unveiling YouTube’s Monthly Monetization Rules</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-action-cam-faceoff-hero5-black-and-yis-4k-battle-revisited/"><u>[Updated] Action Cam Faceoff Hero5 Black and Yi's 4K Battle Revisited</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-the-art-of-video-editing-employing-strikethrough-for-clarity-for-2024/"><u>[Updated] The Art of Video Editing Employing Strikethrough for Clarity for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-mobilizing-money-a-complete-guide-to-youtubes-revenue-features/"><u>2024 Approved Mobilizing Money A Complete Guide to YouTube's Revenue Features</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ing-a-must-see-list-of-youtubes-top-makeup-talent-for-2024/"><u>Curating a Must-See List of YouTube's Top Makeup Talent for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/futures-palette-the-best-sci-fi-films-crafting-virtual-worlds-for-2024/"><u>Future's Palette The Best Sci-Fi Films Crafting Virtual Worlds for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-find-ispoofer-pro-activation-key-on-gionee-f3-pro-drfone-by-drfone-virtual-android/"><u>How to Find iSpoofer Pro Activation Key On Gionee F3 Pro? | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-realme-note-50-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>In 2024, How to Cast Realme Note 50 Screen to PC Using WiFi | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-ispoofer-on-infinix-note-30-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Infinix Note 30 5G? | Dr.fone</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/in-2024-leading-the-charge-in-sustainable-filmmaking/"><u>In 2024, Leading the Charge in Sustainable Filmmaking</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-master-11-key-seo-steps-to-promote-your-videos/"><u>In 2024, Master 11 Key SEO Steps to Promote Your Videos</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-transform-instagram-videos-into-mp4-with-top-free-online-tools-windowsosx/"><u>In 2024, Transform Instagram Videos Into MP4 with Top Free Online Tools [Windows/OSX]</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ling-the-best-purchasers-of-monetized-youtube-channels-for-2024/"><u>Unveiling the Best Purchasers of Monetized YouTube Channels for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-seamless-audio-transfer-best-iphone-tools-for-youtube-to-mp3/"><u>[New] 2024 Approved Seamless Audio Transfer Best iPhone Tools for YouTube-to-MP3</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-simplify-your-path-to-youtube-short-mastery/"><u>[New] 2024 Approved Simplify Your Path to YouTube Short Mastery</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-snicker-sonatas-top-10-humorous-hits/"><u>[New] 2024 Approved Snicker Sonatas Top 10 Humorous Hits</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-sonic-shakers-the-ultimate-audio-rippers-list/"><u>[New] 2024 Approved Sonic Shakers The Ultimate Audio Rippers List</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-the-interplay-of-html-css-and-javascript-in-modern-web-pages/"><u>[New] 2024 Approved The Interplay of HTML, CSS, and JavaScript in Modern Web Pages</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-top-14-youtube-titles-to-skyrocket-your-gaming-channels-popularity/"><u>[New] 2024 Approved Top 14 YouTube Titles to Skyrocket Your Gaming Channel's Popularity</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-transform-your-channel-into-a-revenue-powerhouse-with-impactful-trailers/"><u>[New] 2024 Approved Transform Your Channel Into a Revenue Powerhouse with Impactful Trailers</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-uncovering-the-truth-behind-4-second-youtube-subscriptions/"><u>[New] 2024 Approved Uncovering the Truth Behind 4-Second YouTube Subscriptions</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-unveiling-10-inspirational-workout-plans-for-video-creators/"><u>[New] 2024 Approved Unveiling 10 Inspirational Workout Plans for Video Creators</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-videography-subtitle-designer/"><u>[New] 2024 Approved Videography Subtitle Designer</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ow-to-turn-mundane-games-into-epic-scenes-for-2024/"><u>[New] How to Turn Mundane Games Into Epic Scenes for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-guide-audio-free-video-recording-methods/"><u>[Updated] 2024 Approved Guide Audio-Free Video Recording Methods</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/best-windows-video-calls-the-top-8-list-for-2024/"><u>Best Windows Video Calls The Top 8 List for 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/download-and-install-the-latest-hp-printer-drivers-on-windows-11/"><u>Download and Install the Latest HP Printer Drivers on Windows 11</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/essential-viewing-top-disneyplus-choices-for-kids-and-families-in-july-2nce/"><u>Essential Viewing: Top Disney+ Choices for Kids & Families in July 2Nce</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-infinix-hot-40i-pin-codepattern-lockpassword-by-drfone-android/"><u>How to Unlock Infinix Hot 40i PIN Code/Pattern Lock/Password</u></a></li>
+<li><a href="https://techidaily.com/how-to-upgrade-apple-iphone-15-without-losing-anything-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Upgrade Apple iPhone 15 without Losing Anything? | Dr.fone</u></a></li>
+<li><a href="https://windows11.techidaily.com/overcoming-windows-pen-pad-glitches/"><u>Overcoming Windows Pen-Pad Glitches</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/unrivaled-cloud-based-chat-platforms/"><u>Unrivaled Cloud-Based Chat Platforms</u></a></li>
 </ul></div>
 
