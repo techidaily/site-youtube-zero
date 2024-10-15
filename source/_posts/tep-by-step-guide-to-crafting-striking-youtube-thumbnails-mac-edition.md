@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Step by Step Guide to Crafting Striking YouTube Thumbnails - Mac Edition\""
-date: 2024-10-08T03:25:25.135Z
-updated: 2024-10-08T21:21:12.527Z
+date: 2024-10-09T00:26:18.169Z
+updated: 2024-10-15T03:50:12.319Z
 tags:
   - ai video
   - ai youtube
@@ -64,10 +64,10 @@ You can easily choose the frame from the video or use the preview frame button t
 ![thumbnails editor](https://images.wondershare.com/filmora/Mac-articles/thumbnails-editor.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2. Add text, shape, and image overlays
@@ -77,17 +77,17 @@ Once you’ve chosen the frame for the thumbnail, the next step would be to add 
 ![add text on thumbnail](https://images.wondershare.com/filmora/Mac-articles/add-text-on-thumbnail.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105866/7443" target="_top" id="2105866">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148638/16836" target="_top" id="2148638">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148638" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148638/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902294/19272" target="_top" id="1902294">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902294" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130887/7443" target="_top" id="2130887">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130887" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902294/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130887/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3. Add effects
@@ -95,13 +95,6 @@ Once you’ve chosen the frame for the thumbnail, the next step would be to add 
 FilmoraX has a wide range of effects that you can apply to your videos or pictures to make them look more attractive.
 
 ![filter9](https://images.wondershare.com/filmora/guide/filter-9-mac.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959759/19272" target="_top" id="1959759">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959759" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959759/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 4. Save the thumbnail
 
@@ -116,6 +109,13 @@ So, using this thumbnail maker you can easily create custom thumbnails for your 
 Hopefully, the above-mentioned steps have given you enough insight and clarity on making creative and good youtube thumbnails. Using [FilmoraX](https://tools.techidaily.com/wondershare/filmora/download/) will further simplify the process for you with its amazing tools and features!
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -140,22 +140,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-apowersoft-free-screen-recorder-review-for-2024/"><u>[New] Apowersoft Free Screen Recorder Review for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/n-2024-become-a-trending-sensation-with-these-effective-youtube-seo-strategies/"><u>[New] In 2024, Become a Trending Sensation with These Effective YouTube SEO Strategies</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/n-2024-enhance-video-production-7-best-free-sounds-for-editors/"><u>[New] In 2024, Enhance Video Production - 7 Best Free Sounds for Editors</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-the-ultimate-ipad-360-video-creation-for-facebook/"><u>[New] In 2024, The Ultimate iPad 360 Video Creation for Facebook</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-swift-skills-sharpen-your-windows-images/"><u>[New] Swift Skills Sharpen Your Windows Images</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-dominating-digital-space-top-5-youtube-tactics-revealed/"><u>[Updated] Dominating Digital Space Top 5 YouTube Tactics Revealed</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-elite-videography-the-top-tools-for-youtube-content/"><u>[Updated] In 2024, Elite Videography The Top Tools For YouTube Content</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-recording-skype-best-practices-for-pcs-and-macs/"><u>[Updated] Recording Skype Best Practices for PCs & Macs</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-the-science-of-choosing-music-for-movie-previews/"><u>[Updated] The Science of Choosing Music for Movie Previews</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-revolutionize-viewing-with-these-6-ultimate-youtube-shorts-downloader-apps/"><u>2024 Approved Revolutionize Viewing with These 6 Ultimate YouTube Shorts Downloader Apps</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/5-ways-to-restart-honor-x7b-without-power-button-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Restart Honor X7b Without Power Button | Dr.fone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ced-techniques-for-youtube-card-use/"><u>Advanced Techniques for YouTube Card Use</u></a></li>
-<li><a href="https://fox-links.techidaily.com/cutting-edge-image-vault-websites-for-2024/"><u>Cutting-Edge Image Vault Websites for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/finding-your-next-charge-ev-station-discovery-via-google-maps-tutorial/"><u>Finding Your Next Charge - EV Station Discovery via Google Maps Tutorial</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-tips-for-safeguarding-your-youtube-presence/"><u>In 2024, Tips for Safeguarding Your YouTube Presence</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/sty-subscription-a-gateway-to-better-viewing-habits-in-2024/"><u>Is Hasty Subscription a Gateway to Better Viewing Habits, In 2024</u></a></li>
-<li><a href="https://location-social.techidaily.com/simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-poco-c65-drfone-by-drfone-virtual-android/"><u>Simple and Effective Ways to Change Your Country on YouTube App Of your Poco C65 | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/hannel-aspirations-reach-and-secure-10k-views-for-youtube-partner-perks-for-2024/"><u>[New] Channel Aspirations – Reach and Secure 10K Views for YouTube Partner Perks for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-a-compre-written-in-code-deciphering-youtube-backlink-building-techniques/"><u>[New] In 2024, A Compre Written in Code Deciphering YouTube Backlink Building Techniques</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-unleash-speed-prime-biking-games-list/"><u>[New] Unleash Speed Prime Biking Games List</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-boost-your-channels-income-understanding-critical-view-thresholds-for-2024/"><u>[Updated] Boost Your Channel's Income Understanding Critical View Thresholds for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-direct-engagement-broadcasting-from-your-xbox-to-fb/"><u>[Updated] Direct Engagement Broadcasting From Your Xbox to FB</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-essential-youtube-equipment-for-starting-your-channel/"><u>[Updated] Essential YouTube Equipment For Starting Your Channel</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-the-animators-odyssey-crafting-your-own-fx-realm/"><u>[Updated] In 2024, The Animator's Odyssey Crafting Your Own FX Realm</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-key-technique-to-integrate-gopro-content-within-cohesive-spherical-videography/"><u>[Updated] Key Technique to Integrate GoPro Content Within Cohesive Spherical Videography</u></a></li>
+<li><a href="https://solve-lab.techidaily.com/accelerate-your-hevc-h265-encoding-process-proven-speeding-techniques/"><u>Accelerate Your HEVC H.265 Encoding Process - Proven Speeding Techniques</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/boosting-vfx-efficiency-with-free-lut-downloads-for-2024/"><u>Boosting VFX Efficiency with FREE LUT Downloads for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/breaking-barriers-how-to-enjoy-virtual-journeys/"><u>Breaking Barriers How to Enjoy Virtual Journeys</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-wizards-perfect-templates-for-gaming-channel-logos-for-2024/"><u>Design Wizards Perfect Templates for Gaming Channel Logos for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/t-guide-to-optimal-tripod-setup-for-high-quality-vlogs/"><u>Expert Guide to Optimal Tripod Setup for High-Quality Vlogs</u></a></li>
+<li><a href="https://techidaily.com/how-to-downgrade-apple-iphone-6s-plus-to-an-older-version-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade Apple iPhone 6s Plus to an Older Version? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-intercept-text-messages-on-samsung-galaxy-xcover-6-pro-tactical-edition-drfone-by-drfone-virtual-android/"><u>How to Intercept Text Messages on Samsung Galaxy XCover 6 Pro Tactical Edition | Dr.fone</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-excellent-ios-apps-the-ultimate-psp-emulators/"><u>In 2024, Excellent iOS Apps The Ultimate PSP Emulators</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-subscription-made-simple-building-a-user-friendly-button-for-channels/"><u>In 2024, Subscription Made Simple Building a User-Friendly Button for Channels</u></a></li>
+<li><a href="https://discover-cloud.techidaily.com/mp4-video-rotation-techniques-preserving-quality-while-turning-90-180-or-270-degrees/"><u>MP4 Video Rotation Techniques: Preserving Quality While Turning 90, 180, or 270 Degrees</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ate-picks-for-affordable-video-sbs-grabbers/"><u>Ultimate Picks for Affordable Video SBS Grabbers</u></a></li>
 </ul></div>
 

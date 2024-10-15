@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, A Step-by-Step Approach to Crafting Customized Youtube Alerts & Notifications\""
-date: 2024-10-06T17:45:48.243Z
-updated: 2024-10-09T00:15:01.012Z
+date: 2024-10-12T18:23:27.369Z
+updated: 2024-10-14T16:18:45.174Z
 tags:
   - ai video
   - ai youtube
@@ -73,16 +73,10 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 * Apply changes and exit
 
 <!-- affiliate ads begin -->
-<span id="1983549">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2148646/16836" target="_top" id="2148646">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148646" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148646/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to add YouTube annotations
@@ -96,10 +90,10 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
+  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
@@ -108,10 +102,10 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * Apply changes
@@ -153,10 +147,10 @@ No matter what kind of annotations you are using, you should never use more than
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484940/16446" target="_top" id="1484940">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484940" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484940/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -180,21 +174,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/024-approved-elevate-your-videos-youtube-trailers-through-filmora/"><u>[New] 2024 Approved Elevate Your Videos YouTube Trailers Through Filmora</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-guide-to-integrating-sound-into-presentations-powerpoint/"><u>[New] Guide to Integrating Sound Into Presentations (PowerPoint)</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/n-2024-10-best-free-youtube-channel-art-makers/"><u>[New] In 2024, 10 Best Free YouTube Channel Art Makers</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/aximize-earnings-a-three-pronged-approach-to-monitoring-youtube-revenue-for-2024/"><u>[New] Maximize Earnings A Three-Pronged Approach to Monitoring YouTube Revenue for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-expertise-in-making-screen-captures-on-ios-easier-for-2024/"><u>[Updated] Expertise in Making Screen Captures on iOS Easier for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-free-screen-recorder-for-android/"><u>[Updated] Free Screen Recorder for Android</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-choosing-the-right-video-sharing-platform-tiktok-vs-youtubes-shorts/"><u>[Updated] In 2024, Choosing the Right Video Sharing Platform TikTok vs YouTubes' Shorts?</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-professionalizing-your-youtube-income-with-universal-tech-tips/"><u>[Updated] In 2024, Professionalizing Your YouTube Income with Universal Tech Tips</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-dismantling-the-economics-of-youtubes-ambitious-shorts-fund/"><u>2024 Approved Dismantling the Economics of YouTube's Ambitious Shorts Fund</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-funnybox-simple-setup-for-content-creators/"><u>2024 Approved FunnyBox Simple Setup for Content Creators</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/2024-approved-video-wizardry-your-guide-to-the-top-10-editing-hacks/"><u>2024 Approved Video Wizardry Your Guide to the Top 10 Editing Hacks</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-international-ranks-youtube-stars-with-the-most-loyal-viewers/"><u>In 2024, International Ranks YouTube Stars With the Most Loyal Viewers</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ating-videos-sequentially-for-free-youtube-guide-for-2024/"><u>Navigating Videos Sequentially for Free - YouTube Guide for 2024</u></a></li>
-<li><a href="https://win-exceptional.techidaily.com/online-vrijetend-konvertissemijboek-veelvoudig-m1v-in-mp4-bij-movavi-gratis/"><u>Online Vrijetend Konvertissemijboek: Veelvoudig M1V in MP4 Bij Movavi Gratis</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/sion-playback-aligning-video-views-in-real-time-for-2024/"><u>Precision Playback Aligning Video Views in Real-Time for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/understanding-the-price-tag-on-meta-verification/"><u>Understanding the Price Tag on Meta Verification</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-discovering-potential-youtubes-role-in-modern-education-strategies/"><u>[New] In 2024, Discovering Potential YouTube's Role in Modern Education Strategies</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-key-techniques-boosting-video-reach-across-both-platforms-for-2024/"><u>[New] Key Techniques Boosting Video Reach Across Both Platforms for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-premier-live-tv-service-showdown-a-comparative-look/"><u>[New] Premier Live TV Service Showdown A Comparative Look</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-from-capture-to-screen-the-complete-process-of-uploading-360-vids-on-youtube-for-2024/"><u>[Updated] From Capture to Screen The Complete Process of Uploading 360 Vids on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-trailblazing-trends-the-top-5-tips-for-youtube-triumph/"><u>[Updated] In 2024, Trailblazing Trends The Top 5 Tips for YouTube Triumph</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-unlock-tiktoks-potential-with-our-sizzling-template-selection/"><u>[Updated] In 2024, Unlock TikTok’s Potential with Our Sizzling Template Selection</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-tips-for-immaculate-nighttime-photography-for-2024/"><u>[Updated] Tips for Immaculate Nighttime Photography for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-art-of-easy-story-making/"><u>2024 Approved The Art of Easy Story Making</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-navigating-the-nooks-and-crannies-of-concurrent-youtube-watching/"><u>In 2024, Navigating the Nooks and Crannies of Concurrent YouTube Watching</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-top-8-ultimate-4k-blu-ray-playback-units-reviewed/"><u>In 2024, Top 8 Ultimate 4K Blu-Ray Playback Units Reviewed</u></a></li>
+<li><a href="https://windows11.techidaily.com/unraveling-windows-10-and-11s-isdonedll-dilemmrances/"><u>Unraveling Windows 10 & 11'S ISDone.dll Dilemmrances</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"Instructional Guide  Modify Comment Accessibility on YouTube for 2024\""
-date: 2024-10-03T16:45:39.404Z
-updated: 2024-10-08T18:34:35.052Z
+date: 2024-10-08T03:47:29.335Z
+updated: 2024-10-15T00:33:11.258Z
 tags:
   - ai video
   - ai youtube
@@ -96,10 +96,10 @@ Selecting this option holds all the comments from all the users, and waits for y
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144281/7443" target="_top" id="2144281">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144281" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144281/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: Turn on or Turn off Comments for Specific Videos
@@ -123,13 +123,20 @@ From under the **Audience** section in the right window of the **Video details**
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2148129/17093" target="_top" id="2148129">
-  <img src="//a.impactradius-go.com/display-ad/17093-2148129" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148129/17093" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
 
@@ -148,10 +155,16 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1630055">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### 4\. If I turn comments off and back on again, will the old comments come back?
@@ -167,13 +180,6 @@ That depends on the nature of the comments. For instance, if you modify the sett
 It is easy to understand **how to turn on comments on YouTube**. The best thing is, the comments are enabled by default, and if you don’t need them, you can simply disable them by configuring the videos or the entire channel as ‘Made for kids’. If the comments on any video were enabled previously, and are disabled later on, the existing comments automatically disappear. They reappear when the comments on the video are reenabled.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -196,17 +202,24 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/n-2024-crafting-a-powerful-content-strategy-uncover-the-best-5-youtube-marketing-tactics/"><u>[New] In 2024, Crafting a Powerful Content Strategy Uncover the Best 5 YouTube Marketing Tactics</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-mastering-mobile-technology-for-dji-visual-storytelling/"><u>[New] Mastering Mobile Technology for DJi Visual Storytelling</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/nveiling-the-process-of-identifying-youtube-audience/"><u>[New] Unveiling the Process of Identifying YouTube Audience</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-unlocking-youtubes-potential-subscriber-triumph-tactics/"><u>[Updated] 2024 Approved Unlocking YouTube's Potential Subscriber Triumph Tactics</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-in-2024-essential-tv-gear-for-premium-live-broadcasts/"><u>[Updated] In 2024, Essential TV Gear for Premium Live Broadcasts</u></a></li>
-<li><a href="https://extra-information.techidaily.com/2024-approved-composing-captivating-cinematic-synopses/"><u>2024 Approved Composing Captivating Cinematic Synopses</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-the-pathway-to-creating-high-quality-youtube-ads-on-a-dime/"><u>2024 Approved The Pathway to Creating High-Quality YouTube Ads on a Dime</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-nokia-c02-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Nokia C02 | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-motorola-moto-e13-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Motorola Moto E13? | Dr.fone</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/in-2024-bp550-review-latest-tech-advances/"><u>In 2024, BP550 Review Latest Tech Advances</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-poco-c51-drfone-by-drfone-virtual-android/"><u>In 2024, Hacks to do pokemon go trainer battles For Poco C51 | Dr.fone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/g-fx-magic-a-novices-step-into-animated-worlds-for-2024/"><u>Making FX Magic A Novice's Step Into Animated Worlds for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-blending-bits-volume-manipulation-mastery-with-reaper/"><u>[New] 2024 Approved Blending Bits Volume Manipulation Mastery with Reaper</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-top-picks-for-personalizing-mbp-screens-with-skins/"><u>[New] 2024 Approved Top Picks for Personalizing MBP Screens with Skins</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-how-to-engage-listeners-through-instagram-and-podcasts/"><u>[Updated] 2024 Approved How To Engage Listeners Through Instagram & Podcasts</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-tailored-trends-the-pathway-to-a-specialized-youtube-niche/"><u>[Updated] 2024 Approved Tailored Trends The Pathway to a Specialized Youtube Niche</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-tips-for-effective-tripod-usage-in-video-blogging/"><u>[Updated] 2024 Approved Tips for Effective Tripod Usage in Video Blogging</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-youtube-profile-picture-templates-free-downloads/"><u>[Updated] 2024 Approved YouTube Profile Picture Templates – Free Downloads!</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-amazon-prime-videos-social-stardom-on-twitter-for-2024/"><u>[Updated] Amazon Prime Video's Social Stardom on Twitter for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-analyzing-the-post-upload-process-in-youtubes-ecosystem-for-2024/"><u>[Updated] Analyzing the Post-Upload Process in YouTube's Ecosystem for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-master-the-art-of-recording-youtube-videos-without-spending/"><u>[Updated] In 2024, Master the Art of Recording YouTube Videos Without Spending</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-peak-creativity-youtube-fellowship/"><u>[Updated] In 2024, Peak Creativity YouTube Fellowship</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-a-comprehensive-guide-to-the-12-superior-vlogging-cameras/"><u>2024 Approved A Comprehensive Guide to the 12 Superior Vlogging Cameras</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-youtube-conversion-guide-top-8-picks-for-avi-enthusiasts/"><u>2024 Approved YouTube Conversion Guide Top 8 Picks for AVI Enthusiasts</u></a></li>
+<li><a href="https://fox-links.techidaily.com/a-comprehensible-guide-to-softening-sound-via-lumafusion-for-2024/"><u>A Comprehensible Guide to Softening Sound via Lumafusion for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/digiartymacdvdand/"><u>Digiarty製Mac向けDVDコピー&ビデオ変換ソフトウェア最新版が登場</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-iphone-12-online-here-are-6-easy-ways-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 12 Online? Here are 6 Easy Ways</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-strategic-insightfulness-comparing-your-channel-to-competitors-crafts/"><u>In 2024, Strategic Insightfulness Comparing Your Channel to Competitors' Crafts</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/by-step-guide-to-youtube-sound-placement/"><u>Step-by-Step Guide to Youtube Sound Placement</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/unlock-your-samsung-galaxy-a25-5gs-potential-the-top-20-lock-screen-apps-you-need-to-try-by-drfone-android/"><u>Unlock Your Samsung Galaxy A25 5Gs Potential The Top 20 Lock Screen Apps You Need to Try</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/update-hp-scanjet-drivers-compatible-with-windows-1087-free-download/"><u>Update HP Scanjet Drivers: Compatible with Windows 10/8/7 - Free Download</u></a></li>
 </ul></div>
 

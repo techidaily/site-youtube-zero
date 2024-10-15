@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Overcoming the Invisible Screen Hurdle  YouTube Fixes\""
-date: 2024-10-06T22:02:59.214Z
-updated: 2024-10-08T20:09:21.110Z
+date: 2024-10-11T21:25:38.179Z
+updated: 2024-10-14T20:09:56.048Z
 tags:
   - ai video
   - ai youtube
@@ -94,10 +94,10 @@ After launching the web browser (Google Chrome is used here for example), go to 
 ![clear google chrome cache](https://images.wondershare.com/filmora/article-images/clear-google-chrome-cache.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144308/7443" target="_top" id="2144308">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144308" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144308/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Switch between the **Basic** and **Advanced** tabs on the **Clear browsing data** box to choose the records that you want to delete, and then choose your preferred duration of the records from the **Time range** drop-down list.
@@ -117,10 +117,10 @@ Turn off the switch for each of the installed extensions to check if the issue i
 ![disable google chrome extension](https://images.wondershare.com/filmora/article-images/disable-google-chrome-extensions.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1175223/12108" target="_top" id="1175223">
-  <img src="//a.impactradius-go.com/display-ad/12108-1175223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
+  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1175223/12108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Note:** If this solution works, you can try enabling the extensions one at a time, and check turning on which one causes **YouTube video black screen**. Once the culprit extension is found, you can click **Remove** to get rid of it altogether.
@@ -136,13 +136,6 @@ If the video is visible on a different web browser, probably the default one tha
 • Click to select the browser from the list of installed apps (Google Chrome here) and select **Uninstall** from above the list.
 
 • Follow the on-screen instructions from there to remove the web browser from your PC. Next, use Microsoft Edge (or any other browser) to download and install a fresh copy of Google Chrome and see if the issue is fixed
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948905/19272" target="_top" id="1948905">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948905" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948905/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2\. ISP or Internet Speed Solution(s)
 
@@ -170,6 +163,13 @@ Click **Yes** on the **User Account Control** confirmation box, and in the **Com
 
 ![use command to fix YouTube black screen](https://images.wondershare.com/filmora/article-images/use-command-to-fix-youtube-black-screen.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Try opening the YouTube video again and see if the issue is fixed
 
 **Solution 2: Update the Graphic Card Driver**
@@ -186,13 +186,6 @@ Click **Search automatically for drivers** from the next screen that appears and
 
 **Note:** If your PC has multiple graphic cards installed in it, you will have to follow this procedure for each of them individually.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885928/19272" target="_top" id="1885928">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885928" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885928/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3: How to Troubleshoot YouTube Black Screen on Mobile?
 
 If you wish to watch online videos on your smartphone, but experience **YouTube video black screen**, the process of fixing the issue on the phones is comparatively simple. The steps that are given below explain the procedure:
@@ -208,10 +201,17 @@ Tap it and then select **Clear data and Clear cache**. Relaunch YouTube and see 
 ![fix YouTube black screen on Android](https://images.wondershare.com/filmora/article-images/fix-youtube-video-black-screen-android.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043597/7443" target="_top" id="2043597">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043597" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144278/7443" target="_top" id="2144278">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144278" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043597/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144278/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959773/19272" target="_top" id="1959773">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959773" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959773/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Troubleshoot YouTube Black Screen On iOS
@@ -243,22 +243,21 @@ There could be several reasons for **YouTube black screen**, and depending on th
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/voiding-the-common-path-the-route-to-unique-streamer-identities-for-2024/"><u>[New] Avoiding the Common Path The Route to Unique Streamer Identities for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-blurring-the-line-secure-video-content-with-smoother-images-for-2024/"><u>[New] Blurring the Line Secure Video Content with Smoother Images for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/uilding-your-own-youtube-organization-toolkit-the-watch-later-way-for-2024/"><u>[New] Building Your Own YouTube Organization Toolkit The Watch Later Way for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2017-data-overload-infographics-and-surprising-yt-stats-for-2024/"><u>[Updated] 2017 Data Overload Infographics & Surprising YT Stats for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-flavorful-footage-kitchen-film-making-101/"><u>[Updated] 2024 Approved Flavorful Footage Kitchen Film-Making 101</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-from-oven-to-screen-cooking-videos-unveiled/"><u>[Updated] From Oven to Screen Cooking Videos Unveiled</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-how-to-amplify-facebook-stories-with-music-elements/"><u>[Updated] In 2024, How to Amplify Facebook Stories with Music Elements</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-understanding-youtube-shorts-earning-potential/"><u>[Updated] In 2024, Understanding YouTube Shorts Earning Potential</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/2024-approved-10-groundbreaking-final-cut-pro-extensions/"><u>2024 Approved 10 Groundbreaking Final Cut Pro Extensions</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/best-budget-friendly-stopwatch-service-for-2024/"><u>Best Budget-Friendly Stopwatch Service for 2024</u></a></li>
-<li><a href="https://win11.techidaily.com/cracking-the-code-locating-blue-screens-in-log-files/"><u>Cracking the Code: Locating Blue Screens in Log Files</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ng-into-trending-video-exchange/"><u>Delving Into Trending Video Exchange</u></a></li>
-<li><a href="https://win-exclusive.techidaily.com/guide-on-halting-notification-pop-ups-and-adblock-implementation-in-google-chrome/"><u>Guide on Halting Notification Pop-Ups & Adblock Implementation in Google Chrome</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-finding-your-custom-scored-youtube-tunes/"><u>In 2024, Finding Your Custom-Scored YouTube Tunes</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-understanding-apples-audio-content-guidelines/"><u>In 2024, Understanding Apple’s Audio Content Guidelines</u></a></li>
-<li><a href="https://driver-download.techidaily.com/official-nvidia-geforce-rtx-3070-ti-drivers-for-windows-1187-free-download/"><u>Official NVIDIA GeForce RTX 3070 Ti Drivers for Windows 11/8/7 – Free Download</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-honor-70-lite-5g-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Honor 70 Lite 5G? | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-top-tech-stream-cam-gear-reviewed-for-youtube-and-facebook-use/"><u>[New] 2024 Approved Top Tech Stream Cam Gear Reviewed for YouTube & Facebook Use</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/levate-your-video-guide-with-annotations-on-youtube/"><u>[New] Elevate Your Video Guide with Annotations on YouTube</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-become-a-freelance-transcriber-tips-and-tricks-for-youtube-content/"><u>[New] In 2024, Become a Freelance Transcriber Tips and Tricks for YouTube Content</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-discover-how-to-get-sounds-from-twitter-vids/"><u>[New] In 2024, Discover How to Get Sounds From Twitter Vids</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-enhancing-your-youtube-profiles-a-guide-to-crafting-descriptions/"><u>[New] In 2024, Enhancing Your YouTube Profiles A Guide to Crafting Descriptions</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/umpstart-your-channel-key-hashtags-for-6-figure-impact-for-2024/"><u>[New] Jumpstart Your Channel Key Hashtags for 6-Figure Impact for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ecrets-to-successful-youtube-filmmaking-with-pc-editing-software-for-2024/"><u>[New] Secrets to Successful YouTube Filmmaking with PC Editing Software for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/tep-by-step-lyric-video-crafting-with-lyric-video-maker-for-2024/"><u>[New] Step-by-Step Lyric Video Crafting with Lyric Video Maker for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-navigating-high-dynamic-range-photography-with-ps/"><u>[Updated] Navigating High Dynamic Range Photography with PS</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-unlock-creative-storytelling-the-art-of-jump-cutting/"><u>2024 Approved Unlock Creative Storytelling The Art of Jump Cutting</u></a></li>
+<li><a href="https://android-location.techidaily.com/easy-ways-to-manage-your-vivo-s17e-location-settings-drfone-by-drfone-virtual/"><u>Easy Ways to Manage Your Vivo S17e Location Settings | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-rapid-response-sharing-plays-with-pizzazz/"><u>In 2024, Rapid Response Sharing Plays with Pizzazz</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-solutions-to-spy-on-vivo-y78-5g-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>In 2024, Solutions to Spy on Vivo Y78 5G with and without jailbreak | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>In 2024, Unova Stone Pokémon Go Evolution List and How Catch Them For Apple iPhone 7 | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/solved-warning-camera-failed-on-vivo-y78plus-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Solved Warning Camera Failed on Vivo Y78+ | Dr.fone</u></a></li>
+<li><a href="https://win-exceptional.techidaily.com/step-by-step-tutorial-on-configuring-cron-jobs-for-sql-server-backups-in-2016/"><u>Step-by-Step Tutorial on Configuring Cron Jobs for SQL Server Backups in 2016</u></a></li>
 </ul></div>
 

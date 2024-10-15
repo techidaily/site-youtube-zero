@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Free DIY Approaches to Design Your Own YouTube Cards"
-date: 2024-10-07T22:44:43.647Z
-updated: 2024-10-08T21:28:07.480Z
+date: 2024-10-08T06:27:09.109Z
+updated: 2024-10-15T09:18:46.987Z
 tags:
   - ai video
   - ai youtube
@@ -83,10 +83,10 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094479/7443" target="_top" id="2094479">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094479" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094479/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -125,10 +125,10 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044586/7443" target="_top" id="2044586">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044586" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044586/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -152,19 +152,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/levate-engagement-discover-these-top-12-techniques-for-video-success/"><u>[New] Elevate Engagement - Discover These Top 12 Techniques for Video Success</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-discover-the-lesser-known-page-picks-for-memelings/"><u>[New] In 2024, Discover the Lesser-Known Page Picks for Memelings</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-the-art-of-adding-gifs-to-instagram-posts-4-easy-steps/"><u>[New] The Art of Adding GIFs to Instagram Posts (4 Easy Steps)</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-top-tips-for-obtaining-pristine-images-at-no-cost/"><u>[New] Top Tips for Obtaining Pristine Images at No Cost</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/nderstanding-the-criteria-for-youtube-comment-spotlighting/"><u>[New] Understanding the Criteria for YouTube Comment Spotlighting</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/hats-the-real-distinction-between-youtube-and-dailymention/"><u>[New] What's the Real Distinction Between YouTube and DailyMention?</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-high-quality-video-webcams-top-5-combos-with-sound/"><u>[Updated] 2024 Approved High-Quality Video Webcams - Top 5 Combo's With Sound</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-top-gear-for-youtube-beginners-essential-tech-guide/"><u>2024 Approved Top Gear for YouTube Beginners Essential Tech Guide</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-understanding-and-utilizing-igtv-for-enhanced-engagement/"><u>2024 Approved Understanding and Utilizing IGTV for Enhanced Engagement</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ent-online-broadcasting-houses/"><u>Affluent Online Broadcasting Houses</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/camstudios-screen-recorder-a-deep-dive-into-its-latest-features-for-2024/"><u>CamStudio's Screen Recorder A Deep Dive Into Its Latest Features for 2024</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/effortlessly-transform-your-aiff-files-into-ogg-format-at-no-cost/"><u>Effortlessly Transform Your AIFF Files Into Ogg Format at No Cost</u></a></li>
-<li><a href="https://ai-voice-clone.techidaily.com/in-2024-top-4-ways-of-instagram-video-promotion/"><u>In 2024, Top 4 Ways of Instagram Video Promotion</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ize-online-presence-video-embellishment-with-logos-and-watermarks-for-2024/"><u>Optimize Online Presence Video Embellishment with Logos and Watermarks for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/-top-notch-free-editors-to-enhance-your-youtube-content-efficiency-for-2024/"><u>[New] 8 Top-Notch Free Editors to Enhance Your YouTube Content Efficiency for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/fficient-video-cutting-techniques-to-boost-your-content-for-2024/"><u>[New] Efficient Video Cutting Techniques to Boost Your Content for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/fficiently-upload-and-render-youtube-videos-with-precision-for-2024/"><u>[New] Efficiently Upload and Render YouTube Videos with Precision for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/amebit-alternatives-for-finding-youtube-sponsorships/"><u>[New] FameBit Alternatives for Finding YouTube Sponsorships</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-how-to-screen-record-on-iphone-in-an-easy-way-in-2024/"><u>[New] How to Screen Record on Iphone in An Easy Way, In 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-enjoy-uninterrupted-youtube-with-effective-adblocking-methods/"><u>[New] In 2024, Enjoy Uninterrupted YouTube with Effective Adblocking Methods</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-time-traveling-through-retro-filmmaking-techniques/"><u>[New] In 2024, Time Traveling Through Retro Filmmaking Techniques</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-your-ultimate-guide-to-streaming-google-meet-on-youtube/"><u>[Updated] 2024 Approved Your Ultimate Guide to Streaming Google Meet on YouTube</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-audio-silencing-for-clearer-videographies-freepremium/"><u>2024 Approved Audio Silencing for Clearer Videographies (Free/Premium)</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-premium-cloud-apps-for-android-the-most-reliable/"><u>2024 Approved Premium Cloud Apps for Android The Most Reliable</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/elevate-home-videography-high-quality-webcam-steps/"><u>Elevate Home Videography - High-Quality WebCam Steps</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/20880876-how-to-embed-a-youtube-playlist-on-a-website-for-2024/"><u>How to Embed A YouTube Playlist On a Website for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-crafting-revenue-in-20-second-chunks-youtube-shorts-magic/"><u>In 2024, Crafting Revenue in 20-Second Chunks YouTube Shorts Magic</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-hidden-treasures-non-top-films-that-shine/"><u>In 2024, Hidden Treasures Non-Top Films That Shine</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-the-mini-video-medley-where-does-your-audience-flock-youtubes-or-tiktoks/"><u>In 2024, The Mini-Video Medley Where Does Your Audience Flock? YouTubes or TikToks?</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/hpad-equipment-the-beginners-checklist-for-2024/"><u>Launchpad Equipment The Beginner's Checklist for 2024</u></a></li>
+<li><a href="https://discover-hacks.techidaily.com/losung-fur-gerate-startfehler-mit-code-10/"><u>Lösung Für Geräte-Startfehler Mit Code 10</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/navigating-the-updated-editor-in-dall-e-3-features-and-fixes-needed/"><u>Navigating the Updated Editor in DALL-E 3: Features & Fixes Needed</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/quick-guide-perfecting-instagram-collage-formats/"><u>Quick Guide Perfecting Instagram Collage Formats</u></a></li>
 </ul></div>
 

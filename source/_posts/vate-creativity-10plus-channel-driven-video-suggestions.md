@@ -1,7 +1,7 @@
 ---
 title: "\"Cultivate Creativity  10+ Channel-Driven Video Suggestions\""
-date: 2024-10-04T16:21:33.273Z
-updated: 2024-10-08T19:10:33.395Z
+date: 2024-10-12T04:03:35.116Z
+updated: 2024-10-15T11:34:40.054Z
 tags:
   - ai video
   - ai youtube
@@ -85,13 +85,6 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 
 **Speed Round:** You think you are good at something? Well, why not try to do it as quickly as possible? Complete a round of video games as quickly as you can. Do a MasterChef mystery box challenge in your kitchen. [Run from one subway station to the next](https://www.youtube.com/watch?v=PH%5FZ8Ghuq6E), beating the tube itself.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **4\. Show Your Talent**
 
 **Make Music:** An original song, a cover, or a remix, YouTube is a fantastic platform to showcase your musical talents. Don’t forget, some of the world’s top artists began their journey on YouTube. You might be next to join the [discovered on YouTube list](https://www.teenvogue.com/story/best-artists-discovered-on-youtube).
@@ -101,10 +94,16 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
  **Unusual skill:** Do you have a party trick that you would love to show everyone, but don’t have a party to go to? YouTube is the place for you. Juggle, do a magic trick, dance like Christopher Walkens, whatever unusual skill you have, share it on camera, and get the accolades you so deserve.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1793213">
+					<video width="864" height="1296" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **5\. Explore Your Surroundings**
@@ -131,6 +130,13 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 
 **Tutorial:** Is there software you use particularly well? Are you skilled in the kitchen or the garage? Can you install appliances without reading the instructions? Give a step-by-step tutorial in completing a project.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **7\. Share Your Beliefs and Lifestyle**
 
 **Motivation:** Whatever you are pursuing, know that there are many on the same path as you. If you are an aspiring dancer create content for those that are with you on the journey. Encourage them and speak authentically about the accomplishments to come. Motivation is the energy that is in circulation. The more you send out into the universe, the more will come back to you.
@@ -154,10 +160,10 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 **Unboxing:** Got something new from Amazon? Before you open it, turn on your camera. Unboxing is an easy YouTube video idea that allows your viewers who are considering buying the item to better understand whether it is in fact the right purchase for them.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880972/19272" target="_top" id="1880972">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880972" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049382/7443" target="_top" id="2049382">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049382" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880972/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049382/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **8\. Nurture Your Curiosity**
@@ -211,19 +217,6 @@ As you can see, coming up with ideas doesn’t have to be an agonizing drag. It�
 
 **“Best of” Video:** Select the best scenes from your favorite actor or the best plays from your favorite athlete and compile it into a video that highlights all the best moments.
 
-<!-- affiliate ads begin -->
-<span id="2135472">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **10\. Create Entertainment**
 
 **Fails:** Don’t get embarrassed, get views. Embrace your shortcomings and accept that everybody has failed at something. Be careful and don’t get hurt too bad though.
@@ -256,6 +249,13 @@ I bet you are bursting and ready to create your next video. Onwards! Remember, w
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -277,15 +277,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/apture-the-action-crafting-best-in-class-sports-films/"><u>[New] Capture the Action Crafting Best-in-Class Sports Films</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ut-cost-unlock-creativity-step-by-step-guide-to-professional-green-screen-effects-from-top-4-channels-for-2024/"><u>[New] Cut Cost, Unlock Creativity Step-by-Step Guide to Professional Green Screen Effects From Top 4 Channels for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-the-beat-weavers-treasury-high-res-dj-visual-samples/"><u>[Updated] 2024 Approved The Beat Weaver's Treasury High-Res DJ Visual Samples</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-audience-engagement-meets-technology-four-recording-ways-on-facebook/"><u>[Updated] Audience Engagement Meets Technology Four Recording Ways on Facebook</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-improve-your-youtube-description-using-amazing-templates/"><u>[Updated] Improve Your YouTube Description Using Amazing Templates</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-apple-iphone-14-pro-drfone-by-drfone-virtual-ios/"><u>How does the stardust trade cost In pokemon go On Apple iPhone 14 Pro? | Dr.fone</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-resolve-itel-p40plus-screen-not-working-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Resolve Itel P40+ Screen Not Working | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/iphone-6s-plus-backup-password-never-set-but-still-asking-heres-the-fix-drfone-by-drfone-ios/"><u>iPhone 6s Plus Backup Password Never Set But Still Asking? Heres the Fix | Dr.fone</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/mastering-motherboards-and-more-at-toms-hardware-corner/"><u>Mastering Motherboards & More at Tom’s Hardware Corner</u></a></li>
-<li><a href="https://extra-support.techidaily.com/mastering-the-microscopic-views-in-teams-for-2024/"><u>Mastering the Microscopic Views in Teams for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nalyzing-the-frequency-of-youtube-payments/"><u>[New] Analyzing the Frequency of YouTube Payments</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/he-core-kit-video-equipment-every-creator-needs-for-2024/"><u>[New] The Core Kit Video Equipment Every Creator Needs for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/he-journey-to-profitable-youtube-video-creation/"><u>[New] The Journey to Profitable YouTube Video Creation</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-enhance-your-channels-image-adding-watermarks-and-logos-to-video-posts/"><u>[Updated] 2024 Approved Enhance Your Channel's Image Adding Watermarks & Logos to Video Posts</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-audio-visual-innovators-group/"><u>[Updated] Audio-Visual Innovators Group</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-4-creative-ways-to-insert-youtube-content-in-presentations/"><u>[Updated] In 2024, 4 Creative Ways to Insert YouTube Content in Presentations</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-step-by-step-tutorial-download-youtube-videos-in-pieces/"><u>[Updated] In 2024, Step-by-Step Tutorial Download YouTube Videos in Pieces</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-the-ultimate-playlist-in-10-seconds-youtube-shorts-explained/"><u>[Updated] In 2024, The Ultimate Playlist in 10 Seconds YouTube Shorts Explained</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/hering-digital-domination-a-deep-dive-into-directors-videos-for-2024/"><u>Deciphering Digital Domination A Deep Dive Into Directors' Videos for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ting-gameplay-streaming-mastery-for-youtubers-for-2024/"><u>Elevating Gameplay Streaming Mastery for YouTubers for 2024</u></a></li>
+<li><a href="https://win-dash.techidaily.com/get-the-latest-dolby-driver-updates-now-compatible-with-windows-111081/"><u>Get the Latest Dolby Driver Updates Now - Compatible with Windows 11/10/8.1</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/hidden-whatsapp-gems-top-tricks-to-enhance-your-messaging-experience-for-2024/"><u>Hidden WhatsApp Gems Top Tricks to Enhance Your Messaging Experience for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/how-to-resolve-msodll-file-missing-error-on-your-computer/"><u>How to Resolve 'mso.dll File Missing' Error on Your Computer</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-aerial-vistas-at-their-best-xiaomi-drone-4k-analysis/"><u>In 2024, Aerial Vistas at Their Best – Xiaomi Drone 4K Analysis</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/is-it-possible-to-use-miracast-with-apple-iphone-7-plus-drfone-by-drfone-ios/"><u>Is it Possible to Use Miracast with Apple iPhone 7 Plus? | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/rewind-revolution-iphones-time-turning-ability-for-2024/"><u>Rewind Revolution IPhone's Time-Turning Ability for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/solving-display-issues-tips-for-correcting-color-shifts-and-visual-distortions-on-your-pc-monitor/"><u>Solving Display Issues: Tips for Correcting Color Shifts & Visual Distortions on Your PC Monitor</u></a></li>
+<li><a href="https://some-skills.techidaily.com/techniques-for-smooth-audio-amplification-in-lumafusion-for-2024/"><u>Techniques for Smooth Audio Amplification in Lumafusion for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/unveiling-amds-advanced-artificial-intelligence-chip-in-new-asus-rog-zephyrus-g16-laptop/"><u>Unveiling AMD's Advanced Artificial Intelligence Chip in New ASUS ROG Zephyrus G16 Laptop</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] DIY Photography Support Systems"
-date: 2024-10-02T16:11:52.129Z
-updated: 2024-10-09T04:47:08.202Z
+date: 2024-10-13T10:24:26.893Z
+updated: 2024-10-14T22:18:26.906Z
 tags:
   - ai video
   - ai youtube
@@ -42,10 +42,10 @@ Wondershare Filmora has the best video stabilization tool is your videos have a 
 Here are 3 of our favorite DIY tripods.
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1175223/12108" target="_top" id="1175223">
-  <img src="//a.impactradius-go.com/display-ad/12108-1175223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1175223/12108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **DIY smartphone tripod using binder clips or hair clips**
@@ -63,26 +63,26 @@ Here it is with binder clips:
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1915810/19272" target="_top" id="1915810">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915810" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915810/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **DIY adjustable tripod using books and a towel**
 
@@ -100,13 +100,6 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 4. Put your camera on top of the books.
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
@@ -138,6 +131,13 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094482/7443" target="_top" id="2094482">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -159,19 +159,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-lessons.techidaily.com/new-color-dynamics-bringing-artistic-vision-to-life/"><u>[New] Color Dynamics Bringing Artistic Vision to Life</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-motorcycle-video-magic-best-cam-hats-of-2023-selection/"><u>[New] Motorcycle Video Magic Best Cam Hats of 2023 Selection</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-cut-costs-boost-creativity-learn-the-secrets-of-green-screen-artistry-from-4-leading-educators/"><u>[Updated] Cut Costs, Boost Creativity Learn the Secrets of Green Screen Artistry From 4 Leading Educators</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-swift-comment-removal-on-youtube-a-practical-guide/"><u>[Updated] Swift Comment Removal on YouTube A Practical Guide</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ing-youtube-premium-what-makes-it-worth-the-price-for-2024/"><u>Choosing YouTube Premium What Makes It Worth the Price for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/guide-simple-pour-transformer-des-fichiers-mkv-en-disques-dvd-gratuits-a-laide-de-winx-dvd-author-sous-windows-10-8-ou/"><u>Guide Simple Pour Transformer Des Fichiers MKV en Disques DVD Gratuits À L'aide De WinX DVD Author Sous Windows 10, 8 Ou</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-the-pathway-to-pro-youtube-earnings-on-every-device/"><u>In 2024, The Pathway to Pro Youtube Earnings on Every Device</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-top-10-samsung-galaxy-s23-ultra-android-sim-unlock-apk-by-drfone-android/"><u>In 2024, Top 10 Samsung Galaxy S23 Ultra Android SIM Unlock APK</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-wondering-the-best-alternative-to-hola-on-oneplus-ace-3-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>In 2024, Wondering the Best Alternative to Hola On OnePlus Ace 3? Here Is the Answer | Dr.fone</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/mastering-sonic-modifications-the-5-most-popular-tools-for-2024/"><u>Mastering Sonic Modifications The 5 Most Popular Tools for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ize-your-youtube-content-for-maximum-viewership-and-engagement/"><u>Optimize Your YouTube Content for Maximum Viewership and Engagement</u></a></li>
-<li><a href="https://techidaily.com/remove-google-frp-lock-on-vivo-v29e-by-drfone-android-unlock-remove-google-frp/"><u>Remove Google FRP lock on Vivo V29e</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/op-ten-accelerating-youtube-sectors-of-thought/"><u>The Top Ten Accelerating YouTube Sectors of Thought</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/windows-sound-system-enhancement-through-drivers-update-tutorial/"><u>Windows Sound System Enhancement Through Drivers Update Tutorial</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nveiling-carryminatis-channel-economics-ajey/"><u>[New] Unveiling CarryMinati's Channel Economics (Ajey)</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-enjoy-a-stream-of-nine-complete-christmas-capsules-on-youtube-for-2024/"><u>[Updated] Enjoy a Stream of Nine Complete Christmas Capsules on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-solving-youtube-pixel-monotony-a-quick-guide/"><u>[Updated] In 2024, Solving YouTube Pixel Monotony A Quick Guide</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-your-portal-to-successful-online-marketing-our-showcase-of-over-50-free-banners-awaits-you/"><u>2024 Approved Your Portal to Successful Online Marketing - Our Showcase of Over 50 Free Banners Awaits You!</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/boost-your-coding-skills-merging-chatgpt-functionality-in-vs-code/"><u>Boost Your Coding Skills: Merging ChatGPT Functionality in VS Code</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/communicative-capability-giving-prompts-meaningful-responses/"><u>Communicative Capability: Giving Prompts Meaningful Responses</u></a></li>
+<li><a href="https://driver-download.techidaily.com/get-the-latest-logitech-m525-software-and-drivers-free-downloads/"><u>Get the Latest Logitech M525 Software & Drivers - Free Downloads</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-5-solutions-for-zte-unlock-without-password-by-drfone-android/"><u>In 2024, 5 Solutions For ZTE Unlock Without Password</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-optimizing-youtube-thumbnails-for-better-clickthrough-rates/"><u>In 2024, Optimizing YouTube Thumbnails for Better Clickthrough Rates</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-smart-shopping-top-7-mirrorless-cameras-under-1000/"><u>In 2024, Smart Shopping Top 7 Mirrorless Cameras Under $1,000</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-splitscreen-proeditor/"><u>In 2024, SplitScreen ProEditor</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-ultimate-guide-from-samsung-galaxy-s24plus-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide from Samsung Galaxy S24+ FRP Bypass</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-6-best-free-daw-software-for-beginners-to-use/"><u>New 6 Best Free DAW Software for Beginners to Use</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/preload-the-end-diastolic-volume-which-stretches-the-ventricles-to-their-greatest-geometric-dimensions/"><u>Preload (the End-Diastolic Volume, Which Stretches the Ventricles to Their Greatest Geometric Dimensions)</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/top-10-airplay-apps-in-vivo-y100-for-streaming-drfone-by-drfone-android/"><u>Top 10 AirPlay Apps in Vivo Y100 for Streaming | Dr.fone</u></a></li>
 </ul></div>
 

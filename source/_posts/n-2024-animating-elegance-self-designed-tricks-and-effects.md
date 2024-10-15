@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Animating Elegance  Self-Designed Tricks & Effects\""
-date: 2024-10-08T00:24:25.263Z
-updated: 2024-10-08T17:44:30.683Z
+date: 2024-10-10T16:42:51.929Z
+updated: 2024-10-14T17:49:47.095Z
 tags:
   - ai video
   - ai youtube
@@ -56,10 +56,10 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 On this YouTube channel, motion graphics specialist Matt offers free animation tutorials using a variety of programs including Adobe After Effects and Cinema 4D. His lessons are for a range of skill levels, from beginner to advanced. If you are just starting out then Mt.Mograph is a great resource.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **[Richard Harrington on Lynda](https://www.lynda.com/Rich-Harrington/120-1.html)**
@@ -69,16 +69,10 @@ Lynda isn’t free, but the 10-day free trial period is definitely long enough f
 What’s great about this course is that it assumes you have no animation experience, and it walks you through the main thing a lot of YouTubers want to learn animation for – creating an animated logo.
 
 <!-- affiliate ads begin -->
-<span id="1975503">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **[Bloop Animation](https://www.bloopanimation.com/)**
@@ -86,10 +80,10 @@ What’s great about this course is that it assumes you have no animation experi
  Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918661/19272" target="_top" id="1918661">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918661" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918661/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **[Video Copilot](http://www.videocopilot.net/)**
@@ -99,10 +93,10 @@ This site has a huge number of free After Effects tutorials. There are basic int
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -126,20 +120,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/new-2024-approved-discovering-the-ultimate-gopro-camera-max-or-hero-11/"><u>[New] 2024 Approved Discovering The Ultimate GoPro Camera Max or Hero 11?</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-earning-big-on-youtube-shorts-must-haves-opportunities-and-more/"><u>[Updated] 2024 Approved Earning Big on YouTube Shorts Must-Haves, Opportunities and More</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-superior-ai-photo-cutting-master/"><u>[Updated] 2024 Approved Superior AI Photo Cutting Master</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-youtube-streams-optimal-webm-converters-ranked/"><u>[Updated] 2024 Approved YouTube Streams Optimal WebM Converters Ranked!</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/updated-crafting-compelling-podcast-cliffhangers/"><u>[Updated] Crafting Compelling Podcast Cliffhangers</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-elevate-engagement-enhancing-videos-with-pro-editing-skills/"><u>[Updated] Elevate Engagement Enhancing Videos with Pro Editing Skills</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-enduring-removal-protocol-say-no-to-youtube-shorts/"><u>[Updated] Enduring Removal Protocol Say No to YouTube Shorts</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-ideal-mics-for-bloggers-educators-and-entertainment-clips/"><u>[Updated] In 2024, Ideal Mics for Bloggers, Educators, & Entertainment Clips</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-sculpt-comical-visuals-for-digital-sharing/"><u>2024 Approved Sculpt Comical Visuals for Digital Sharing</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/enhance-your-pdfs-with-6-advanced-gpt-applications/"><u>Enhance Your PDFs with 6 Advanced GPT Applications</u></a></li>
-<li><a href="https://driver-download.techidaily.com/1722971391060-get-the-latest-samsung-ve-driver-software-free-now/"><u>Get the Latest Samsung ˈɛvə Driver Software Free Now!</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-tap-into-audience-desires-strategies-for-video-templates/"><u>In 2024, Tap Into Audience Desires Strategies for Video Templates</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ring-youtube-brand-partnerships-with-famebit-tools-for-2024/"><u>Mastering YouTube Brand Partnerships with FameBit Tools for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/shockingly-fast-crafting-a-google-image-collaboration/"><u>Shockingly Fast Crafting a Google Image Collaboration</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/the-ultimate-choice-for-affordable-virtual-meetings-online/"><u>The Ultimate Choice for Affordable Virtual Meetings Online</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-prolific-strategies-for-broadcasting-fb-videos-on-whatsapp-for-2024/"><u>[New] Prolific Strategies for Broadcasting FB Videos on WhatsApp for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-navigating-video-submission-from-pcmobile-devices-to-youtube-shorts/"><u>[Updated] 2024 Approved Navigating Video Submission From PC/Mobile Devices to YouTube Shorts</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-best-free-youtube-video-editing-apps-for-iphone-and-ipad/"><u>[Updated] Best Free YouTube Video Editing Apps for iPhone & iPad</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-conveniently-connect-with-others-via-your-playlist-for-2024/"><u>[Updated] Conveniently Connect with Others via Your Playlist for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-efficiently-add-your-own-look-to-youtube-shorts-via-simple-steps/"><u>[Updated] In 2024, Efficiently Add Your Own Look to YouTube Shorts via Simple Steps</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-halt-autoplay-youtube-recommendations/"><u>[Updated] In 2024, Halt Autoplay YouTube Recommendations</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-ultimate-technique-programming-a-time-counter-in-obs-for-2024/"><u>[Updated] Ultimate Technique Programming a Time Counter in OBS for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-digital-download-king-comprerante-video-acquisition-guide/"><u>2024 Approved Digital Download King Comprerante Video Acquisition Guide</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-top-10-online-subtitle-extractors-for-budget-friendly-viewers/"><u>2024 Approved Top 10 Online Subtitle Extractors for Budget-Friendly Viewers</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-youtubes-legal-framework-on-content-screencasting/"><u>2024 Approved YouTube's Legal Framework on Content Screencasting</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/5-ways-to-track-apple-iphone-8-without-app-drfone-by-drfone-virtual-ios/"><u>5 Ways to Track Apple iPhone 8 without App | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/harmonizing-marketing-brands-and-youtubes-co-creative-pathways-for-2024/"><u>Harmonizing Marketing Brands & YouTube's Co-Creative Pathways for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-mastering-the-art-of-silent-videography/"><u>In 2024, Mastering the Art of Silent Videography</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-social-media-video-trends-for-smbs/"><u>In 2024, Social Media Video Trends for SMBs</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-streamlining-remote-collaboration-master-skypes-screen-share-tools/"><u>In 2024, Streamlining Remote Collaboration Master Skype’s Screen-Share Tools</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-art-of-balance-mastering-tripod-usage-in-video-blogging-for-2024/"><u>The Art of Balance Mastering Tripod Usage in Video Blogging for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ying-your-youtube-sign-in-details-for-2024/"><u>Verifying Your YouTube Sign-In Details for 2024</u></a></li>
+<li><a href="https://techidaily.com/video-file-repair-how-to-fix-corrupted-video-files-of-a60-by-stellar-video-repair-mobile-video-repair/"><u>Video File Repair - How to Fix Corrupted video files of A60?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/why-is-ipogo-not-working-on-xiaomi-redmi-note-12r-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Xiaomi Redmi Note 12R? Fixed | Dr.fone</u></a></li>
 </ul></div>
 

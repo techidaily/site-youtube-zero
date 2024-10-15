@@ -1,7 +1,7 @@
 ---
 title: "\"How to Create Engaging Visual Hooks  A Guide to Video Thumbnail Making\""
-date: 2024-10-05T01:39:03.990Z
-updated: 2024-10-08T19:48:03.742Z
+date: 2024-10-09T18:16:54.505Z
+updated: 2024-10-15T01:55:17.202Z
 tags:
   - ai video
   - ai youtube
@@ -47,6 +47,13 @@ Here are 5 easy tips for creating thumbnails that get views.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 1\. Have a Consistent Layout
 
 Your thumbnails all must look like part of the same set. You want viewers to recognize your videos like yours, and they are more likely to do that if you build up a standard layout that they can start associating with you.
@@ -56,10 +63,17 @@ An example of a standard layout could be you in the middle of the screen wearing
 ![Consistent Layout](https://images.wondershare.com/filmora/article-images/consistent-layout.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902289/19272" target="_top" id="1902289">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902289" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902289/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **2\. Use Your Face**
@@ -68,31 +82,11 @@ People feel automatically connected and drawn into images that make eye contact.
 
 Also, if somebody recognizes you in your thumbnail from a previous video of yours, that will go a long way towards making them click.
 
-<!-- affiliate ads begin -->
-<span id="1993645">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 3\. Use Graphics/Emojis that are On Topic
 
 Anybody can take a screenshot of themselves in their video and use it as a thumbnail. To make your thumbnails look polished, consider using small images (like emojis or hearts) to stand out. This will add color and personality to your thumbnail.
 
 Make sure the images you choose are relevant to the topic of your video.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886015/19272" target="_top" id="1886015">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886015" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886015/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 4\. Make Your Text Huge
 
@@ -113,10 +107,10 @@ Use these tips to make video thumbnails for YouTube, and tell us what kind of re
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1521325/16446" target="_top" id="1521325">
-  <img src="//a.impactradius-go.com/display-ad/16446-1521325" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997722/19272" target="_top" id="1997722">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997722" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1521325/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997722/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -140,18 +134,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/chieving-financial-gain-through-youtube-videos/"><u>[New] Achieving Financial Gain Through YouTube Videos</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-2024-approved-propel-your-workflow-final-cut-pros-must-have-tools/"><u>[Updated] 2024 Approved Propel Your Workflow Final Cut Pro’s Must-Have Tools</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-from-startup-to-stardom-with-youtube-seo-basics/"><u>[Updated] In 2024, From Startup to Stardom with YouTube SEO Basics</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-step-into-success-with-instant-youtube-thumbnail-skills/"><u>2024 Approved Step Into Success with Instant YouTube Thumbnail Skills</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/cape-synergy-the-smart-mcn-picking-game-for-2024/"><u>FullScape Synergy The Smart MCN Picking Game for 2024</u></a></li>
-<li><a href="https://techidaily.com/how-to-perform-hard-reset-on-honor-70-lite-5g-drfone-by-drfone-reset-android-reset-android/"><u>How to Perform Hard Reset on Honor 70 Lite 5G? | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-pictures-from-vivo-s17t-by-fonelab-android-recover-pictures/"><u>How to recover deleted pictures from Vivo S17t.</u></a></li>
-<li><a href="https://win-answers.techidaily.com/mass-effect-legendary-edition-stuck-on-boot-screen-fixes-and-solutions/"><u>Mass Effect Legendary Edition Stuck on Boot Screen - Fixes & Solutions</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/new-unleash-your-creativity-video-editing-tips-for-family-filmmakers/"><u>New Unleash Your Creativity Video Editing Tips for Family Filmmakers</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/perfect-order-for-watching-all-superman-movies-a-viewers-guide/"><u>Perfect Order for Watching All 'Superman' Movies: A Viewer's Guide</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/omplete-youtube-traffic-and-monetization-guidebook/"><u>The Complete Youtube Traffic & Monetization Guidebook</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/the-ultimate-playbook-for-watching-live-world-class-cricket-games-for-2024/"><u>The Ultimate Playbook for Watching Live, World-Class Cricket Games for 2024</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/ultimate-guide-the-14-most-enjoyable-cooperative-mobile-titles-for-shared-fun-on-android-devices/"><u>Ultimate Guide: The 14 Most Enjoyable Cooperative Mobile Titles for Shared Fun on Android Devices</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-best-free-youtube-video-editing-apps-for-iphone-and-ipad-and-how-tos/"><u>[New] 2024 Approved Best Free YouTube Video Editing Apps for iPhone & iPad & How-Tos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/rafting-video-magic-with-imovie-directed-to-youtube/"><u>[New] Crafting Video Magic with iMovie, Directed to YouTube</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-how-to-reverse-video-on-instagram-complete-guide/"><u>[New] In 2024, How to Reverse Video on Instagram? [Complete Guide]</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/icro-enterprises-guide-to-viral-video-promotion/"><u>[New] Micro-Enterprises' Guide to Viral Video Promotion</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/he-financial-frontier-youtubes-pay-structure-at-the-1m-mark-for-2024/"><u>[New] The Financial Frontier Youtube's Pay Structure at the 1M Mark for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-creating-cash-flow-on-youtube-an-ad-free-blueprint-for-income-for-2024/"><u>[Updated] Creating Cash Flow on YouTube An Ad-Free Blueprint for Income for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-annual-roundup-top-no-money-video-editing-software-reviewed/"><u>[Updated] In 2024, Annual Roundup Top No-Money Video Editing Software Reviewed</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-frame-by-frame-top-picks-for-home-studios/"><u>[Updated] In 2024, Frame by Frame Top Picks for Home Studios</u></a></li>
+<li><a href="https://howto.techidaily.com/4-solutions-to-fix-unfortunately-your-app-has-stopped-error-on-vivo-v27-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Solutions to Fix Unfortunately Your App Has Stopped Error on Vivo V27 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-dwindling-user-count-in-the-face-of-tiktoks-ascent/"><u>Facebook’s Dwindling User Count in the Face of TikTok’s Ascent</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/how-to-fix-screen-flickering-and-flashing-on-windows-10-and-11/"><u>How to Fix Screen Flickering and Flashing on Windows 10 and 11</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-apple-iphone-15-asking-for-passcode-after-ios-1714-update-what-to-do-drfone-by-drfone-ios/"><u>In 2024, Apple iPhone 15 Asking for Passcode after iOS 17/14 Update, What to Do? | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-perfect-your-video-dimensions-on-youtube-for-max-impact/"><u>In 2024, Perfect Your Video Dimensions on YouTube for Max Impact</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-the-ultimate-guide-to-finding-unique-video-graphics-online/"><u>In 2024, The Ultimate Guide to Finding Unique Video Graphics Online</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/integrating-chatgpt-into-your-ubuntu-terminal-a-step-by-step-guide/"><u>Integrating ChatGPT Into Your Ubuntu Terminal: A Step-by-Step Guide</u></a></li>
+<li><a href="https://extra-information.techidaily.com/laughter-lab-steps-to-simple-sharp-memes/"><u>Laughter Lab Steps to Simple, Sharp Memes</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ring-youtube-channel-names-a-complete-list-for-vloggers-keep-it-at-or-below-156-characters-for-2024/"><u>Mastering YouTube Channel Names A Complete List for Vloggers (Keep It at or Below 156 Characters) for 2024</u></a></li>
 </ul></div>
 

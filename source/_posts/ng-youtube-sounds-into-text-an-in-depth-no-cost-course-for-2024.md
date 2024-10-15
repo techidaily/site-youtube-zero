@@ -1,7 +1,7 @@
 ---
 title: "\"Turning YouTube Sounds Into Text  An In-Depth, No-Cost Course for 2024\""
-date: 2024-10-01T23:21:47.079Z
-updated: 2024-10-08T20:50:54.841Z
+date: 2024-10-11T21:43:07.293Z
+updated: 2024-10-14T20:44:54.314Z
 tags:
   - ai video
   - ai youtube
@@ -43,10 +43,10 @@ Besides the [basic video editing features on the YouTube](https://tools.techidai
 Below are the two methods to transcribe your YouTube videos for free:
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948876/19272" target="_top" id="1948876">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948876" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948876/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Method 1: Use the Automated Transcription Service on YouTube
@@ -64,6 +64,13 @@ Sign in to your YouTube account, click your profile picture from the top-right c
 On the **Details** page of the next box that appears, scroll down and click **MORE OPTIONS**, and select **English** in the **Video language** drop-down list under the **Language, subtitles, and closed captions (CC)** section.
 
 ![Select Language on YouTube](https://images.wondershare.com/filmora/article-images/select-language-on-youtube.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Step 3  Publish the Video
 
@@ -83,13 +90,6 @@ In the video subtitle page of the target video, hover mouse on the **Published A
 
 ![YouTube Classic Studio](https://images.wondershare.com/filmora/article-images/youtube-edit-on-classic-studio.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 1. **Download Transcription File**
 
 Click and open the **Actions** drop-down list from the top-left corner of the left pane, click your preferred transcription format including .vtt, .srt and .sbv from the list, and save the file on your local hard disk.
@@ -97,10 +97,23 @@ Click and open the **Actions** drop-down list from the top-left corner of the le
 ![YouTube videos transcription](https://images.wondershare.com/filmora/article-images/download-youtube-video-transcription.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151856/7443" target="_top" id="2151856">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151856" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934254/19272" target="_top" id="1934254">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934254" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934254/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<span id="1975658">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Method 2: Get YouTube Transcription when Watching
@@ -140,13 +153,6 @@ Click **Auto-generate** from the right window, and follow the on-screen instruct
 Click **Download SRT** from the left pane, and follow the instructions from there to download the transcription file in \*.srt format.
 
 ![Kapwing Auto Generate Subtitles](https://images.wondershare.com/filmora/article-images/kapwing-auto-generated-subtitles.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915825/19272" target="_top" id="1915825">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915825" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915825/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Pros**
 
@@ -241,10 +247,10 @@ If you are looking for a quick and easy way of adding subtitles to your videos, 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043639/7443" target="_top" id="2043639">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043639" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043639/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -268,16 +274,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/iscovering-all-in-youtube-shorts-guide-for-2024/"><u>[New] Discovering All in YouTube Shorts Guide for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-mastering-social-media-marketing-a-step-by-step-guide-for-2024/"><u>[New] Mastering Social Media Marketing A Step-by-Step Guide for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-archiving-your-media-best-practices-for-mov-files-on-windows-pcs/"><u>[Updated] 2024 Approved Archiving Your Media Best Practices for .mov Files on Windows PCs</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-aspect-ratio-preferences-on-facebook-vids/"><u>[Updated] 2024 Approved Aspect Ratio Preferences on Facebook Vids</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-unleash-your-inner-filmmaker-sports-videos-101/"><u>[Updated] 2024 Approved Unleash Your Inner Filmmaker Sports Videos 101</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-vocal-visions-instructions-for-posting-songs-on-youtube-for-2024/"><u>[Updated] Vocal Visions Instructions for Posting Songs on YouTube for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-cured-non-appearance-of-tiny-vid-content/"><u>2024 Approved Cured Non-Appearance of Tiny Vid Content</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/amazon-basics-soundbar-review-a-solid-soundbar-for-a-budget-price/"><u>Amazon Basics Soundbar Review: A Solid Soundbar for a Budget Price</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-gain-more-traction-on-tiktok-a-compendium-of-unique-username-concepts/"><u>In 2024, Gain More Traction on TikTok A Compendium of Unique Username Concepts</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/quick-fix-guide-reactivating-your-malfunctioning-zoom-webcam/"><u>Quick Fix Guide: Reactivating Your Malfunctioning Zoom Webcam</u></a></li>
-<li><a href="https://howto.techidaily.com/top-4-android-system-repair-software-for-infinix-smart-8-plus-bricked-devices-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 4 Android System Repair Software for Infinix Smart 8 Plus Bricked Devices | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nhance-viewership-with-advanced-youtube-video-tracker-tools-for-2024/"><u>[New] Enhance Viewership with Advanced YouTube Video Tracker Tools for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-film-length-conversion-hours-to-storage-gb/"><u>[New] In 2024, Film Length Conversion Hours to Storage (GB)</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-windowgrabber-3d-top-choice/"><u>[New] In 2024, WindowGrabber 3D - Top Choice</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-mastering-youtube-video-replays-your-comprehensive-tutorial/"><u>[New] Mastering YouTube Video Replays Your Comprehensive Tutorial</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-enchanting-viewers-the-art-of-crafting-engaging-youtube-description-templates/"><u>[Updated] 2024 Approved Enchanting Viewers The Art of Crafting Engaging YouTube Description Templates</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-an-introductory-guide-to-navigating-your-way-through-zoom-webinars/"><u>[Updated] An Introductory Guide to Navigating Your Way Through Zoom Webinars</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-strategies-to-leverage-youtubes-cc-licensing/"><u>[Updated] In 2024, Strategies to Leverage YouTube's CC Licensing</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-the-ultimate-ad-free-high-quality-video-experience-awaits-you/"><u>[Updated] In 2024, The Ultimate Ad-Free, High Quality Video Experience Awaits You</u></a></li>
+<li><a href="https://win-advanced.techidaily.com/14s-easy-screenshot-shortcut-with-back-tap-technique/"><u>14'S Easy Screenshot Shortcut with Back Tap Technique</u></a></li>
+<li><a href="https://techtrends.techidaily.com/expert-advice-effective-methods-for-fixing-the-shell32dll-missing-error/"><u>Expert Advice: Effective Methods for Fixing the Shell32.dll Missing Error</u></a></li>
+<li><a href="https://common-error.techidaily.com/expert-tips-for-repairing-blue-screen-error-0xc00000e9-on-windows-computers/"><u>Expert Tips for Repairing Blue Screen Error 0Xc00000e9 on Windows Computers</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/requent-uploads-can-skyro-cookie-sales-on-your-youtube-channel/"><u>How Frequent Uploads Can Skyro Cookie Sales on Your YouTube Channel</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-free-video-rotator-tools-a-comprehensive-guide-for-windows-mac-and-mobile/"><u>New Free Video Rotator Tools A Comprehensive Guide for Windows, Mac, and Mobile</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/e-broadcast-battle-fb-live-and-yt-live-vs-tweetstreams-for-2024/"><u>Online Broadcast Battle FB LIVE & YT Live Vs. TweetStreams for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-cutting-edge-evolution-understanding-applecups-newest-ipad-iteration/"><u>The Cutting-Edge Evolution: Understanding Apple'cups Newest iPad Iteration</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ower-of-personalization-upgrade-your-youtube-url-for-2024/"><u>The Power of Personalization Upgrade Your YouTube URL for 2024</u></a></li>
 </ul></div>
 

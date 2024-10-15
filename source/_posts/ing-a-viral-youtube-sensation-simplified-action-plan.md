@@ -1,7 +1,7 @@
 ---
 title: "\"Creating a Viral YouTube Sensation  Simplified Action Plan\""
-date: 2024-10-03T21:34:00.137Z
-updated: 2024-10-09T00:55:32.877Z
+date: 2024-10-09T17:15:04.600Z
+updated: 2024-10-15T11:19:28.394Z
 tags:
   - ai video
   - ai youtube
@@ -51,10 +51,10 @@ The keywords that you choose to use with your video will be the greatest factors
 Consider doing some keyword research into your video’s subject using the Google Keyword Planner in or a variety of other[keyword tools](https://tools.techidaily.com/wondershare/filmora/download/). Make sure the most important keywords are in your tags, title, and description.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2\. Make Full Use of Your Video's Tags
@@ -66,10 +66,10 @@ Loading up your tags with keywords that are relevant to your video and genre wil
 Including the maximum amount of tags possible will help to give YouTube the maximum amount of information to use in order to place your video in the results of different searches or to have it come up as ‘related’ to other videos. Users that only post 3 or 4 tags with each video could be missing out on countless amounts of traffic for their content.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3\. Post a Transcript in Your Video Description
@@ -85,10 +85,10 @@ Try to write titles that are searchable and which also get potential viewers exc
 Phrases such as ‘review’, ‘how-to’, and ‘tutorial’ get searched for a lot, so always include them in your titles when they apply to your videos.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902294/19272" target="_top" id="1902294">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902294" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902294/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 5\. Optimize your Video Description for YouTube SEO
@@ -96,6 +96,13 @@ Phrases such as ‘review’, ‘how-to’, and ‘tutorial’ get searched for 
 Video descriptions should generally include around 4000 characters (about 900 words) in which you describe the content of your YouTube video, include important keywords, provide links to your other social media accounts, and ask viewers to subscribe. Using up all the space in your description is a good way to ensure you’re getting the maximum search value out of it.
 
 If you use a lot of products in your videos (i.e. you make cooking videos, so your favorite frying pan is in a lot of shots) then it is a good idea to look into affiliate programs. Amazon has one of the best. If you become an affiliate you can post links to the products you use in your video description and, if a viewer follows one and buys something (even if it’s not the thing you liked to) you’ll earn a commission. This won’t help you with search rankings, but it’s a nice bonus.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 6\. Use Custom Video Thumbnails
 
@@ -108,19 +115,6 @@ In order to[create a thumbnail that stands out](https://tools.techidaily.com/won
 If you are interested in generating more traffic to any YouTube video be sure to follow these 6 steps for how to get your YouTube video seen (and check out [4 more here!](https://tools.techidaily.com/wondershare/filmora/download/)).
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1424527">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -143,14 +137,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-enhancing-vimeo-videos-with-effective-end-credits/"><u>[New] 2024 Approved Enhancing Vimeo Videos with Effective End Credits</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-best-of-the-best-top-12-tycoon-games-for-epic-victories/"><u>[Updated] In 2024, Best of the Best Top 12 Tycoon Games for Epic Victories</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-the-stepwise-route-to-discovering-elusive-youtube-footage/"><u>[Updated] In 2024, The Stepwise Route to Discovering Elusive YouTube Footage</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-strategies-for-captivating-end-moments-for-2024/"><u>[Updated] Strategies for Captivating End Moments for 2024</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/8-best-apps-for-screen-mirroring-vivo-y02t-pc-drfone-by-drfone-android/"><u>8 Best Apps for Screen Mirroring Vivo Y02T PC | Dr.fone</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/about-honor-x7b-frp-bypass-by-drfone-android/"><u>About Honor X7b FRP Bypass</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-how-to-keep-your-audience-engaged-top-6-strategies-for-higher-youtube-stickiness/"><u>In 2024, How To Keep Your Audience Engaged Top 6 Strategies for Higher YouTube Stickiness</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/d-screen-craftsman-for-2024/"><u>Second-Screen Craftsman for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ssential-guide-to-free-attractive-youtube-intros-for-2024/"><u>The Essential Guide to Free, Attractive YouTube Intros for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-9-best-free-and-easy-editing-apps-you-should-know/"><u>[New] In 2024, 9 Best Free and Easy Editing Apps You Should Know</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-unlock-full-potential-of-streaming-with-dual-display-on-netflix-for-2024/"><u>[New] Unlock Full Potential of Streaming with Dual Display on Netflix for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-uniting-subscribers-through-shared-playlists/"><u>[Updated] 2024 Approved Uniting Subscribers Through Shared Playlists</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-skyrocketing-subscribers-on-youtube-step-by-step/"><u>[Updated] In 2024, Skyrocketing Subscribers on YouTube Step-by-Step</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-unveiling-profits-how-much-do-creators-earn-from-each-ad/"><u>[Updated] In 2024, Unveiling Profits How Much Do Creators Earn From Each Ad?</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-perfecting-the-art-of-ppt-delivery-via-google-meet-any-device/"><u>[Updated] Perfecting the Art of PPT Delivery via Google Meet (Any Device)</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-behind-the-screen-a-strategic-approach-for-secret-youtube-videos/"><u>2024 Approved Behind the Screen A Strategic Approach for Secret YouTube Videos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-building-your-digital-identity-start-a-youtube-channel-today/"><u>2024 Approved Building Your Digital Identity Start a YouTube Channel Today</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-flawless-soundscapes-in-the-world-of-social-media-videos/"><u>2024 Approved Flawless Soundscapes in the World of Social Media Videos</u></a></li>
+<li><a href="https://win-answers.techidaily.com/enhance-your-gaming-experience-expert-tips-to-address-and-fix-low-fps-in-valheim-for-2n24/"><u>Enhance Your Gaming Experience: Expert Tips to Address and Fix Low FPS in Valheim for 2N24</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/gopro-vs-polaroid-which-video-editor-prevails-in-2024/"><u>GoPro Vs. Polaroid Which Video Editor Prevails, In 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-pokemon-go-joystick-on-xiaomi-redmi-a2plus-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Xiaomi Redmi A2+? | Dr.fone</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-superior-suggestions-prime-platforms-for-grabbing-snapalert-rhythms/"><u>In 2024, Superior Suggestions Prime Platforms for Grabbing SnapAlert Rhythms</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-ultimate-guide-to-beauty-on-youtube-gear-makeup-tutorials-and-more/"><u>In 2024, Ultimate Guide to Beauty on YouTube - Gear, Makeup Tutorials, and More</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/in-2024-xiaomis-new-smartphone-screenshot-tool-a-game-changer-in-recording-tech/"><u>In 2024, Xiaomi's New Smartphone Screenshot Tool A Game Changer in Recording Tech</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/hpad-gear-your-youtube-channels-first-steps/"><u>Launchpad Gear Your YouTube Channel's First Steps</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/premium-android-vr3d-player-selection/"><u>Premium Android VR/3D Player Selection</u></a></li>
+<li><a href="https://games-able.techidaily.com/unleash-the-power-of-alienware-m18-exclusive-deal-strikes-post-labor-day-for-savvy-gamers-insider-tips-from-zdnet/"><u>Unleash the Power of Alienware M18: Exclusive Deal Strikes Post-Labor Day for Savvy Gamers - Insider Tips From ZDNet</u></a></li>
+<li><a href="https://games-able.techidaily.com/your-budget-friendly-switch-gaming-guide/"><u>Your Budget-Friendly Switch Gaming Guide</u></a></li>
 </ul></div>
 

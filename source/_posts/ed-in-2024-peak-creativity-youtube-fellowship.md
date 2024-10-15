@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Peak Creativity  YouTube Fellowship\""
-date: 2024-10-03T20:01:43.335Z
-updated: 2024-10-09T01:33:48.574Z
+date: 2024-10-08T23:24:26.361Z
+updated: 2024-10-15T10:57:01.629Z
 tags:
   - ai video
   - ai youtube
@@ -64,13 +64,6 @@ _Tess takes you to some of her favorite places in Dumbo._
 
 Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators who attended the summit probably had a lot of fun exploring it.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
-  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 2\. Post Cards
 
 One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
@@ -80,10 +73,10 @@ One of the major benefits of attending this summit would have been networking wi
 S’well bottles are stainless steel beverage containers that keep drinks hot or cold. They retail for around $45\. YouTubers invited to the Creator Summit received ones with YouTube branding on them. A good water bottle is a convention/conference essential, so this was a very practical gift.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075472/7443" target="_top" id="2075472">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/857865/11832" target="_top" id="857865">
+  <img src="//a.impactradius-go.com/display-ad/11832-857865" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075472/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857865/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 4\. Branded slippers
@@ -92,25 +85,25 @@ To help them relax after long days at the summit, YouTube provided creators with
 
 ![Branded slippers - 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-branded-slippers.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 _thinknoodles wearing his YouTube slippers._
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105860/7443" target="_top" id="2105860">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 5\. Pins, pins, pins
 
 There were numerous custom pins available at different events at the summit. Aside from a complementary Brooklyn and 1 Hotel Brooklyn Bridge (the hotel the creators were staying at) pins, the creators did not receive these in their swag boxes – they had to collect them.
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 6\. Denim jacket
 
@@ -125,6 +118,13 @@ Most creators here on Filmora are still trying to grow their channels, but one d
 Want to join the YouTube Creator Summit in the future? We all know that there is a long way to go, but we can start making good YouTube videos now. Remember to use [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) with the templates and effects to touch up your YouTube videos.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -149,24 +149,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-a-comprehensible-explanation-of-youtubes-viewership-puzzle-for-2024/"><u>[New] A Comprehensible Explanation of YouTube's Viewership Puzzle for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/rafting-captivating-youtube-closures-expert-guides-included-for-2024/"><u>[New] Crafting Captivating YouTube Closures - Expert Guides Included for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/n-2024-explore-deep-with-these-immersive-vr-clips/"><u>[New] In 2024, Explore Deep with These Immersive VR Clips</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-find-your-inner-peace-with-tiktoks-best-country-tracks/"><u>[New] In 2024, Find Your Inner Peace with TikTok's Best Country Tracks</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-fireside-screen-capture-tools/"><u>[New] In 2024, Fireside Screen Capture Tools</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/he-ultimate-list-of-virtual-journeys-by-channel-for-2024/"><u>[New] The Ultimate List of Virtual Journeys, By Channel for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-guide-to-quick-eradication-of-online-youtube-discussions/"><u>[Updated] 2024 Approved Guide to Quick Eradication of Online YouTube Discussions</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-the-complete-guide-to-earnings-via-video-ads-on-youtube/"><u>[Updated] 2024 Approved The Complete Guide to Earnings via Video Ads on YouTube</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-enhancing-your-social-media-footprint-upload-success-tips-for-stories-for-2024/"><u>[Updated] Enhancing Your Social Media Footprint Upload Success Tips for Stories for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-from-script-to-screen-methods-of-inserting-dialogue-into-online-videos-for-2024/"><u>[Updated] From Script to Screen Methods of Inserting Dialogue Into Online Videos for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-leverage-audience-engagement-through-strategic-posting/"><u>[Updated] In 2024, Leverage Audience Engagement Through Strategic Posting</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-profile-pictures-download-for-free/"><u>[Updated] In 2024, Profile Pictures - Download for FREE!</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/a-guide-tecno-phantom-v-flip-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>A Guide Tecno Phantom V Flip Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-data-from-iphone-12-pro-to-android-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 12 Pro To Android devices? | Dr.fone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-organize-soundtracks-on-youtube-the-playlist-guide/"><u>In 2024, Organize Soundtracks on Youtube The Playlist Guide</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/leading-websites-for-digital-3d-text-with-a-golden-accent-for-2024/"><u>Leading Websites for Digital 3D Text with a Golden Accent for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ating-youtube-markets-the-quest-for-a-targeted-niche-for-2024/"><u>Navigating YouTube Markets The Quest for a Targeted Niche for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/srt-power-play-transforming-macwindows-experience/"><u>SRT Power Play Transforming Mac/Windows Experience</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/ways-to-find-unlocking-codes-for-tecno-spark-20-phones-by-drfone-android/"><u>Ways To Find Unlocking Codes For Tecno Spark 20 Phones</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/023s-must-watch-alternatives-to-top-films/"><u>[New] 2023'S Must-Watch Alternatives to Top Films</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-2024-approved-real-time-artist-streaming-on-douyin/"><u>[New] 2024 Approved Real-Time Artist Streaming on Douyin</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-youtuber-quizzes-to-know-which-youtuber-you-are-for-2024/"><u>[New] 6 YouTuber Quizzes to Know Which YouTuber You Are for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-crafting-dazzling-instagram-stories-with-multi-image-techniques-for-2024/"><u>[New] Crafting Dazzling Instagram Stories with Multi-Image Techniques for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-strategies-for-amplifying-your-yt-viewership-quickly/"><u>[Updated] In 2024, Strategies for Amplifying Your YT Viewership Quickly</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-top-cycling-sims-worth-your-time/"><u>2024 Approved Top Cycling Sims Worth Your Time</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/download-entertainment-on-the-go-secure-your-favorite-media-for-offline-viewing/"><u>Download Entertainment On-the-Go – Secure Your Favorite Media for Offline Viewing</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/1719581777473-how-to-tell-time-in-spanish-a-complete-guide-for-beginners/"><u>How To Tell Time In Spanish - A Complete Guide For Beginners</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-simplifying-complications-in-youtube-shorts/"><u>In 2024, Simplifying Complications in YouTube Shorts</u></a></li>
+<li><a href="https://fox-that.techidaily.com/overcome-your-chatgpt-iphone-problems-with-these-proven-9-fixes/"><u>Overcome Your ChatGPT iPhone Problems with These Proven 9 Fixes</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/tick-suggestions-a-guide-to-hilarious-short-form-videography/"><u>Slapstick Suggestions A Guide to Hilarious Short-Form Videography</u></a></li>
+<li><a href="https://howto.techidaily.com/troubleshooting-guide-how-to-fix-an-unresponsive-sony-xperia-10-v-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Troubleshooting Guide How to Fix an Unresponsive Sony Xperia 10 V Screen | Dr.fone</u></a></li>
 </ul></div>
 
