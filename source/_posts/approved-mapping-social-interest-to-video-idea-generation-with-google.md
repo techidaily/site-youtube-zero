@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Mapping Social Interest to Video Idea Generation with Google\""
-date: 2024-09-12T00:59:02.457Z
-updated: 2024-09-16T17:20:59.738Z
+date: 2024-10-17T18:34:00.673Z
+updated: 2024-10-20T17:03:42.759Z
 tags:
   - ai video
   - ai youtube
@@ -61,6 +61,13 @@ On top you will see two drop-down menus, one is for the category and one is for 
 
 ![Google Trends Video Ideas](https://images.wondershare.com/filmora/article-images/google-trends-video-ideas.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Under **All categories** select the general theme your channel falls under.
 
 Your options are business, entertainment, health, Sci/Tech, sports, and top stories.
@@ -81,6 +88,13 @@ Having something to say doesn’t have to mean having a strong opinion. If you j
 
 Clicking on these results will give you more specific data including how often the topic has been searched recently and links to recent news articles. These can give you a better idea of why it is trending and help you come up with what you want to say.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3: Battle of the Keywords
 
 Once you have a topic in mind for your next video – whether it came from Google Trends or your own noggin – think about what the most important keyword for that topic might be.
@@ -99,6 +113,13 @@ You can see near the top that this chart represents searches for the topic over 
 
 ![Google Trends YouTube Video Ideas Filmora](https://images.wondershare.com/filmora/article-images/google-trends-search-term-time-range.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 There, now I can see how the popularity of Filmora as a search term has spiked on specific days and times (if you hover over a spike it tells you the time and day) and plan to post my video at a time that capitalizes on these trends.
 
 Next, what other words do I want to include in my video title? Is this a review, a tutorial, or a how-to? By clicking on my search term Filmora, I can edit it to read ‘filmora review’. Then I can click **\+ Compare** and type in ‘filmora tutorial’ and ‘how to use Filmora’. Google Trends will create a chart comparing the popularity of those 3 terms.
@@ -112,6 +133,13 @@ It’s pretty clear from the chart that ‘filmora review’ is the strongest of
 Although, when you do a comparison like this you should also go to YouTube and search for each potential keyword/phrase individually. It might turn out that there is a ton of strong competition for the most popular search term, and not as much for the second or third most popular. Here’s a search for ‘Filmora Review’ on YouTube:
 
 ![YouTube search Filmora Keyword](https://images.wondershare.com/filmora/article-images/google-trends-youtube-keyword-search.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094419/7443" target="_top" id="2094419">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094419" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094419/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 _If my view of YouTube looks different from yours it’s because I’m using the [VidIQ plugin for Chrome](https://chrome.google.com/webstore/detail/vidiq-vision-for-youtube/pachckjkecffpdphbpmfolblodfkgbhl?hl=en). It’s free and it gives you all kinds of extra info about videos and channels._
 
@@ -129,21 +157,7 @@ As one of the most widely used video editing software among YouTubers, Filmora p
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115947/19272" target="_top" id="2115947">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115947" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115947/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -164,5 +178,19 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-boosting-online-presence-top-30-freefire-hashtags-and-tag-strategies/"><u>[New] 2024 Approved Boosting Online Presence Top 30 FreeFire Hashtags and Tag Strategies</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/reative-content-concepts-for-vlogs-for-2024/"><u>[New] Creative Content Concepts for Vlogs for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ac-innovators-handbook-crafting-cool-youtube-videos-for-2024/"><u>[New] Mac Innovators' Handbook Crafting Cool Youtube Videos for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-easy-peasy-automating-the-repetitive-view-of-youtube-videos/"><u>[Updated] 2024 Approved Easy Peasy Automating the Repetitive View of YouTube Videos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-content-creation-in-todays-revenue-landscape/"><u>[Updated] In 2024, Content Creation in Today’s Revenue Landscape</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-ultimate-facetune-a-comprehensive-2024-user-manual/"><u>[Updated] Ultimate Facetune A Comprehensive 2024 User Manual</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unlocking-video-dominance-hashtag-hacks-exposed/"><u>[Updated] Unlocking Video Dominance Hashtag Hacks Exposed</u></a></li>
+<li><a href="https://article-files.techidaily.com/complete-analysis-breaking-down-the-google-podcast-app-for-2024/"><u>Complete Analysis Breaking Down the Google Podcast App for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ipad-pro-against-macbook-pro-an-in-depth-side-by-side-comparison/"><u>IPad Pro Against MacBook Pro: An In-Depth Side-by-Side Comparison</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/jest-jamboree-the-most-entertaining-youtubers-to-watch/"><u>Jest Jamboree The Most Entertaining YouTubers to Watch</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-high-definition-heroes-the-best-4k8k-video-editing-software-for-2024/"><u>New High-Definition Heroes The Best 4K/8K Video Editing Software for 2024</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-the-best-free-mov-editors-for-windows-and-mac-2023-update/"><u>Updated The Best Free MOV Editors for Windows and Mac 2023 Update</u></a></li>
+</ul></div>
 

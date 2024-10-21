@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Beyond the Basics  Advanced Techniques for Improved Recordings\""
-date: 2024-09-11T19:58:01.586Z
-updated: 2024-09-16T19:02:24.601Z
+date: 2024-10-18T00:04:07.770Z
+updated: 2024-10-20T21:41:15.734Z
 tags:
   - ai video
   - ai youtube
@@ -62,9 +62,23 @@ Although it may be quite obvious to turn your phone’s ring tone off when you�
 
 If you are recording yourself talk or sing, make sure to set up your recording space in a way where the sound projected from your voice bounces minimally off the walls and back to your microphone. Bare walls and hardwood floors will cause a lot of bouncing. Make use of materials that will absorb your sound rather than bounce it, like a thick rug or a comforter. If you want your voice to echo, that’s something you should do in post-production.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **4\. Block wind from reaching your microphone**
 
 Although it might not sound so loud and distracting to the naked ear, wind sounds terribly loud through a microphone recording and can cause your audio to clip (distortion of waveform due to output of sound exceeding maximum capacity or 0 dB point). This includes the “wind” that comes out of your mouth when you pronounce words starting with the letter “p.” Use pop filters, windscreens, and deadcats to block wind from reaching your microphone.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **5\. Upgrade your microphone**
 
@@ -72,31 +86,31 @@ As much as you try to control all the noise in your surroundings, your greatest 
 
 Need help with deciding on a microphone to buy? Check out our recommended list of microphones.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115915/19272" target="_top" id="2115915">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115915" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115915/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **6\. Adjust your levels**
 
 Before pressing the record button, see how loudly your microphone picks up the sound you wish to record. Adjust your levels (sensitivity of your microphone) until the sound sits in between -6 dBs and -12dBs. This range gives the source of your sound some room to get louder without the recorded audio getting clipped. When you first listen to audio recorded within this range, it may sound very quiet. No need to worry though because you can increase the volume later in editing.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144289/7443" target="_top" id="2144289">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144289" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144289/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **7\. Start with a sound cue if you’re planning to do some syncing in post**
 
 If you’re recording separate audio that you plan to sync to your video later in editing, start your recording with a short and loud sound cue like a clap or a high pitched “beep” tone. Later, when you’re editing, it’ll be much easier for you to find the section where your video and additional audio match.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **8\. Get close to the sound**
 
 Unless you’re aiming to record ambient sound, bring your microphone close to the source of sound you are wanting to record. The closer your microphone is to the source of sound, the lower your sensitivity setting can be on your microphone. As a result of lowering your levels, sounds you are not meaning to record will also sound fainter.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **9\. ADR**
 
@@ -107,13 +121,6 @@ When you need to record a scene in a loud setting where you have very little con
 Remember to record ambient sound or “room tone.” You can use these recordings to fill in the blanks if you run out of audio and also smooth out parts of your audio where you hear pops, clicks, and other unwanted noise.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -134,5 +141,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/alculating-earnings-ad-revenues-in-the-world-of-youtube-in-2024/"><u>[New] Calculating Earnings Ad Revenues in the World of YouTube, In 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-how-to-share-twitter-videos-on-whatsapp-in-2024/"><u>[New] How to Share Twitter Videos on WhatsApp, In 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-livelink-audio-visual-crafting-portal/"><u>[New] LiveLink Audio-Visual Crafting Portal</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ransforming-viewers-into-vendors-ajey-nagars-earnings-excellence-on-youtube/"><u>[New] Transforming Viewers Into Vendors Ajey Nagar’s Earnings Excellence on YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nlocking-youtube-content-as-lively-download-free-animated-gifs/"><u>[New] Unlocking YouTube Content as Lively, Download-Free Animated GIFs</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-getting-started-with-your-new-youtube-premium-account/"><u>[Updated] In 2024, Getting Started with Your New YouTube Premium Account</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-navigating-account-creation-on-youtube/"><u>[Updated] In 2024, Navigating Account Creation on YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-from-videographer-to-income-generator-on-youtube/"><u>2024 Approved From Videographer to Income Generator on YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-revolutionary-techniques-for-high-quality-sound-recording-no-microphone-required/"><u>2024 Approved Revolutionary Techniques for High-Quality Sound Recording, No Microphone Required</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/comprehensively-guide-windows-10s-best-practices-for-mov-files/"><u>Comprehensively Guide Windows 10'S Best Practices for Mov Files</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/fehlerbehebung-und-reparatur-eines-defekten-dvd-players-der-keine-discs-lesen-kann-einfache-losungen/"><u>Fehlerbehebung Und Reparatur Eines Defekten DVD-Players, Der Keine Discs Lesen Kann - Einfache Lösungen</u></a></li>
+<li><a href="https://win11.techidaily.com/fixing-stuck-loading-screen-in-league-of-legends/"><u>Fixing Stuck Loading Screen in League of Legends</u></a></li>
+<li><a href="https://windows11.techidaily.com/how-to-open-windows-media-player-simple-instructions/"><u>How to Open Windows Media Player: Simple Instructions</u></a></li>
+<li><a href="https://fox-access.techidaily.com/hype-generator-chief-architect/"><u>Hype Generator Chief Architect</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-hits-and-likes-unlocked-expert-tips-for-youtubers-seo/"><u>In 2024, Hits & Likes Unlocked Expert Tips for YouTubers' SEO</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-iphone-12-passcode-without-computer-drfone-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 12 Passcode without Computer? | Dr.fone</u></a></li>
+<li><a href="https://win-bytes.techidaily.com/melhores-tecnicas-para-converter-filmes-do-vlc-em-formato-mp4/"><u>Melhores Técnicas Para Converter Filmes Do VLC Em Formato MP4</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/top-9-outils-hdr-gratuit-et-payant-pour-systemes-windows-and-macos/"><u>Top 9 Outils HDR Gratuit Et Payant Pour Systèmes Windows & macOS</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/k-your-income-potential-youtube-studios-global-reach/"><u>Unlock Your Income Potential YouTube Studio's Global Reach</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] YouTube Prodigy Vs. Creative Hub Beta Edition"
-date: 2024-10-13T10:59:12.400Z
-updated: 2024-10-15T12:06:51.279Z
+date: 2024-10-14T22:47:28.991Z
+updated: 2024-10-20T18:36:53.450Z
 tags:
   - ai video
   - ai youtube
@@ -57,13 +57,6 @@ Undoubtedly, YouTube updated its Creator Studio to offer a tool that enables its
 
 ![ YouTube Studio Beta](https://images.wondershare.com/filmora/article-images/youtube-studio-beta.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934188/19272" target="_top" id="1934188">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934188" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934188/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 YouTube Studio (Beta), for many YouTubers, is now the default. However, for the time being, creators can still switch back to the Classic view (as some of the features are still being built). YouTube’s objective is to receive data of their own by understanding how creators are using the new Studio and gaining feedback to improve upon it.
 
 If you have any feedback, simply click on this button on the bottom left menu of the YouTube Studio (Beta) and send YouTube your thoughts.
@@ -76,6 +69,13 @@ In addition to the new layout of the tools and dashboards, YouTube Studio (Beta)
 
 **3\. Unique viewers**: Know how many different people have watched your videos. This data can be used to compare the size of your subscriber base to the actual number of your audience.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Tips for Using YouTube Studio Beta Features
 
 Now that you are more familiar with the new YouTube Studio (Beta), let us dive into what you can accomplish with all the new features.
@@ -85,13 +85,6 @@ Now that you are more familiar with the new YouTube Studio (Beta), let us dive i
 In the past, there has been a lot of speculations about how creators should treat their video titles and descriptions. Well, now YouTube is letting you know exactly which area to focus on. Simply hover over any “?” icon to see the advice and click “Learn More” to go to YouTube Creator Academy to get more details.
 
 ![YouTube Studio Beta Optimization Tips](https://images.wondershare.com/filmora/article-images/youtube-studio-beta-optimization.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### 2. Recent Video Data
 
@@ -108,16 +101,10 @@ In the Classic Creator Studio, you couldn’t get an aggregated view of all the 
 ![YouTube Studio Video Analysis](https://images.wondershare.com/filmora/article-images/youtube-studio-beta-video-analysis.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983552">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### 4. Watch Time Funnel
@@ -132,24 +119,31 @@ If the average view duration is not up to your standards, then you will have to 
 
 ![YouTube Creator Studio Watch Time Funnel](https://images.wondershare.com/filmora/article-images/youtube-studio-beta-watch-time-funnel.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 5. Traffic Sources
 
 YouTube now presents all the different traffic sources in one easy-to-find page in the Reach Viewer tab, so creators no longer have to click between them to analyze where their traffic is coming from. This new design is far less intimidating and messy. At a glance, you can now see where the majority of your audiences are coming from.
 
 ![YouTube Studio Traffic Source](https://images.wondershare.com/filmora/article-images/youtube-studio-traffic-source.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 YouTube has always put a lot of value into its analytic tools, and with YouTube Studio Beta the features and design are continuously improving. Having better data and understanding of how an individual video or an entire channel is performing will help creators succeed on this ever more competitive platform.
 
 _Have you tried the new YouTube Studio (Beta)? What are your thoughts? Please let us know in the comments below._
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -172,19 +166,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-steps-to-produce-empowerment-driven-livestreams/"><u>[New] 2024 Approved Steps to Produce Empowerment-Driven Livestreams</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-the-art-of-youtube-thumbnails-for-mac-professionals/"><u>[New] 2024 Approved The Art of YouTube Thumbnails for Mac Professionals</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-the-ultimate-guide-to-editing-sportscasts/"><u>[New] 2024 Approved The Ultimate Guide to Editing Sportscasts</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-the-unique-characteristics-of-youtube-and-dailymention/"><u>[New] 2024 Approved The Unique Characteristics of YouTube & DailyMention</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-top-10-no-cost-digital-video-editors-the-2023-guide/"><u>[New] 2024 Approved Top 10 No-Cost Digital Video Editors The 2023 Guide</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-top-minded-channels-ultimate-yt-educational-guide/"><u>[New] 2024 Approved Top Minded Channels Ultimate YT Educational Guide</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-best-8-linux-programs-for-media-makers-for-2024/"><u>[New] Best 8 Linux Programs for Media Makers for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-from-video-to-animation-easy-youtube-gif-creation-tips/"><u>[Updated] In 2024, From Video to Animation Easy YouTube GIF Creation Tips</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/2024-approved-tweeted-timeline-capture-securing-your-social-media-videos/"><u>2024 Approved Tweeted Timeline Capture Securing Your Social Media Videos</u></a></li>
-<li><a href="https://blue-screen-error.techidaily.com/faulty-hardware-corrupted-page-on-windows-1110-solved/"><u>FAULTY HARDWARE CORRUPTED PAGE on Windows 11/10 [Solved]</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/get-your-samsung-m2020-drives-now-free-and-fast-download/"><u>Get Your Samsung M2020 Drives Now - Free and Fast Download</u></a></li>
-<li><a href="https://win-able.techidaily.com/guide-transforming-your-rzmmj-files-from-youtube-video-editor-into-high-quality-mp4/"><u>Guide: Transforming Your RZMMJ Files From YouTube Video Editor Into High-Quality MP4</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-set-your-preferred-job-location-on-linkedin-app-of-your-vivo-y100-drfone-by-drfone-virtual-android/"><u>In 2024, Set Your Preferred Job Location on LinkedIn App of your Vivo Y100 | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/insta-velocity-strategic-use-of-likes-and-videos-for-growth/"><u>Insta Velocity Strategic Use of Likes & Videos for Growth</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ffortless-online-guide-youtube-video-to-gif-magic-no-download/"><u>[New] Effortless Online Guide YouTube Video to GIF Magic (No Download)</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-fireside-screen-capture-tools/"><u>[New] Fireside Screen Capture Tools</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/istorical-wisdom-on-youtube-for-students-for-2024/"><u>[New] Historical Wisdom on YouTube for Students for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-embrace-cold-choosing-heated-backdrops-for-youtube/"><u>[New] In 2024, Embrace Cold Choosing Heated Backdrops for YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-engaging-tactics-for-increased-subscriber-count/"><u>[Updated] 2024 Approved Engaging Tactics for Increased Subscriber Count</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-step-by-step-guide-to-optimizing-fb-in-stream-advertising/"><u>[Updated] 2024 Approved Step-by-Step Guide to Optimizing FB In-Stream Advertising</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-rapid-method-converting-images-into-desktop-thumbnails-for-youtube/"><u>[Updated] In 2024, Rapid Method Converting Images Into Desktop Thumbnails for YouTube</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-the-right-to-appeal-steps-following-abrupt-video-content-suspension/"><u>[Updated] The Right to Appeal Steps Following Abrupt Video Content Suspension</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-top-5-xbox-external-hard-drive/"><u>[Updated] Top 5 Xbox External Hard Drive</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/budget-friendly-apeman-c450-an-in-depth-performance-evaluation/"><u>Budget-Friendly Apeman C450: An In-Depth Performance Evaluation</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/tional-gaming-content-on-youtube-for-2024/"><u>Educational Gaming Content on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ce-interaction-share-your-custom-youtube-playlist/"><u>Enhance Interaction Share Your Custom YouTube Playlist</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-3-effective-ways-to-bypass-activation-lock-on-apple-iphone-15-by-drfone-ios/"><u>In 2024, 3 Effective Ways to Bypass Activation Lock on Apple iPhone 15</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-use-allshare-cast-to-turn-on-screen-mirroring-on-asus-rog-phone-8-drfone-by-drfone-android/"><u>In 2024, How To Use Allshare Cast To Turn On Screen Mirroring On Asus ROG Phone 8 | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-10-telegram-spy-tools-on-xiaomi-redmi-k70-for-parents-drfone-by-drfone-virtual-android/"><u>In 2024, Top 10 Telegram Spy Tools On Xiaomi Redmi K70 for Parents | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-unlocking-youtube-top-rated-pc-and-mobile-video-extractors/"><u>In 2024, Unlocking YouTube Top-Rated PC & Mobile Video Extractors</u></a></li>
+<li><a href="https://driver-download.techidaily.com/mastering-windows-7-speedy-and-simple-guide-to-upgrading-your-webcam-drivers/"><u>Mastering Window's 7: Speedy and Simple Guide to Upgrading Your Webcam Drivers</u></a></li>
 </ul></div>
 

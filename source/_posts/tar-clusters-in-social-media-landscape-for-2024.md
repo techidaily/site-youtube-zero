@@ -1,7 +1,7 @@
 ---
 title: "[New] Star Clusters in Social Media Landscape for 2024"
-date: 2024-10-09T21:30:43.500Z
-updated: 2024-10-14T23:08:35.641Z
+date: 2024-10-15T17:46:43.073Z
+updated: 2024-10-20T21:02:43.096Z
 tags:
   - ai video
   - ai youtube
@@ -67,19 +67,6 @@ The most common videos on Felix's channel are gaming videos in which he comments
 
 ![HolaSoyGerman](https://images.wondershare.com/filmora/article-images/hola-soy-german.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1498635">
-					<video width="320" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 At the age of 27, Germán Alejandro Garmendia Aranis is the owner of the second most subscribed channel on YouTube with more than 32 million subscribers. Furthermore, HolaSoyGerman’s channel is the most subscribed Spanish-speaking channel today. Germán's second YouTube channel JuegaGerman has made him the only YouTuber ever to receive two diamond play buttons for having over 40 million subscribers on his two channels.
 
 The Chilean YouTube superstar uploaded his first YouTube video in 2011 and by October 2012 his channel has reached 1 million subscribers. Recently, German has lent his voice to a character in the Spanish version of Ice Age: Collision Course. He finds inspiration for his comic YouTube videos in everyday life and topics like ex-girlfriends, school, and phobias are frequently covered in videos published on the HolaSoyGerman channel. In 2014 and 2015 German won the 'Icon of the Year' prize from MTV Millennial Awards.
@@ -92,28 +79,15 @@ More than 25 million subscribers who follow this gaming commentator. The El Rubi
 
 Based in Madrid, El Rubius OMG first became popular in Spanish-speaking countries, and as his fame increased he gained recognition throughout the world. During 2012 his channel became the most subscribed Spanish speaking channel, and on April 21, 2016, El Rubius received the 'YouTuber of the Year' award during the 1st Play Awards celebration in Palma De Mallorca. In addition to being one of the most popular YouTubers of all time, Rubén is also a published author whose first book 'The Troll Book' was the bestselling book in Spain for 8 weeks.
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ###  4\.  Smosh
 
 ![Smosh](https://images.wondershare.com/filmora/article-images/smosh.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983573">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1938721/19272" target="_top" id="1938721">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938721" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938721/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Originally, Smosh was a channel run by sketch comedy duo Ian Andrew Hecox and Anthony Padilla. They started the Smosh YouTube channel in 2005 and since then they have grown their team to include more creators, and their content to include animation and gaming. Smosh has become much more than two funny guys on YouTube – it is a wildly successful content company.
@@ -126,6 +100,13 @@ In 2017, Anthony Padilla chose to leave Smosh to focus on his own solo YouTube c
 
 ![Fernanfloo](https://images.wondershare.com/filmora/article-images/fernan-floo.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Yet another enormously popular YouTuber that comes from a Spanish speaking country whose channel attracted millions of subscribers. A 24-year-old Salvadoran named Luis Fernando Flores Alvarado is the man behind one of the most subscribed YouTube channels of all time. The Fernanfloo channel was created in 2011, and in February 2014 it had only 100,000 subscribers. By August 2014, Alvarado's channel reached 1 million subscribers, making him one of YouTube's biggest success stories. The videos featured on Feranfloo channel mostly cover gaming topics, but with a touch of comedy which makes Alvarado's videos unique.
 
 At the end of 2015, Alvarado launched the Fenanfloo mobile app that had 2.3 million downloads in the first week. His videos are mostly in Spanish which somewhat limits his audience, but it is safe to say the Fernanfloo channel is among the most popular channels in the Latin American countries since most of his audience comes from Bolivia, Peru, and Ecuador.
@@ -134,18 +115,25 @@ At the end of 2015, Alvarado launched the Fenanfloo mobile app that had 2.3 mill
 
 Looking for a live [YouTube subscriber chart](https://tools.techidaily.com/wondershare/filmora/download/)?
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Edit YouTube Videos with Full-Featured Video Editing Software
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886069/19272" target="_top" id="1886069">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886069" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886069/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -168,24 +156,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-a-comprehensive-look-at-quantum-hdr/"><u>[New] 2024 Approved A Comprehensive Look at Quantum HDR</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-this-years-unexpected-cinematic-gems/"><u>[New] 2024 Approved This Year's Unexpected Cinematic Gems</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-2024-approved-top-5-free-video-effects-sites/"><u>[New] 2024 Approved Top 5 Free Video Effects Sites</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-unraveling-youtubes-puzzles-a-step-by-step-reveal/"><u>[New] 2024 Approved Unraveling YouTube's Puzzles A Step-by-Step Reveal</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-your-marketing-journey-begins-here-experience-the-full-spectrum-of-over-50-free-ads/"><u>[New] 2024 Approved Your Marketing Journey Begins Here - Experience the Full Spectrum of Over 50 FREE Ads!</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-youtubes-adsense-income-strategy-calculating-per-thousand-viewers/"><u>[New] 2024 Approved Youtube's AdSense Income Strategy Calculating Per Thousand Viewers</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-elevating-video-view-count-top-hashtag-trends-guide-for-2024/"><u>[New] Elevating Video View Count Top Hashtag Trends Guide for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-the-ultimate-checklist-to-add-audio-to-your-facebook-vids/"><u>[Updated] In 2024, The Ultimate Checklist to Add Audio to Your Facebook Vids</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/delving-into-the-world-of-hdr-tv-lg-27ud88-uhd/"><u>Delving Into the World of HDR TV - LG 27UD88-UHD</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-fix-life360-shows-wrong-location-on-vivo-s17-drfone-by-drfone-virtual-android/"><u>How to Fix Life360 Shows Wrong Location On Vivo S17? | Dr.fone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-9-fitness-trends-to-captivate-your-online-audience-with-action/"><u>In 2024, 9 Fitness Trends to Captivate Your Online Audience with Action</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-accelerate-keyword-acquisition-the-finest-7-free-taggification-apps-for-youtube-videos/"><u>In 2024, Accelerate Keyword Acquisition The Finest 7 Free Taggification Apps for YouTube Videos</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-collaborative-video-workflows-for-content-growth/"><u>In 2024, Collaborative Video Workflows for Content Growth</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-crafting-a-sports-highlight-step-by-step-tutorial/"><u>In 2024, Crafting a Sports Highlight Step-by-Step Tutorial</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-democratize-music-distribution-via-social-media/"><u>In 2024, Democratize Music Distribution via Social Media</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/in-2024-effortless-ways-to-transfer-data-from-your-apple-iphone-14-pro-to-iphone-15-drfone-by-drfone-transfer-from-ios/"><u>In 2024, Effortless Ways to Transfer Data from Your Apple iPhone 14 Pro to iPhone 15 | Dr.fone</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-from-novice-to-pro-mastering-spotify-advertisement-techniques/"><u>In 2024, From Novice to Pro Mastering Spotify Advertisement Techniques</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/the-top-5-android-apps-that-use-fingerprint-sensor-to-lock-your-apps-on-xiaomi-redmi-k70e-by-drfone-android/"><u>The Top 5 Android Apps That Use Fingerprint Sensor to Lock Your Apps On Xiaomi Redmi K70E</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/transformers-cinematic-universe-the-ultimate-watchlist/"><u>Transformers Cinematic Universe: The Ultimate Watchlist</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-mastering-faces-incorporating-motion-blur-in-photos-with-picsart/"><u>[New] In 2024, Mastering Faces Incorporating Motion Blur in Photos with Picsart</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-ensuring-data-privacy-while-transforming-youtube-video-audio-to-mp3/"><u>[Updated] 2024 Approved Ensuring Data Privacy While Transforming YouTube Video Audio to MP3</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-streamline-your-videos-acoustic-appeal-on-youtube/"><u>[Updated] 2024 Approved Streamline Your Video's Acoustic Appeal on YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-audiovisual-innovators-best-portable-devices-for-editors-for-2024/"><u>[Updated] Audiovisual Innovators Best Portable Devices for Editors for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-highlight-your-pc-gaming-6-effective-screen-methods-for-2024/"><u>[Updated] Highlight Your PC Gaming 6 Effective Screen Methods for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-lg-redefines-gaming-with-its-innovative-360-degree-vr-experience/"><u>[Updated] LG Redefines Gaming with Its Innovative 360-Degree VR Experience</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-deciphering-the-differences-between-youtubes-and-dailymentions/"><u>2024 Approved Deciphering the Differences Between YouTubes & DailyMentions</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-the-ultimate-guide-to-youtube-keywords-for-peak-performance/"><u>2024 Approved The Ultimate Guide to YouTube Keywords for Peak Performance</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/5-ways-to-track-infinix-hot-40-without-app-drfone-by-drfone-virtual-android/"><u>5 Ways to Track Infinix Hot 40 without App | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/boost-cash-flow-with-these-5-instagram-hacks/"><u>Boost Cash Flow with These 5 Instagram Hacks</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/essential-companion-device-needed-for-your-new-apple-vision-pro-top-picks-by-zdnet/"><u>Essential Companion Device Needed for Your New Apple Vision Pro - Top Picks by ZDNet</u></a></li>
+<li><a href="https://media-tips.techidaily.com/exploring-the-surge-of-audio-visual-episodes-in-your-spotify-library/"><u>Exploring the Surge of Audio-Visual Episodes in Your Spotify Library</u></a></li>
+<li><a href="https://android-location.techidaily.com/getting-the-pokemon-go-gps-signal-not-found-11-error-in-xiaomi-redmi-note-13-5g-drfone-by-drfone-virtual/"><u>Getting the Pokemon Go GPS Signal Not Found 11 Error in Xiaomi Redmi Note 13 5G | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-a-vivo-y36-phone-that-is-locked-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset a Vivo Y36 Phone That Is Locked | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-the-essence-of-youtubes-content-craft-room/"><u>In 2024, The Essence of YouTube's Content Craft Room</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nt-tutorial-green-screen-techniques-unveiled/"><u>Instant Tutorial Green Screen Techniques Unveiled</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/t-masters-essential-stock-youtube-series/"><u>Market Masters Essential Stock YouTube Series</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/mline-your-youtube-short-experience/"><u>Streamline Your YouTube Short Experience</u></a></li>
+<li><a href="https://win-blog.techidaily.com/update-the-google-app-ensure-that-you-have-the-latest-version-of-the-google-app-installed-on-your-device-go-to-the-play-store-search-for-google-and-update-i415/"><u>Update the Google App: Ensure that You Have the Latest Version of the Google App Installed on Your Device. Go to the Play Store, Search for Google, and Update if Necessary.</u></a></li>
 </ul></div>
 

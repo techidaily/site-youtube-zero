@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Tutorial  Manage Comment Permissions on YouTube\""
-date: 2024-09-12T20:55:13.507Z
-updated: 2024-09-16T22:02:34.667Z
+date: 2024-10-18T20:35:36.207Z
+updated: 2024-10-20T17:39:54.561Z
 tags:
   - ai video
   - ai youtube
@@ -115,7 +115,27 @@ From under the **Audience** section in the right window of the **Video details**
 
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
+
+<!-- affiliate ads begin -->
+<span id="1938141">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
 
@@ -133,6 +153,13 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
 Yes. When you turn off the comments, the existing comments disappear. When you turn them back on, all the previous comments reappear, and become visible to the audience.
@@ -146,6 +173,13 @@ That depends on the nature of the comments. For instance, if you modify the sett
 It is easy to understand **how to turn on comments on YouTube**. The best thing is, the comments are enabled by default, and if you don’t need them, you can simply disable them by configuring the videos or the entire channel as ‘Made for kids’. If the comments on any video were enabled previously, and are disabled later on, the existing comments automatically disappear. They reappear when the comments on the video are reenabled.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -166,12 +200,26 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115938/19272" target="_top" id="2115938">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115938" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115938/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-achieving-professional-quality-with-instagrams-virtual-screens/"><u>[New] Achieving Professional Quality with Instagram's Virtual Screens</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/avigate-through-creating-stellar-educational-video-content-for-online-platforms-for-2024/"><u>[New] Navigate Through Creating Stellar Educational Video Content for Online Platforms for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-leading-vr-game-experts-you-cant-miss/"><u>[Updated] 2024 Approved Leading VR Game Experts You Can't Miss</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-navigating-iphone-backup-flawless-integration-with-snapchat-photos/"><u>[Updated] 2024 Approved Navigating iPhone Backup Flawless Integration with Snapchat Photos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-unleash-creativity-on-screen-the-top-10-apps-for-channel-graphics-artistry/"><u>[Updated] 2024 Approved Unleash Creativity on Screen - The Top 10 Apps for Channel Graphics Artistry</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-beginners-guide-how-to-create-a-youtube-channel-and-make-money/"><u>[Updated] Beginners’ Guide How To Create a YouTube Channel and Make Money</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-connect-with-serenity-explore-these-10-exceptional-yogis-videos/"><u>[Updated] Connect With Serenity Explore These 10 Exceptional Yogis' Videos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-leap-towards-youtube-dominance-with-proven-innovative-techniques/"><u>[Updated] In 2024, Leap Towards YouTube Dominance with Proven, Innovative Techniques</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-pro-vision-enhancement-top-ranked-4k-displays-for-editing/"><u>[Updated] In 2024, Pro Vision Enhancement Top-Ranked 4K Displays for Editing</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-your-essential-guide-to-mobile-asmr-sounds/"><u>[Updated] Your Essential Guide to Mobile ASMR Sounds</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-democratize-music-distribution-via-social-media/"><u>2024 Approved Democratize Music Distribution via Social Media</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-navigating-youtubes-revenue-tools-for-mobile-creators/"><u>2024 Approved Navigating YouTube's Revenue Tools for Mobile Creators</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/p-by-step-approach-to-discard-youtube-watch-later-items-for-2024/"><u>A Step-by-Step Approach to Discard YouTube Watch Later Items for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/download-free-2018-fifa-world-cup-matches-in-hd-avi-mp4-and-wmv-formats/"><u>Download Free 2018 FIFA World Cup Matches in HD - AVI, MP4 & WMV Formats</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-changeadd-location-filters-on-snapchat-for-your-sony-xperia-1-v-drfone-by-drfone-virtual-android/"><u>How to Change/Add Location Filters on Snapchat For your Sony Xperia 1 V | Dr.fone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/mastering-technology-choices-the-ultimate-resource-by-toms-hardware-pro/"><u>Mastering Technology Choices - The Ultimate Resource by Tom's Hardware Pro</u></a></li>
+<li><a href="https://techtrends.techidaily.com/troubleshooting-steam-game-installation-overcoming-disk-writing-issues/"><u>Troubleshooting Steam Game Installation: Overcoming Disk Writing Issues</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/ultimate-choice-for-gif-to-video-online-tools-best-5-for-2024/"><u>Ultimate Choice for GIF-to-Video Online Tools (Best 5) for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/k-the-secret-to-massive-engagement-3-top-tips-for-making-powerful-two-pov-reaction-videos-on-youtube/"><u>Unlock the Secret to Massive Engagement 3 Top Tips for Making Powerful Two-POV Reaction Videos on YouTube</u></a></li>
+</ul></div>
 

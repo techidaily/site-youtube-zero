@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Controlling Who Sees Your Youtube Productions"
-date: 2024-10-09T10:49:18.753Z
-updated: 2024-10-15T09:05:37.953Z
+date: 2024-10-13T20:10:23.205Z
+updated: 2024-10-20T18:15:20.937Z
 tags:
   - ai video
   - ai youtube
@@ -65,13 +65,6 @@ thumbnail: https://thmb.techidaily.com/971a75711e8320cab50ce3d6d3f20ecd50a3ca987
 
 ![youtube privacy setting](https://images.wondershare.com/filmora/article-images/youtube-privacy-setting.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: How to Change Privacy Settings
 
  There are two ways to change the privacy settings: firstly, when you upload the video, and secondly through Creator Studio.
@@ -88,14 +81,14 @@ thumbnail: https://thmb.techidaily.com/971a75711e8320cab50ce3d6d3f20ecd50a3ca987
 
 ![youtube privacy settings](https://images.wondershare.com/filmora/article-images/unlisted-video.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  To change the privacy, click the icon. You’ll be taken to the video's info and settings page. Down below where you see the thumbnails you'll see the selected privacy setting. Click this to open a drop down menu, and select your desired privacy level.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: Sharing Private Videos
 
@@ -104,10 +97,16 @@ thumbnail: https://thmb.techidaily.com/971a75711e8320cab50ce3d6d3f20ecd50a3ca987
 ![share youtube privacy video](https://images.wondershare.com/filmora/article-images/share-private-video.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148635/16836" target="_top" id="2148635">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148635" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148635/16836" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977020">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -116,13 +115,20 @@ thumbnail: https://thmb.techidaily.com/971a75711e8320cab50ce3d6d3f20ecd50a3ca987
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902289/19272" target="_top" id="1902289">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902289" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902289/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043638/7443" target="_top" id="2043638">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043638" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043638/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -146,24 +152,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-securely-download-your-youtube-playlist-at-any-time/"><u>[New] 2024 Approved Securely Download Your YouTube Playlist at Any Time</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-the-monetary-map-mr-beasts-financials-uncovered/"><u>[New] 2024 Approved The Monetary Map Mr. Beast’s Financials Uncovered</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-the-path-to-higher-engagement-essential-shortcuts-for-youtubers/"><u>[New] 2024 Approved The Path to Higher Engagement Essential Shortcuts for YouTubers</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-time-capsule-of-knowledge-top-10-history-channels-for-students/"><u>[New] 2024 Approved Time Capsule of Knowledge Top 10 History Channels for Students</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-top-50-digital-rich-list/"><u>[New] 2024 Approved Top 50 Digital Rich List</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-unlocking-biz-potential-the-best-channels-for-growth/"><u>[New] 2024 Approved Unlocking Biz Potential The Best Channels for Growth</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-unraveling-the-secrets-to-dynamic-youtube-trailers-in-filmora/"><u>[New] 2024 Approved Unraveling the Secrets to Dynamic YouTube Trailers in Filmora</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-unveiled-revelation-of-hidden-shorts/"><u>[New] 2024 Approved Unveiled Revelation of Hidden Shorts</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-video-revenue-battlefield-dm-versus-yo-analysis/"><u>[New] 2024 Approved Video Revenue Battlefield Dm Versus Yo Analysis</u></a></li>
-<li><a href="https://some-tips.techidaily.com/new-the-ultimate-hdr-experience-with-asuss-4k-monitor/"><u>[New] The Ultimate HDR Experience with Asus's 4K Monitor</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-the-best-ways-to-captivate-an-audience-on-snapchat/"><u>[Updated] 2024 Approved The Best Ways to Captivate an Audience on Snapchat</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-immediate-improvement-photo-colors-in-photoshop/"><u>[Updated] Immediate Improvement Photo Colors in Photoshop</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-10-best-youtube-makeup-artists-you-must-have-heard/"><u>[Updated] In 2024, 10 Best YouTube Makeup Artists You Must Have Heard</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-motorola-moto-g24-phone-without-google-account-by-drfone-android/"><u>How to Unlock Motorola Moto G24 Phone without Google Account?</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-5-most-effective-methods-to-unlock-iphone-6s-plus-in-lost-mode-by-drfone-ios/"><u>In 2024, 5 Most Effective Methods to Unlock iPhone 6s Plus in Lost Mode</u></a></li>
-<li><a href="https://extra-information.techidaily.com/key-steps-in-manipulating-song-pace-in-spotify-app/"><u>Key Steps in Manipulating Song Pace in Spotify App</u></a></li>
-<li><a href="https://review-topics.techidaily.com/recover-your-contacts-after-google-pixel-8-has-been-deleted-by-fonelab-android-recover-contacts/"><u>Recover your contacts after Google Pixel 8 has been deleted.</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/speedy-setup-latest-wacom-intuos-graphics-tablet-drivers-installed-in-no-time/"><u>Speedy Setup: Latest Wacom Intuos Graphics Tablet Drivers Installed in No Time!</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/to-embrace-or-not-the-itop-screen-recorder-dilemran-for-2024/"><u>To Embrace or Not The ITop Screen Recorder Dilemran for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-kinemaster-advanced-perfecting-visual-continuity/"><u>[New] 2024 Approved Kinemaster Advanced Perfecting Visual Continuity</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-captivating-captions-writing-copy-that-drives-engagement-and-views/"><u>[New] In 2024, Captivating Captions Writing Copy That Drives Engagement and Views</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-in-2024-capturing-and-reducing-speed-with-iphone-a-step-by-step-guide/"><u>[New] In 2024, Capturing and Reducing Speed with iPhone A Step-by-Step Guide</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-explore-your-watching-tendencies-the-ultimate-six-youtuber-categorization-challenges/"><u>[Updated] 2024 Approved Explore Your Watching Tendencies The Ultimate Six YouTuber Categorization Challenges</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-analyzing-youtubes-creator-rewards-regularity-for-2024/"><u>[Updated] Analyzing YouTube's Creator Rewards Regularity for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-elevating-content-strategy-through-youtube-metrics/"><u>[Updated] In 2024, Elevating Content Strategy Through YouTube Metrics</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-unlock-the-potential-of-youtube-videos-with-these-simple-gif-creation-steps-pcmobile/"><u>[Updated] Unlock the Potential of YouTube Videos with These Simple GIF Creation Steps (PC/Mobile)</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/20-hit-tiktok-rhymes-you-cant-miss/"><u>20 Hit TikTok Rhymes You Can't Miss</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-guides-on-creating-cost-free-youtube-beginnings-and-conclusions/"><u>2024 Approved Guides on Creating Cost-Free YouTube Beginnings & Conclusions</u></a></li>
+<li><a href="https://some-skills.techidaily.com/boosted-brainpower-microsofts-latest-leap-with-copilot-and-bing-chat-utilizing-gpt-4-enhancements/"><u>Boosted Brainpower: Microsoft's Latest Leap with Copilot & Bing Chat Utilizing GPT-4 Enhancements</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-shortcuts-to-wealth-in-youtube-shorts/"><u>In 2024, Shortcuts to Wealth in YouTube Shorts</u></a></li>
 </ul></div>
 

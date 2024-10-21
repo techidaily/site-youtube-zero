@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Understanding Light Settings in YouTube Video Editing\""
-date: 2024-10-12T07:02:03.786Z
-updated: 2024-10-15T00:03:00.745Z
+date: 2024-10-17T23:13:53.090Z
+updated: 2024-10-21T00:03:57.396Z
 tags:
   - ai video
   - ai youtube
@@ -52,6 +52,13 @@ Window lighting for me was especially difficult to work with because I live in a
 
 ![  YouTube Video Lighting ](https://images.wondershare.com/filmora/article-images/window-lighting-comparison.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Above are two freeze frames from one of Daniel's past window-lit vlogs. Although these two frames are both from the same vlog, you can see that the image on the right looks brighter due to clearer skies at that moment. These varying amounts of light is what you will have to deal with if you choose to light your YouTube video with window lighting.
 
 ### 2. Home Lighting
@@ -61,10 +68,10 @@ Home lighting is another source of light that many new YouTubers use. In the pas
 ![Mixed Lighting](https://images.wondershare.com/filmora/article-images/home-lighting-for-youtube-videos.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Notice how the color of Daniel's skin looks much more orange here (above) than the color of the skin in the two side-by-side window lighting examples? The side of the face also appears to look bluer. This all happened because he mixed up different color temperatures shining out of the two lights (cooler window light and warmer ceiling light).
@@ -72,13 +79,6 @@ Notice how the color of Daniel's skin looks much more orange here (above) than t
 Most home lighting is warmer in its color temperature. If you want to use your home lights without everything being orange-tinted, you’ll need to switch out your light bulbs for daytime LED light bulbs.
 
 Ceiling lights are also typically situated in the center of a room in order to light an entire room evenly. This is not likely to be the best location for your filming video. Since the ceiling light was directly above the face in the above example, you can see harder shadows beneath his cheeks.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2: Home Studio Lighting
 
@@ -88,25 +88,11 @@ If you rather not deal with all the window and home lighting challenges, you can
 
 The first thing you’ll want to do to set up studio lighting in your home is to pick a room to film in and eliminate as much external lighting as you can. Use blinds, curtains, towels, or any thick fabric to block sunlight from shining into your room.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082527/7443" target="_top" id="2082527">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082527" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082527/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2. 3-Point Lighting
 
 The most common setup for studio lighting is 3-point lighting. For this kind of lighting you’ll need three lights: a key light, a fill light, and a back light (also called a hair light).
 
 ![3-Point Lighting](https://images.wondershare.com/filmora/article-images/youtube-lighting-3-point-lighting.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Out of the three lights, the key light should be the brightest. When it is positioned to the left of you (as shown in the diagram above) your right side will have shadows.
 
@@ -128,7 +114,21 @@ For more information on lighting equipment, check out my [Top 17 Video Lighting 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100530/7443" target="_top" id="2100530">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100530/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657395/16446" target="_top" id="1657395">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657395" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657395/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -151,21 +151,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-boosting-meeting-impact-with-simple-snap-camera-steps/"><u>[New] 2024 Approved Boosting Meeting Impact with Simple Snap Camera Steps</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-enhancing-video-impact-interpreting-youtube-metrics-wisely/"><u>[New] 2024 Approved Enhancing Video Impact Interpreting YouTube Metrics Wisely</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-expert-insights-where-to-invest-in-youtube-creator-revenue/"><u>[New] 2024 Approved Expert Insights Where to Invest in YouTube Creator Revenue</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-key-techniques-for-a-thorough-review-of-youtube-stats/"><u>[New] 2024 Approved Key Techniques for a Thorough Review of YouTube Stats</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-launch-your-youtube-presence-step-by-step-guide/"><u>[New] 2024 Approved Launch Your YouTube Presence Step-by-Step Guide</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-obtain-exclusive-free-media-from-elite-4-youtube-clips/"><u>[New] 2024 Approved Obtain Exclusive Free Media From Elite 4 YouTube Clips</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-premium-capture-hardware-lists-for-optimal-streaming-experience/"><u>[New] 2024 Approved Premium Capture Hardware Lists for Optimal Streaming Experience</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-mov-file-saving-techniques-for-windows-11-users/"><u>[Updated] 2024 Approved .MOV File Saving Techniques for Windows 11 Users</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-how-to-revive-a-stuck-obs-fullscreen/"><u>[Updated] In 2024, How to Revive a Stuck OBS Fullscreen</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/2024-approved-create-viral-tiktok-content-step-by-step-templates-guide/"><u>2024 Approved Create Viral TikTok Content Step-by-Step Templates Guide</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-harnessing-online-platforms-beyond-youtube-to-30plus-communities/"><u>2024 Approved Harnessing Online Platforms Beyond YouTube to 30+ Communities</u></a></li>
-<li><a href="https://location-fake.techidaily.com/a-detailed-guide-on-faking-your-location-in-mozilla-firefox-on-itel-p40-drfone-by-drfone-virtual-android/"><u>A Detailed Guide on Faking Your Location in Mozilla Firefox On Itel P40 | Dr.fone</u></a></li>
-<li><a href="https://techtrends.techidaily.com/avoid-system-crashes-by-correctly-handling-msvcrt10dll-not-detected-warnings/"><u>Avoid System Crashes by Correctly Handling msvcrt10.dll Not Detected Warnings</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/-views-and-engagement-top-rated-online-keyword-generators/"><u>Boost Views and Engagement Top-Rated Online Keyword Generators</u></a></li>
-<li><a href="https://driver-install.techidaily.com/perfecting-system-integration-through-drivers/"><u>Perfecting System Integration Through Drivers</u></a></li>
-<li><a href="https://solve-info.techidaily.com/warum-fehlt-es-bei-deutschen-firmen-oftmals-an-einem-verstandnis-fur-rpa-was-zu-misserfolgen-fuhrt-insights-von-abbyy/"><u>Warum Fehlt Es Bei Deutschen Firmen Oftmals an Einem Verständnis Für RPA, Was Zu Misserfolgen Führt – Insights Von ABBYY</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/uilding-a-brand-on-youtube-navigating-through-top-video-marketing-methods-for-2024/"><u>[New] Building a Brand on YouTube Navigating Through Top Video Marketing Methods for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-quiet-echo-architects-6-unpublicized-voice-recorder-apps/"><u>[New] In 2024, Quiet Echo Architects 6 Unpublicized Voice Recorder Apps</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-breakdown-of-mr-beasts-financial-powerhouse/"><u>[Updated] In 2024, Breakdown of Mr. Beast's Financial Powerhouse</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-navigating-multi-platform-engagement-for-content-creators/"><u>[Updated] In 2024, Navigating Multi-Platform Engagement for Content Creators</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-vlc-media-recording-evaluation-for-2024/"><u>[Updated] VLC Media Recording Evaluation for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-the-essentials-to-carve-out-your-creative-space/"><u>2024 Approved The Essentials to Carve Out Your Creative Space</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-youtube-comment-finder-you-should-try/"><u>2024 Approved YouTube Comment Finder You Should Try</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/disabling-iphone-xs-max-parental-restrictions-withwithout-password-by-drfone-ios/"><u>Disabling iPhone XS Max Parental Restrictions With/Without Password</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/easy-to-use-online-editors-for-quick-postings-for-2024/"><u>Free, Easy-to-Use Online Editors for Quick Postings for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/how-to-reinitialize-bios-settings-using-the-cmos-reset-method/"><u>How To Reinitialize BIOS Settings Using the CMOS Reset Method</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-expert-tips-for-effortless-green-screening-in-kinemaster-software/"><u>In 2024, Expert Tips for Effortless Green Screening in KineMaster Software</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ng-through-mr-beasts-bank-statements-for-2024/"><u>Sifting Through Mr. Beast's Bank Statements for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/step-by-step-guide-preparing-and-exporting-premiere-pro-video-content-for-instagram-on-windows/"><u>Step-by-Step Guide: Preparing and Exporting Premiere Pro Video Content for Instagram on Windows</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/unlocking-computer-secrets-with-guidance-from-toms-authoritative-hardware-advice/"><u>Unlocking Computer Secrets with Guidance From Tom's Authoritative Hardware Advice</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/unveiling-the-latest-in-pc-parts-and-systems-the-toms-hardware-review/"><u>Unveiling the Latest in PC Parts and Systems: The Tom's Hardware Review</u></a></li>
 </ul></div>
 

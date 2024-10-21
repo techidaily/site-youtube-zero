@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Guide to Quick Eradication of Online YouTube Discussions"
-date: 2024-09-11T21:49:31.346Z
-updated: 2024-09-16T17:02:45.390Z
+date: 2024-10-16T22:53:17.274Z
+updated: 2024-10-20T16:40:09.795Z
 tags:
   - ai video
   - ai youtube
@@ -74,6 +74,13 @@ Fear not. Read on to know how to **delete all comments you posted on someone els
 1. When you reach the Comment History page, you will be able to find all comments you have ever posted. Scroll down to the comment you want to delete.
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047346/19272" target="_top" id="2047346">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047346" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047346/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How Do You Delete Your Comments from Your Phone?
 
 Don’t have a desktop handy? This section will tell you how you can delete your comments you posted on your or someone else’s YouTube video from your mobile.
@@ -108,20 +115,6 @@ To find your History from your desktop, you need to click on the three horizonta
 
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121334/18498" target="_top" id="2121334">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121334" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121334/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Delete All Your Posted YouTube Comments?
 
 You can also delete all comments you ever posted on any YouTube video by hiding your channel. When you do this, you can hide your video content temporarily. But it will irreversibly erase all your comments throughout YouTube. If you are curious, read on to know how you can do it.
@@ -132,15 +125,22 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
 
 ![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
 
@@ -153,6 +153,13 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 YouTube can be an unsafe place with unwanted comments everywhere. In this blog, we tried to show how you can get rid of comments on your and on others’ YouTube accounts. The next time you see an offensive comment or post something mistakenly, don’t forget to try our tips and make YouTube a safe platform again.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975836/19272" target="_top" id="1975836">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975836" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975836/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -173,5 +180,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/024-approved-shielding-your-media-what-does-unlisted-mean-in-youtube/"><u>[New] 2024 Approved Shielding Your Media What Does Unlisted Mean in YouTube?</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/chieving-success-in-your-youtube-endeavours-a-step-by-step-blueprint/"><u>[New] Achieving Success in Your YouTube Endeavours A Step-by-Step Blueprint</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-best-matched-sd-cards-to-boost-your-gopro-heros-performance/"><u>[New] Best Matched SD Cards to Boost Your GoPro HERO's Performance</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-delving-into-youtubes-complex-calculation-of-viewer-stats/"><u>[New] In 2024, Delving Into YouTube's Complex Calculation of Viewer Stats</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-preventing-shake-in-photographic-imagery/"><u>[New] Preventing Shake in Photographic Imagery</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/tarting-free-youtube-ad-campaigns-a-step-by-step-tutorial-for-2024/"><u>[New] Starting Free YouTube Ad Campaigns A Step-by-Step Tutorial for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/outube-to-animated-gifs-conversion-guide-online-tutorial-for-success-for-2024/"><u>[New] Youtube to Animated GIFs Conversion Guide Online Tutorial for Success for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-compact-movie-story-proposal/"><u>[Updated] Compact Movie Story Proposal</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-pro-level-video-editing-with-vivacut-full-review-and-guidebook/"><u>[Updated] Pro-Level Video Editing with VivaCut Full Review & Guidebook</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-beyond-obs-streamer-friendly-broadcast-software/"><u>2024 Approved Beyond OBS Streamer-Friendly Broadcast Software</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-stepwise-approach-to-update-meet-username-laptopmobile/"><u>2024 Approved Stepwise Approach to Update Meet Username (Laptop/Mobile)</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/drone-photography-showdown-dji-fpv-vs-gopro-x-for-2024/"><u>Drone Photography Showdown DJi FPV Vs GoPro X for 2024</u></a></li>
+<li><a href="https://driver-error.techidaily.com/effective-strategies-to-fetch-latest-drivers-for-your-hp-envy-20-laptop/"><u>Effective Strategies to Fetch Latest Drivers for Your HP Envy 20 Laptop</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ring-your-online-presence-post-strike/"><u>Restoring Your Online Presence Post-Strike</u></a></li>
+</ul></div>
 

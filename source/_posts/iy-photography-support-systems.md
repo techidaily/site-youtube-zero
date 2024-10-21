@@ -1,7 +1,7 @@
 ---
 title: "[New] DIY Photography Support Systems"
-date: 2024-10-09T09:21:11.643Z
-updated: 2024-10-14T20:25:25.548Z
+date: 2024-10-19T23:12:55.760Z
+updated: 2024-10-20T23:06:22.124Z
 tags:
   - ai video
   - ai youtube
@@ -55,20 +55,33 @@ Here it is with binder clips:
 
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938693/19272" target="_top" id="1938693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938693/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1630055">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037334/7443" target="_top" id="2037334">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037334" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037334/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **DIY adjustable tripod using books and a towel**
 
@@ -87,13 +100,6 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934188/19272" target="_top" id="1934188">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934188" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934188/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -103,10 +109,10 @@ Your wire should be fairly stiff and you’ll need three pieces the same length,
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576474/17382" target="_top" id="1576474">
-  <img src="//a.impactradius-go.com/display-ad/17382-1576474" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880972/19272" target="_top" id="1880972">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880972" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576474/17382" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880972/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
@@ -132,10 +138,10 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -159,18 +165,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-effortless-youtube-income-computations/"><u>[New] 2024 Approved Effortless YouTube Income Computations</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-precision-cutting-for-impressive-youtube-videos/"><u>[New] 2024 Approved Precision Cutting for Impressive YouTube Videos</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ow-to-optimize-video-quality-on-youtube-with-size-settings-for-2024/"><u>[New] How to Optimize Video Quality on YouTube with Size Settings for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-quotes-for-a-new-dimension-a-metaverse-visionary-collection/"><u>[New] Quotes for a New Dimension A Metaverse Visionary Collection</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/he-ultimate-guide-to-refining-your-youtube-videos-after-publishing/"><u>[New] The Ultimate Guide to Refining Your YouTube Videos After Publishing</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-swiftly-move-data-fast-and-reliable-methods-to-direct-files-onto-your-computer/"><u>[Updated] 2024 Approved Swiftly Move Data Fast and Reliable Methods to Direct Files Onto Your Computer</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-breakdown-of-youtubes-monetization-update/"><u>[Updated] Breakdown of YouTube's Monetization Update</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-ultimate-guide-to-melodic-content-on-instagram-for-2024/"><u>[Updated] The Ultimate Guide to Melodic Content on Instagram for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/engaging-audiences-full-rotational-cinematography/"><u>Engaging Audiences Full Rotational Cinematography</u></a></li>
-<li><a href="https://howto.techidaily.com/fixes-for-apps-keep-crashing-on-honor-x7b-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixes for Apps Keep Crashing on Honor X7b | Dr.fone</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/how-to-transfer-data-from-apple-iphone-7-to-new-iphone-15-drfone-by-drfone-transfer-from-ios/"><u>How To Transfer Data from Apple iPhone 7 to New iPhone 15 | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-honor-x50-gt-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Honor X50 GT | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/understanding-and-optimizing-your-social-media-videos-on-fb-for-2024/"><u>Understanding & Optimizing Your Social Media Videos on FB for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/omedic-choreography-producing-funny-mock-films/"><u>[New] Comedic Choreography Producing Funny Mock Films</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-8-best-screen-capture-tools-for-linux/"><u>[New] In 2024, 8 Best Screen Capture Tools for Linux</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-prime-choices-for-budget-conscious-consumers-4k-viewing/"><u>[New] Prime Choices for Budget-Conscious Consumers' 4K Viewing</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/he-key-to-sharing-success-youtubes-most-impactful-hashes/"><u>[New] The Key to Sharing Success YouTube's Most Impactful Hashes</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/op-5-video-and-picture-capturing-tools-for-smartphones/"><u>[New] Top 5 Video & Picture Capturing Tools for Smartphones</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-tutorial-uploading-youtube-to-instagram-stories-effortlessly-for-2024/"><u>[New] Tutorial Uploading YouTube to Instagram Stories Effortlessly for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-dance-directives-finding-ideal-dj-templates/"><u>[Updated] Dance Directives Finding Ideal DJ Templates</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-a-comparative-analysis-androids-finest-video-downloaders/"><u>[Updated] In 2024, A Comparative Analysis Android's Finest Video Downloaders</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-step-by-step-kinemaster-guidance-for-flawless-green-screen-techniques/"><u>[Updated] In 2024, Step-by-Step Kinemaster Guidance for Flawless Green Screen Techniques</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-mastering-youtubes-defense-confronting-critics/"><u>[Updated] Mastering YouTube's Defense Confronting Critics</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-unlock-more-views-the-art-of-editing-your-youtube-content/"><u>[Updated] Unlock More Views The Art of Editing Your YouTube Content</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/st-try-microphones-for-exceptional-asmr-sounds-for-2024/"><u>10 Must-Try Microphones for Exceptional ASMR Sounds for 2024</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/2024-approved-become-a-pro-at-live-streaming-on-discord-with-our-simple-steps/"><u>2024 Approved Become a Pro at Live Streaming on Discord with Our Simple Steps</u></a></li>
+<li><a href="https://location-fake.techidaily.com/a-detailed-guide-on-faking-your-location-in-mozilla-firefox-on-nokia-g310-drfone-by-drfone-virtual-android/"><u>A Detailed Guide on Faking Your Location in Mozilla Firefox On Nokia G310 | Dr.fone</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/ideal-vpn-providers-for-unlocking-worldwide-streams-on-netflix/"><u>Ideal VPN Providers for Unlocking Worldwide Streams on Netflix</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ring-yoga-top-10-youtube-resources-for-enlightened-living-for-2024/"><u>Mastering Yoga Top 10 YouTube Resources for Enlightened Living for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/metaverse-milestones-top-10-movies-that-transcend-our-own-universe-for-2024/"><u>Metaverse Milestones Top 10 Movies That Transcend Our Own Universe for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ifiable-quirks-yearly-graphed-tidbits-from-yt-2017/"><u>Quantifiable Quirks Yearly Graphed Tidbits From YT (2017)</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ltimate-checklist-of-key-elements-in-tagging-a-video/"><u>The Ultimate Checklist of Key Elements in Tagging a Video</u></a></li>
 </ul></div>
 

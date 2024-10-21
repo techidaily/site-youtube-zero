@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] End-Screen Essentials for Social Media Success on YouTube for 2024\""
-date: 2024-10-14T01:22:35.061Z
-updated: 2024-10-15T07:47:04.383Z
+date: 2024-10-15T22:40:02.308Z
+updated: 2024-10-21T00:25:37.178Z
 tags:
   - ai video
   - ai youtube
@@ -90,13 +90,6 @@ Here’s one for the Minecraft fans:
 
 Another way to get your YouTube end screens for free, of course, is to make them yourself. Canva is a great free online design tool for this.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: How To Build Your Outro For Free (Step-by-step Canva Tutorial)
 
 1\. First, you have to sign up with an e-mail address
@@ -106,13 +99,6 @@ Another way to get your YouTube end screens for free, of course, is to make them
 2\. Once logged in, select “use custom dimensions” and plug in “1920” pixels as your width and “1080” pixels as your height (this, of course, may vary depending on the resolution of your video project).
 
 ![create-outro-end-screen-with-canva  ](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 3\. After clicking “Design!,” a new browser will open with a blank canvas.
 
@@ -128,15 +114,22 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![stretch-end-screen-templates-canva ](https://images.wondershare.com/filmora/article-images/stretch-end-screen-templates-canva.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 7\. Insert your own shapes, lines, colours, images, and text over the image.
 
 ![adjust-end-screen-templates-in-canva](https://images.wondershare.com/filmora/article-images/adjust-end-screen-templates-in-canva.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
-  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087409/7443" target="_top" id="2087409">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087409" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087409/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 8\. When you’re done, delete the original image so that you’re left with just your own design. Go ahead and click “download.”
@@ -144,10 +137,10 @@ Another way to get your YouTube end screens for free, of course, is to make them
 ![youtube-end-screen-made-with-canva](https://images.wondershare.com/filmora/article-images/youtube-end-screen-made-with-canva.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 If you're looking for other options to design your end screen, make sure to also check out our article on [The YouTube Outro Guide](https://tools.techidaily.com/wondershare/filmora/download/). To edit the YouTube video with more effects and templates, you can try [Wondershare Filmora video editor.](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -155,6 +148,13 @@ If you're looking for other options to design your end screen, make sure to also
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2044583/7443" target="_top" id="2044583">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044583" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044583/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -177,18 +177,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-elevate-reach-optimal-strategies-for-crafting-youtube-titles-and-tags/"><u>[New] 2024 Approved Elevate Reach Optimal Strategies for Crafting YouTube Titles & Tags</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-platforms-showcasing-googles-video-partner-program/"><u>[New] 2024 Approved Platforms Showcasing Google's Video Partner Program</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/-step-by-step-approach-to-best-youtube-thumbnails-for-2024/"><u>[New] A Step-by-Step Approach to Best YouTube Thumbnails for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-prime-drone-selections-to-enhance-gopro-videos/"><u>[New] In 2024, Prime Drone Selections to Enhance GoPro Videos</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-14-to-other-iphone-14-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone 14 to other iPhone 14 devices? | Dr.fone</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-design-mastery-in-motion-crafting-intriguing-podcast-covers/"><u>In 2024, Design Mastery in Motion Crafting Intriguing Podcast Covers</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-can-i-use-a-fake-gps-without-mock-location-on-xiaomi-14-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Use a Fake GPS Without Mock Location On Xiaomi 14? | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-pause-life360-location-sharing-for-xiaomi-redmi-note-12-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How To Pause Life360 Location Sharing For Xiaomi Redmi Note 12 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-ultimate-guide-from-vivo-v30-pro-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide from Vivo V30 Pro FRP Bypass</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/iphones-viewpoint-vista-selecting-superior-shots-for-images-for-2024/"><u>IPhone's Viewpoint Vista Selecting Superior Shots for Images for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/-and-easy-guide-to-turn-videos-into-animated-gif-delights-for-2024/"><u>Quick & Easy Guide to Turn Videos Into Animated GIF Delights for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/-creation-of-fortnite-visuals/"><u>Quick Creation of Fortnite Visuals</u></a></li>
-<li><a href="https://win-guides.techidaily.com/ultimate-guide-how-to-safely-duplicate-an-sd-card-using-free-tools-in-windows/"><u>Ultimate Guide: How to Safely Duplicate an SD Card Using Free Tools in Windows</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ourly-heavy-hitters-top-ten-youtube-video-rankings-in-a-day-for-2024/"><u>[New] Hourly Heavy Hitters Top Ten YouTube Video Rankings in a Day for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-mastering-free-photo-frame-video-downloads/"><u>[Updated] In 2024, Mastering Free Photo Frame Video Downloads</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-tracing-your-steps-how-to-negative-play-on-instagram/"><u>[Updated] In 2024, Tracing Your Steps How to Negative-Play on Instagram</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-loop-friendly-tv-setups-integrating-youtube-videos-for-2024/"><u>[Updated] Loop-Friendly TV Setups Integrating YouTube Videos for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-editmaster-app/"><u>2024 Approved EditMaster App</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ructing-captivating-youtube-music-selections/"><u>Constructing Captivating YouTube Music Selections</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ing-success-on-youtube-standard-studio-or-beta/"><u>Crafting Success on YouTube Standard Studio or Beta</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-your-zte-axon-40-lite-location-on-twitter-drfone-by-drfone-virtual-android/"><u>How to Change your ZTE Axon 40 Lite Location on Twitter | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/line-video-streaming-worth-extra-costs-see-how-youtube-plans-fit-in/"><u>Is Online Video Streaming Worth Extra Costs? See How YouTube Plans Fit In</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/loom-capture-toolkit-essential-screen-casts-tips-for-2024/"><u>Loom Capture Toolkit Essential Screen Casts Tips for 2024</u></a></li>
+<li><a href="https://win-able.techidaily.com/pc-gaming-woes-resolved-dealing-with-ongoing-rogue-company-malfunctions/"><u>PC Gaming Woes Resolved: Dealing with Ongoing Rogue Company Malfunctions</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/perfect-game-choices-to-eliminate-boring-moments-top-10-listed-here/"><u>Perfect Game Choices to Eliminate Boring Moments, Top 10 Listed Here!</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/top-rated-avchd-editors-expert-recommendations-for-2024/"><u>Top-Rated AVCHD Editors Expert Recommendations for 2024</u></a></li>
 </ul></div>
 

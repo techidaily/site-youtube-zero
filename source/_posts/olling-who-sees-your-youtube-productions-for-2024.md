@@ -1,7 +1,7 @@
 ---
 title: "Controlling Who Sees Your Youtube Productions for 2024"
-date: 2024-10-12T07:19:46.222Z
-updated: 2024-10-15T01:25:55.961Z
+date: 2024-10-17T20:13:53.987Z
+updated: 2024-10-20T18:36:54.068Z
 tags:
   - ai video
   - ai youtube
@@ -66,10 +66,10 @@ thumbnail: https://thmb.techidaily.com/1766f7bb7d62dccbd0941bc3a3d98f6308c902e15
 ![youtube privacy setting](https://images.wondershare.com/filmora/article-images/youtube-privacy-setting.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluetties.sjv.io/c/5597632/2141688/17094" target="_top" id="2141688">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141688" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141688/17094" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: How to Change Privacy Settings
@@ -82,13 +82,6 @@ thumbnail: https://thmb.techidaily.com/1766f7bb7d62dccbd0941bc3a3d98f6308c902e15
 
 ![upload youtube video privacy](https://images.wondershare.com/filmora/article-images/upload-youtube-video-privacy.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975821/19272" target="_top" id="1975821">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975821" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975821/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Method 2:**
 
  To change the privacy setting later, go to Creator Studio, then Video Manager. On the right-hand side you’ll see one of three icons: a world, a chain, and a lock. The world means **"public"**, the chain means **"unlisted"**, and the lock is for **"private"**.
@@ -97,6 +90,13 @@ thumbnail: https://thmb.techidaily.com/1766f7bb7d62dccbd0941bc3a3d98f6308c902e15
 
  To change the privacy, click the icon. You’ll be taken to the video's info and settings page. Down below where you see the thumbnails you'll see the selected privacy setting. Click this to open a drop down menu, and select your desired privacy level.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3: Sharing Private Videos
 
  If a video is set to "private', you'll have the option to share it with specific people. Below where it says "private" on the info and settings page you'll see a button labeled "share". Click this and type in the email addresses of the people you want to be able to watch the video. You’ll also have the option of notifying the people via email that you’ve shared the video with them.
@@ -104,10 +104,10 @@ thumbnail: https://thmb.techidaily.com/1766f7bb7d62dccbd0941bc3a3d98f6308c902e15
 ![share youtube privacy video](https://images.wondershare.com/filmora/article-images/share-private-video.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -119,10 +119,10 @@ thumbnail: https://thmb.techidaily.com/1766f7bb7d62dccbd0941bc3a3d98f6308c902e15
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151865/7443" target="_top" id="2151865">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151865" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151865/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -146,21 +146,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-the-changing-tide-of-youtube-earnings/"><u>[New] 2024 Approved The Changing Tide of YouTube Earnings</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-the-shorter-path-cutting-video-duration-on-youtube/"><u>[New] 2024 Approved The Shorter Path Cutting Video Duration on YouTube</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-unveiling-the-secrets-of-successful-youtube-live-games/"><u>[New] 2024 Approved Unveiling the Secrets of Successful YouTube Live Games</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-your-pathway-to-youtube-live-success-stories/"><u>[New] 2024 Approved Your Pathway to YouTube Live Success Stories</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/apples-rivals-emerge-as-meta-and-lg-unveil-cutting-edge-quest-pro-style-virtual-reality-gear-zdnet-insights/"><u>Apple's Rivals Emerge as Meta and LG Unveil Cutting-Edge Quest Pro-Style Virtual Reality Gear | ZDNET Insights</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/download-the-latest-intel-thunderbolt-controller-drivers-with-ease/"><u>Download the Latest Intel Thunderbolt Controller Drivers with Ease!</u></a></li>
-<li><a href="https://techtrends.techidaily.com/how-to-address-and-solve-missing-python24dll-in-windows-systems/"><u>How to Address and Solve 'Missing Python24.dll' In Windows Systems</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-achieving-broadcast-excellence-your-guide-to-youtubes-live-360-videos/"><u>In 2024, Achieving Broadcast Excellence Your Guide to YouTube's Live 360 Videos</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-channel-gain-traction-comprehensive-guide-to-youtubes-featured-placement/"><u>In 2024, Channel Gain Traction Comprehensive Guide to YouTube's Featured Placement</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-downloader-essentials-the-best-tools-for-offline-viewing/"><u>In 2024, Downloader Essentials The Best Tools For Offline Viewing</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/is-gpt-effective-for-text-polishing/"><u>Is GPT Effective for Text Polishing?</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/mastering-instagram-borders-a-list-of-top-quality-apps-and-tools-for-2024/"><u>Mastering Instagram Borders A List of Top-Quality Apps & Tools for 2024</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/rootjunky-apk-to-bypass-google-frp-lock-for-vivo-y02t-by-drfone-android/"><u>Rootjunky APK To Bypass Google FRP Lock For Vivo Y02T</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/the-ultimate-chatbot-showdown-gpt-microsoft-bing-ai-google-bard/"><u>The Ultimate Chatbot Showdown: GPT, Microsoft Bing AI, Google Bard</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/unlocking-your-understanding-of-copyright-on-instagram-for-2024/"><u>Unlocking Your Understanding of Copyright on Instagram for 2024</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/updated-2024-approved-avidemux-audio-troubleshooting-quick-solutions/"><u>Updated 2024 Approved Avidemux Audio Troubleshooting Quick Solutions</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-adding-time-bound-elements-to-your-obs-productions/"><u>[New] 2024 Approved Adding Time-Bound Elements to Your OBS Productions</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-data-driven-decision-making-in-your-youtube-shorts-strategy-for-2024/"><u>[Updated] Data-Driven Decision Making in Your YouTube Shorts Strategy for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-a-deep-dive-into-the-fundamentals-of-youtube-shorts/"><u>2024 Approved A Deep Dive Into The Fundamentals of YouTube Shorts</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-improve-your-youtube-description-using-amazing-templates/"><u>2024 Approved Improve Your YouTube Description Using Amazing Templates</u></a></li>
+<li><a href="https://fake-location.techidaily.com/all-must-knows-to-use-fake-gps-go-location-spoofer-on-vivo-x-flip-drfone-by-drfone-virtual-android/"><u>All Must-Knows to Use Fake GPS GO Location Spoofer On Vivo X Flip | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/avoid-keyword-stuffing-ensure-that-your-title-flows-naturally-with-keywords-incorporated-in-a-way-that-feels-natural-to-the-reader-overstuffing-may-result-i74/"><u>Avoid Keyword Stuffing: Ensure that Your Title Flows Naturally, with Keywords Incorporated in a Way that Feels Natural to the Reader. Overstuffing May Result in Penalties From Google's Algorithms or Simply Look Unappealing to Users</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/bumble-dating-hurdles-solved-fixing-the-no-match-conundrum/"><u>Bumble Dating Hurdles Solved: Fixing the No-Match Conundrum</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-engage-and-captivate-viewers-ultimate-tips-for-cutting-edge-youtube-edits/"><u>In 2024, Engage and Captivate Viewers Ultimate Tips for Cutting-Edge Youtube Edits</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ful-montage-mastering-7-comical-video-vignettes-for-2024/"><u>Mirthful Montage Mastering 7 Comical Video Vignettes for 2024</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/proven-ways-to-fix-there-was-a-problem-parsing-the-package-on-nokia-c12-plus-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Proven Ways to Fix There Was A Problem Parsing the Package on Nokia C12 Plus | Dr.fone</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/solved-warning-camera-failed-on-infinix-hot-40-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Solved Warning Camera Failed on Infinix Hot 40 Pro | Dr.fone</u></a></li>
 </ul></div>
 

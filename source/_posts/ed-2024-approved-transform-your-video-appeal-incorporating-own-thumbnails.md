@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Transform Your Video Appeal  Incorporating Own Thumbnails\""
-date: 2024-10-11T04:58:52.291Z
-updated: 2024-10-14T20:31:22.246Z
+date: 2024-10-17T22:24:29.465Z
+updated: 2024-10-20T16:41:22.242Z
 tags:
   - ai video
   - ai youtube
@@ -46,13 +46,6 @@ We have just made a video tutorial about how to make a YouTube video thumbnail, 
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
-  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Part 1: How to Make a Thumbnail for YouTube and Add Custom Thumbnails to YouTube
 
 After you've verified your account and made your thumbnail, it's finally time to upload it to your video and make a custom thumbnail. To do this, go to Creator Studio and then Video Manager. You'll see a button labeled "Edit" next to each video, and an arrow pointing down. Click **Thumbnail Editor**.
@@ -70,6 +63,13 @@ In Thumbnail Editor, you can use the still images in the video as a thumbnail, c
 3\. Click **Next** to save the thumbnail and you will see how the thumbnail displays on different platforms such as YouTube, Facebook and Twitter. Click **Save** to save the video thumbnail.
 
 In this way, you can add a custom thumbnail to the new videos and change the video thumbnail of the previously uploaded videos.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2052063/7443" target="_top" id="2052063">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052063" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052063/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Part 2: Thumbnail Makers to Create Custom YouTube Thumbnails
 
@@ -101,16 +101,16 @@ In this part, we’ll be going over how to change a thumbnail image on YouTube. 
 
 ![ YouTube Studio button](https://images.wondershare.com/filmora/article-images/change-youtube-thumbnail-find-youtube-studio.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * On the left side of the page, click on **Videos** and then find your video and click on the **details** button.
 
 ![Change YouTube Video Info](https://images.wondershare.com/filmora/article-images/change-youtube-thumbnail-from-video-details.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151872/7443" target="_top" id="2151872">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151872" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151872/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 * Find the Thumbnail section in the basic video details tab, and then click the **Upload thumbnail** to select the image that you want to upload.
 * Finally, click on the **Save** button on the right upper corner. And just like that, in seven easy steps, we’re done changing the thumbnail of a YouTube video.
@@ -118,19 +118,6 @@ In this part, we’ll be going over how to change a thumbnail image on YouTube. 
 ![Change YouTube Video Thumbnail](https://images.wondershare.com/filmora/article-images/change-thumbnail-on-youtube.jpg)
 
 If you don't have an image to upload but you want to check out some online resources to make your own, check out our [Top YouTube Thumbnail Makers](https://tools.techidaily.com/wondershare/filmora/download/).
-
-<!-- affiliate ads begin -->
-<span id="1424528">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 4: Things You Need to Know Before Making a Custom Thumbnail
 
@@ -148,13 +135,20 @@ To make a creative YouTube video, you may also need a powerful video editing sof
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134230/18498" target="_top" id="2134230">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134230" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134230/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 You may also like: [Best video editing software for YouTube](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 5: Tips on How to Make Good YouTube Thumbnails - Get More Clicks
 
@@ -167,6 +161,13 @@ Your thumbnail should tell a story; it should be clear from looking at it what v
 Very few people intentionally use thumbnails that have nothing to do with the content of their videos – i.e, most people understand not to use a picture of a kitten in the thumbnail for their tech review, unless maybe their kitten is the one doing the review (which would be adorable, someone should do that). People who want serious advice won’t click, and people who click to see a kitten will click away fast.
 
 ![ YouTube Thumbnail Should be relevant](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-should-stay-on-topic.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 _This thumbnail had better be for a kitten’s iPhone review video or people will click away. Fast._
 
@@ -212,13 +213,6 @@ Beyond simply using colors that are different from other people’s colors, you 
 
 ![ YouTube Thumbnail Making Tips](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-use-color.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 _Maybe don’t use a lot of green and yellow in the thumbnail for your angry video rant?_
 
 #### 6. Make Your Text Huge
@@ -226,6 +220,19 @@ _Maybe don’t use a lot of green and yellow in the thumbnail for your angry vid
 Usually, you’ll want to use a bit of text in your thumbnail. It might be the full title of your video, or just a keyword or phrase. You don’t want to use a full sentence because you won’t have room for it if you’re using huge text.
 
 The reason you should use huge text is so that people can read it. Remember that when people see your thumbnail in their search results, it will be much smaller than it will look while you are creating it. Text that looks big enough while you are creating your thumbnail will be much smaller when people are actually trying to read it, and that goes double for viewers watching on their small smartphone screens.
+
+<!-- affiliate ads begin -->
+<span id="1160850">
+					<video width="576" height="324" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Frequently Asked Questions about YouTube Thumbnail
 
@@ -246,13 +253,6 @@ Normally, if you have a good internet connection, you can see the thumbnail is c
 When you get more people watching your video for longer, it increases your watch time and tells YouTube’s search algorithm ‘people like this, rank it higher’. Being ranked higher gets you more views, and even more watch time. It’s a wonderful cycle that all begins with a great thumbnail (paired with a good title and the right tags).
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -275,18 +275,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-knowledge.techidaily.com/new-gimbal-guide-industrys-favorites/"><u>[New] Gimbal Guide Industry's Favorites</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-casino-contestant-commentary/"><u>[New] In 2024, CASINO CONTESTANT COMMENTARY</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/2024-approved-secrets-unveiled-saving-twitter-gifs-for-later-use/"><u>2024 Approved Secrets Unveiled Saving Twitter GIFs for Later Use</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/chatgpt-understanding-shared-links-and-their-functionality/"><u>ChatGPT: Understanding Shared Links & Their Functionality</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/enhancing-online-meetings-through-ai-assistance/"><u>Enhancing Online Meetings Through AI Assistance</u></a></li>
-<li><a href="https://win-community.techidaily.com/guida-completa-al-backup-e-ripristino-dellimmagine-di-sistema-in-windows-11/"><u>Guida Completa Al Backup E Ripristino Dell'immagine Di Sistema in Windows 11</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-a-comprehensive-guide-to-making-gifs-from-youtube-tracks/"><u>In 2024, A Comprehensive Guide to Making GIFs From YouTube Tracks</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-building-blocks-for-movie-making-youtubes-framework-and-more/"><u>In 2024, Building Blocks for Movie Making YouTube's Framework & More</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-capturing-the-essence-of-hits-shortform-music-video-tips/"><u>In 2024, Capturing the Essence of Hits Shortform Music Video Tips</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-divergent-paths-in-video-sharing-comparing-igtv-and-youtube/"><u>In 2024, Divergent Paths in Video Sharing Comparing IGTV & YouTube</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-mastering-pip-navigating-netflixs-floating-screen-functionality/"><u>In 2024, Mastering PIP Navigating Netflix's Floating Screen Functionality</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/organizing-your-skype-conversations-windowsmac-edition-for-2024/"><u>Organizing Your Skype Conversations Windows/Mac Edition for 2024</u></a></li>
-<li><a href="https://win-able.techidaily.com/overcoming-the-pc-shutdown-glitches-while-playing-football-manager-nineteen-twenty-two/"><u>Overcoming the PC Shutdown Glitches While Playing Football Manager Nineteen Twenty-Two</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/levate-your-youtube-content-with-7-premium-free-audio-sounds/"><u>[New] Elevate Your YouTube Content With 7 Premium, Free Audio Sounds</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nlightened-exercits-discovering-the-most-inspiring-yogis-online-for-2024/"><u>[New] Enlightened Exercits - Discovering the Most Inspiring Yogis Online for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-best-free-downloaders-download-youtube-thumbnail-for-freeonlinewinmac/"><u>[New] In 2024, Best Free Downloaders Download YouTube Thumbnail for Free[Online/Win/Mac]</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-winning-windows-animation-the-best-9-apps-to-record-dynamic-graphics/"><u>[Updated] 2024 Approved Winning Windows Animation The Best 9 Apps to Record Dynamic Graphics</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-elevate-video-appeal-crafting-unforgettable-thumbnail-images/"><u>[Updated] Elevate Video Appeal Crafting Unforgettable Thumbnail Images</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-discerning-t-series-profit-mechanisms-from-youtube-views/"><u>[Updated] In 2024, Discerning T-Series' Profit Mechanisms From Youtube Views</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-affiliate-acquaintanceships-elevating-budget-channels-with-ease/"><u>2024 Approved Affiliate Acquaintanceships Elevating Budget Channels with Ease</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-subscribe-smart-hundreds-for-under-5/"><u>2024 Approved Subscribe Smart - Hundreds for Under $5</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-motorola-moto-g14-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Motorola Moto G14 without Losing Data | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-a-perfect-guide-to-remove-or-disable-google-smart-lock-on-vivo-x-fold-2-by-drfone-android/"><u>In 2024, A Perfect Guide To Remove or Disable Google Smart Lock On Vivo X Fold 2</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-discovering-top-tools-the-2023-guide-to-browser-capture-tech/"><u>In 2024, Discovering Top Tools The 2023 Guide to Browser Capture Tech</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-find-my-friends-work-on-tecno-phantom-v-fold-drfone-by-drfone-virtual-android/"><u>In 2024, Does find my friends work on Tecno Phantom V Fold | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-free-uploads-more-views-youtubes-easily-overlooked-hacks/"><u>In 2024, Free Uploads, More Views YouTube's Easily Overlooked Hacks</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-ranked-the-best-7-android-adblockers-for-screen-freedom/"><u>In 2024, Ranked The Best 7 Android AdBlockers for Screen Freedom</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-small-shop-success-through-social-video-content/"><u>In 2024, Small Shop Success Through Social Video Content</u></a></li>
+<li><a href="https://techtrends.techidaily.com/optimizing-your-instagram-outreach-through-innovative-meta-artificial-intelligence-solutions/"><u>Optimizing Your Instagram Outreach Through Innovative Meta Artificial Intelligence Solutions</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/table-videos-on-demand-leveraging-analytics-and-ad-revenue-everywhere/"><u>Profitable Videos on Demand Leveraging Analytics & Ad Revenue Everywhere</u></a></li>
+<li><a href="https://techidaily.com/simple-ways-to-get-lost-music-back-from-vivo-x-flip-by-fonelab-android-recover-music/"><u>Simple ways to get lost music back from Vivo X Flip</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-2024-approved-watermark-free-video-merging-top-7-tools-compared/"><u>Updated 2024 Approved Watermark-Free Video Merging Top 7 Tools Compared</u></a></li>
 </ul></div>
 

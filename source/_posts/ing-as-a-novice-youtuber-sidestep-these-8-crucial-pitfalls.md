@@ -1,7 +1,7 @@
 ---
 title: "Thriving as a Novice YouTuber? Sidestep These 8 Crucial Pitfalls!"
-date: 2024-09-13T00:03:03.286Z
-updated: 2024-09-16T23:52:39.159Z
+date: 2024-10-13T18:11:15.915Z
+updated: 2024-10-20T21:03:30.174Z
 tags:
   - ai video
   - ai youtube
@@ -50,10 +50,10 @@ Another mistake I made with my first YouTube channel was choosing an ineffective
 Choose a custom URL with words that can’t be confused with other similar-sounding words. For consistency across all your different social media accounts, try to choose a custom URL that matches the usernames of all your other social media channels. If the username you want isn’t available, then keep on trying to come up with a good name that is available. When you’ve secured the same username across all your different social media channels, you can then very simply promote yourself and all your social media channels by displaying just the social media icons followed by your one username.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
+  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. Coming up with titles that won't get searched
@@ -65,10 +65,10 @@ Big YouTubers can take advantage of non-searched, curiosity evoking titles like 
 As an example, let's suppose you vlogged your time backpacking around Europe last summer. Don't title your YouTube video "My Summer Backpacking Trip." Instead, title it "Going Up The Eiffel Tower | Beautiful View of Paris!" This way, all the people who are curious about visiting Paris, the Eiffel Tower, and seeing what the view is like from the top of the Eiffel Tower might find your video.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4\. Failing to have a thumbnail strategy
@@ -85,6 +85,13 @@ New YouTubers often make the mistake of having weak intros. Starting at the begi
 
 To read more on how some of the most successful YouTubers effectively do their intros, check out my blogpost on “[How To Edit YouTube Videos Like a YouTuber](https://tools.techidaily.com/wondershare/filmora/download/).”
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1186864/12108" target="_top" id="1186864">
+  <img src="//a.impactradius-go.com/display-ad/12108-1186864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186864/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 6\. Forgetting to engage with subscribers
 
 An important thing to do as a new YouTuber is engaging with your subscribers. Some new YouTubers, though, are so focused and busy with the production side of things that they forget to do the community side of things, including responding to comments. By not responding to comments as a new YouTuber, you hurt your potential to get more comments consistently from your subscribers. If your video’s comments section is very active, YouTube ranks your video higher in the videos it recommends to viewers.
@@ -97,6 +104,13 @@ YouTube isn’t the only social media platform that people are spending their ti
 
 New YouTubers sometimes forget to promote their videos and channel using other social media platforms. Consequently, they miss out on the opportunity to get views from multiple sources of social media.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 8\. Spamming comments
 
 Commenting on other YouTube videos is another way to get your channel discovered from people reading over comments. If your profile picture and comment appears interesting enough, out of curiosity, people just might click your username to have a look at your channel.
@@ -106,13 +120,6 @@ But rather than leaving interesting comments that are related to the video, rath
 Spam comments annoy YouTubers. It would be much more beneficial to your channel to build good relationships with other YouTubers to possibly collaborate on a video together in the future.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120864/26400?prodsku=Mercury" target="_top" id="2120864">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120864" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120864/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -133,5 +140,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/hannel-growth-hacks-the-ultimate-list-of-5-youtube-strategies/"><u>[New] Channel Growth Hacks – The Ultimate List of 5 YouTube Strategies</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ilmoras-recipe-for-captivating-youtube-trailers/"><u>[New] Filmora’s Recipe for Captivating YouTube Trailers</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ighest-rated-smartphone-camera-and-recording-apps-iphone-vs-android-for-2024/"><u>[New] Highest Rated Smartphone Camera & Recording Apps IPhone vs Android for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-elevate-your-youtube-presence-banners-for-gamers/"><u>[Updated] Elevate Your YouTube Presence Banners for Gamers</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-10-must-have-keyword-gurus-for-video-success/"><u>[Updated] In 2024, 10 Must-Have Keyword Gurus for Video Success</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-overcoming-obstacles-in-iphone-xs-facial-detection-system/"><u>[Updated] Overcoming Obstacles in iPhone X’s Facial Detection System</u></a></li>
+<li><a href="https://driver-download.techidaily.com/get-the-latest-nvidia-rtx-2070-drivers-for-enhanced-gaming-on-windows-10-8-and-7-systems/"><u>Get the Latest NVIDIA RTX 2070 Drivers for Enhanced Gaming on Windows 10, 8 & 7 Systems</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-solutions-to-spy-on-poco-m6-5g-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>In 2024, Solutions to Spy on Poco M6 5G with and without jailbreak | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-ultimate-list-of-ios-tools-for-erasing-intrusive-images/"><u>In 2024, The Ultimate List of iOS Tools for Erasing Intrusive Images</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/install-techkeys-compatible-bluetooth-usb-driver-on-pc-win-1178/"><u>Install Techkey's Compatible Bluetooth USB Driver on PC: Win 11/7/8</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ning-loop-transferring-youtube-playlists-fast-for-2024/"><u>Lightning Loop Transferring YouTube Playlists Fast for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/razer-synapse-wont-launch-here-are-the-fixes-you-need/"><u>Razer Synapse Won't Launch? Here Are the Fixes You Need!</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/solved-windows-1111-slow-boot/"><u>Solved: Windows 11/11 Slow Boot</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ltimate-beginners-guide-to-creating-engaging-short-form-videos/"><u>The Ultimate Beginner's Guide to Creating Engaging Short-Form Videos</u></a></li>
+<li><a href="https://techidaily.com/video-file-repair-how-to-fix-corrupted-video-files-of-realme-10t-5g-by-stellar-video-repair-mobile-video-repair/"><u>Video File Repair - How to Fix Corrupted video files of Realme 10T 5G?</u></a></li>
+</ul></div>
 

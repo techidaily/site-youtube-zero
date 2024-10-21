@@ -1,7 +1,7 @@
 ---
 title: "Solving the 'Relinking Failed' Error in Granblue Fantasy: A Step-by-Step Guide"
-date: 2024-10-08T23:28:55.218Z
-updated: 2024-10-14T16:48:22.216Z
+date: 2024-10-16T23:09:20.981Z
+updated: 2024-10-20T19:25:42.622Z
 tags:
   - win11
   - win10
@@ -51,6 +51,13 @@ _Image source: battle.net_
 
  After applying the changes, open Battle.net. When the UAC prompt shows up, simply click**Yes** . If it isn’t opening, don’t fret! Below are some other methods you can try.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Allow Battle.net through Windows Firewall
 
  Windows Firewall is an important part of a layered security model that helps protect your computer from malicious attacks by blocking unauthorized network traffic flowing into or out of the local device. However, sometimes it may mistakenly identify your legitimate programs such as Battle.net as security threats and prevent them from launching. To verify if that’s your case, you should perform the steps as follows to manually add Battle.net to your Windows Firewall whitelist.
@@ -60,6 +67,13 @@ _Image source: battle.net_
 
 ![](https://images.drivereasy.com/wp-content/uploads/2022/12/how-to-allow-a-program-through-Windows-Firewall-1.jpg)
 3. From the left navigation pane, click**Allow an app or feature through Windows Defender Firewall** .  
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2022/12/how-to-allow-a-program-through-Windows-Firewall-2.jpg)
 4. Scroll down and check if Battle.net is on the list. If it isn’t, proceed to add it to the exception list.
@@ -71,6 +85,13 @@ _Image source: battle.net_
 ![](https://images.drivereasy.com/wp-content/uploads/2022/12/how-to-allow-a-program-through-Windows-Firewall-4.jpg)
 7. Click**Browse…** and go to the installation folder.  
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144309/7443" target="_top" id="2144309">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144309/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2022/12/how-to-allow-a-program-through-Windows-Firewall-5.jpg)  
 
  If you have no idea of where the installation folder is, simply right-click on the shortcut and select**Open file location** .  
@@ -81,12 +102,33 @@ _Image source: battle.net_
 ![](https://images.drivereasy.com/wp-content/uploads/2022/12/how-to-allow-a-program-through-Windows-Firewall-6.jpg)
 9. When it’s located, click**Add** .  
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2022/12/how-to-allow-a-program-through-Windows-Firewall-7.jpg)
 10. Now make sure Battle.net is added to the list and tick**Domain** ,**Private** , and**Public** . Once you’re done, click**OK** .  
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2022/12/how-to-allow-a-program-through-Windows-Firewall-8.jpg)
 
 Now open Battle.net. If it isn’t opening, try the next fix below.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 3\. Close conflicting programs running in the background
 
@@ -102,13 +144,6 @@ Now open Battle.net. If it isn’t opening, try the next fix below.
 
  When you’re done, open the agent and check if your problem has been resolved. If it persists, move on to the next fix.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082520/7443" target="_top" id="2082520">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082520" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082520/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 4\. Download & install all Windows updates
 
  Your issue may have something to do with your outdated Windows version. To troubleshoot your issue, you should download and install all Windows updates, which usually bring new features and most importantly, bug fixes. To do this, follow the instructions below.
@@ -118,23 +153,9 @@ Now open Battle.net. If it isn’t opening, try the next fix below.
 ![how to download and install Windows updates](https://images.drivereasy.com/wp-content/uploads/2021/01/check-for-updates.png)
 2. Click**Check for updates** . Then it will start checking for updates. When updates are available, follow the on-screen instructions to download and install them for your system.  
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2021/12/click-on-the-Check-for-updates-tab.png)
 
  After you’ve finished the process, restart your PC and try to launch the agent. If it still fails to open properly, try the next fix below.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043617/7443" target="_top" id="2043617">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043617" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043617/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 5\. Update your drivers
 
@@ -151,13 +172,6 @@ You can update your drivers via the Device Manager:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2022/08/how-to-open-the-Device-Manager-Run-Command）.png)
 3. Click on the**arrow >** to expand the section. Then right-click on the device that you’re going to update the driver for and select**Update driver** .  
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2022/12/how-to-update-drivers-via-the-Device-Manager.jpg)
 
@@ -177,16 +191,16 @@ Then follow the on-screen instructions to get the updates.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2022/02/de-update-all-rtx-3080.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **The Pro version of Driver Easy** comes with _full technical support_ . If you need assistance, please contact **Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/) .**
 
  After updating drivers, reboot your PC and then try to open Battle.net. If your problem persists, proceed to the next fix.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 6\. Repair corrupted system files
 
@@ -197,13 +211,6 @@ Then follow the on-screen instructions to get the updates.
 ![](https://images.drivereasy.com/wp-content/uploads/2022/12/how-to-open-the-Command-Prompt-as-an-administrator.jpg)
 2. Click**Yes** when you receive a prompt.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948954/19272" target="_top" id="1948954">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948954" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948954/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 3. Now copy and paste the following command, and then press**Enter** .  
 
 `DISM.exe /Online /Cleanup-image /Restorehealth`
@@ -212,22 +219,15 @@ Then follow the on-screen instructions to get the updates.
 ![](https://images.drivereasy.com/wp-content/uploads/2022/12/how-to-run-the-system-file-checker.jpg)
 5. Now type**sfc /scannow** and press Enter. Then it’ll start scanning the integrity of all protected operating system files and replace incorrect, corrupted, changed, or damaged versions with the correct versions.  
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  When you see a message that says “Verification 100% complete”, type**exit** and press Enter.  
 
 ![](https://images.drivereasy.com/wp-content/uploads/2022/12/use-System-File-Checker-to-repair-corrupted-files.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2052063/7443" target="_top" id="2052063">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052063" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052063/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  However, if that fails to fix an underlying problem, you’ll need a more advanced tool to help you with that. **[Fortect](https://tools.techidaily.com/drivereasy/download/)**  is such a tool that specializes in Windows repair. It’ll help replace damaged or missing Windows files with healthy ones and restore your PC back to its greatness. And it’s more than that. Fortect can protect and remove malware from your PC, as well as detect threatening apps before it’s too late!
@@ -273,20 +273,22 @@ Then follow the on-screen instructions to get the updates.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-the-complete-blueprint-for-exceptional-asmr-production-value/"><u>[New] 2024 Approved The Complete Blueprint for Exceptional ASMR Production Value</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-the-entrepreneurial-guide-to-video-content-monetization/"><u>[New] 2024 Approved The Entrepreneurial Guide to Video Content Monetization</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-the-professionals-guide-adding-youtube-to-google-slides/"><u>[New] 2024 Approved The Professional's Guide Adding YouTube to Google Slides</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-the-ultimate-guide-for-effortless-youtube-shorts-design/"><u>[New] 2024 Approved The Ultimate Guide for Effortless YouTube Shorts Design</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-time-is-money-learn-to-slash-youtube-video-durations/"><u>[New] 2024 Approved Time Is Money - Learn to Slash YouTube Video Durations</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-trustworthy-youtube-to-mp4-file-extraction-processes/"><u>[New] 2024 Approved Trustworthy YouTube to MP4 File Extraction Processes</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-video-earning-excellence-mastering-youtube-monetization-anywhere/"><u>[New] 2024 Approved Video Earning Excellence Mastering YouTube Monetization Anywhere</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-elevating-your-podcast-remote-recording-done-right/"><u>[Updated] 2024 Approved Elevating Your Podcast Remote Recording Done Right</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-1-5-best-url-trimmer-tools-for-youtube-videos/"><u>2024 Approved 1-5 Best URL Trimmer Tools for YouTube Videos</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/2024-approved-mastering-the-art-of-speech-to-text-conversion-on-powerpoint-platform/"><u>2024 Approved Mastering the Art of Speech-to-Text Conversion on PowerPoint Platform</u></a></li>
-<li><a href="https://techtrends.techidaily.com/comprehensive-solutions-to-the-common-problem-of-a-lost-binkw32dll-file/"><u>Comprehensive Solutions to the Common Problem of a Lost binkw32.dll File</u></a></li>
-<li><a href="https://solve-lab.techidaily.com/kostenloses-tutorial-fur-das-importieren-von-mails-in-outlook/"><u>Kostenloses Tutorial Für Das Importieren Von Mails in Outlook</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/must-watch-top-10-films-the-ultimate-hollywood-blockbuster-collection/"><u>Must-Watch Top 10 Films: The Ultimate Hollywood Blockbuster Collection</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/understanding-the-functionality-of-google-hangouts-a-detailed-overview/"><u>Understanding the Functionality of Google Hangouts: A Detailed Overview</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/which-wins-a-side-by-side-comparison-of-google-nest-audio-and-apple-homepod/"><u>Which Wins? A Side-by-Side Comparison of Google Nest Audio & Apple HomePod</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-ceased-shorts-missing-on-youtube-screen/"><u>[New] In 2024, Ceased Shorts Missing on YouTube Screen</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-channel-growth-on-a-dime-attracting-sponsors-with-simplicity/"><u>[New] In 2024, Channel Growth on a Dime Attracting Sponsors with Simplicity</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-how-to-create-a-live-stream-on-youtube-with-the-best-webcams/"><u>2024 Approved How to Create a Live Stream on YouTube With the Best Webcams</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-step-by-step-guide-on-using-gaming-youtube-banner-templates/"><u>2024 Approved Step-By-Step Guide on Using Gaming YouTube Banner Templates</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-streamline-your-video-queue-step-by-step-guide-to-a-youtube-saved-playlist/"><u>2024 Approved Streamline Your Video Queue Step-By-Step Guide to a YouTube Saved Playlist</u></a></li>
+<li><a href="https://techidaily.com/all-things-you-need-to-know-about-wipe-datafactory-reset-for-oppo-a2-drfone-by-drfone-reset-android-reset-android/"><u>All Things You Need to Know about Wipe Data/Factory Reset For Oppo A2 | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/her-high-impact-content-selecting-premier-rank-trackers-for-youtubers/"><u>Decipher High-Impact Content Selecting Premier Rank Trackers for YouTubers</u></a></li>
+<li><a href="https://techtrends.techidaily.com/effective-communication-mastering-conversations-with-mozilla-thunderbird/"><u>Effective Communication: Mastering Conversations with Mozilla Thunderbird</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-app-not-available-in-your-country-play-store-problem-on-infinix-note-30-vip-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix App Not Available in Your Country Play Store Problem on Infinix Note 30 VIP | Dr.fone</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/how-to-save-powerpoint-presentation-as-video-on-windows-and-mac-os/"><u>How to Save PowerPoint Presentation as Video on Windows and Mac OS</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/o-tailor-youtube-thumbnails-for-maximum-impact-for-2024/"><u>How to Tailor YouTube Thumbnails for Maximum Impact for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-oppo-reno-10-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Oppo Reno 10 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-oppo-a78-5g-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>In 2024, How to Cast Oppo A78 5G to Computer for iPhone and Android? | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-the-best-8-vpn-hardware-devices-reviewed-on-vivo-y100-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Best 8 VPN Hardware Devices Reviewed On Vivo Y100 5G | Dr.fone</u></a></li>
+<li><a href="https://win-special.techidaily.com/in-depth-tutorial-on-the-department-of-defense-dod-method-522022-m-for-secure-hard-drive-wiping/"><u>In-Depth Tutorial on the Department of Defense (DoD) Method 5220.22-M for Secure Hard Drive Wiping</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/oloists-journey-personal-growth-and-success-on-youtube-for-musicians/"><u>The Soloist's Journey Personal Growth and Success on YouTube for Musicians</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/ultimate-guide-to-the-finest-android-replacements-for-imovie-video-editors/"><u>Ultimate Guide to the Finest Android Replacements for iMovie Video Editors</u></a></li>
 </ul></div>
 

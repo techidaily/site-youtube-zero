@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Snap Into Position  Handhran Balancing Tricks\""
-date: 2024-10-12T10:05:10.347Z
-updated: 2024-10-15T01:03:44.000Z
+date: 2024-10-18T19:07:57.980Z
+updated: 2024-10-20T20:28:01.712Z
 tags:
   - ai video
   - ai youtube
@@ -42,16 +42,10 @@ Wondershare Filmora has the best video stabilization tool is your videos have a 
 Here are 3 of our favorite DIY tripods.
 
 <!-- affiliate ads begin -->
-<span id="1424529">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1902289/19272" target="_top" id="1902289">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902289" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902289/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **DIY smartphone tripod using binder clips or hair clips**
@@ -69,15 +63,28 @@ Here it is with binder clips:
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2012401/19272" target="_top" id="2012401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012401" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012401/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1982462">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
@@ -100,6 +107,13 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100538/7443" target="_top" id="2100538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -107,13 +121,6 @@ Gorillapod’s are cool because you can use them like normal tripods, carry them
 Your wire should be fairly stiff and you’ll need three pieces the same length, which should be at least 10 inches. Old clothes hangers work well. This needs to be something strong enough to support the weight of your camera, but soft enough that it’s not impossible for you to bend.
 
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
 
@@ -137,13 +144,6 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -165,14 +165,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-boost-your-blogging-bravery-following-youtuber-leaders/"><u>[New] 2024 Approved Boost Your Blogging Bravery Following YouTuber Leaders</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-double-delight-endless-looping-of-youtube-videos-for-tvs/"><u>[New] 2024 Approved Double Delight Endless Looping of YouTube Videos for TVs</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-maximizing-video-visibility-on-youtube-with-seo-insights/"><u>[New] 2024 Approved Maximizing Video Visibility on YouTube with SEO Insights</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/downloading-samfw-frp-tool-30-for-vivo-y100t-by-drfone-android/"><u>Downloading SamFw FRP Tool 3.0 for Vivo Y100t</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-spy-on-text-messages-from-computer-and-xiaomi-redmi-12-drfone-by-drfone-virtual-android/"><u>How to Spy on Text Messages from Computer & Xiaomi Redmi 12 | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-10-premier-igtv-horizontal-video-editors/"><u>In 2024, 10 Premier IGTV Horizontal Video Editors</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-get-the-apple-id-verification-code-from-iphone-xr-in-the-best-ways-by-drfone-ios/"><u>In 2024, How To Get the Apple ID Verification Code From iPhone XR in the Best Ways</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/in-2024-unleash-creativity-10-must-know-tips-for-cover-art/"><u>In 2024, Unleash Creativity 10 Must-Know Tips for Cover Art</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/-youtube-link-shortener-you-can-find-for-2024/"><u>Top 5 YouTube Link Shortener You Can Find for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-2024-approved-capture-and-edit-like-a-pro-with-these-8-top-montage-apps/"><u>[New] 2024 Approved Capture and Edit Like a Pro with These 8 Top Montage Apps</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-integrating-twitter-content-with-facebook-networks/"><u>[New] In 2024, Integrating Twitter Content with Facebook Networks</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/uick-queries-character-and-sound-crossover/"><u>[New] Quick Queries Character & Sound Crossover</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-constructing-captivating-valorant-youtube-thumbnails/"><u>[Updated] 2024 Approved Constructing Captivating Valorant YouTube Thumbnails</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-downloadfacebooknow-a-comprehensive-guide-to-browser-tools-for-firefox-for-2024/"><u>[Updated] DownloadFacebookNow! - A Comprehensive Guide to Browser Tools for Firefox for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-elevate-views-prime-seo-equipment-for-videos/"><u>[Updated] Elevate Views Prime SEO Equipment for Videos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-how-to-seamlessly-upload-videos-onto-youtubes-platform-for-2024/"><u>[Updated] How to Seamlessly Upload Videos Onto YouTube's Platform for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-discover-top-asmr-for-iosandroid-devices/"><u>[Updated] In 2024, Discover Top ASMR for iOS/Android Devices</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/academic-research-revolutionized-discover-how-ai-tools-play-a-vital-role/"><u>Academic Research Revolutionized: Discover How AI Tools Play a Vital Role</u></a></li>
+<li><a href="https://android-location.techidaily.com/easy-ways-to-manage-your-oppo-f25-pro-5g-location-settings-drfone-by-drfone-virtual/"><u>Easy Ways to Manage Your Oppo F25 Pro 5G Location Settings | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/elevating-your-viewing-pleasure-with-the-lg-oled-c9-65-an-in-depth-review-by-tech-experts/"><u>Elevating Your Viewing Pleasure with The LG OLED C9 65: An In-Depth Review by Tech Experts</u></a></li>
+<li><a href="https://win-blog.techidaily.com/fixes-and-solutions-stop-battlefront-ii-from-crashing-on-your-pc/"><u>Fixes and Solutions: Stop Battlefront II From Crashing on Your PC</u></a></li>
 </ul></div>
 

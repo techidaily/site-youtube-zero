@@ -1,7 +1,7 @@
 ---
 title: "[New] Unmasking How To Locate My Comments Posts Online for 2024"
-date: 2024-10-09T02:20:14.650Z
-updated: 2024-10-14T19:35:10.464Z
+date: 2024-10-15T17:54:12.572Z
+updated: 2024-10-21T01:30:40.726Z
 tags:
   - ai video
   - ai youtube
@@ -58,25 +58,18 @@ Click the **Menu</strong > button from the top-left corner of the page, and then
 
 ![YouTube History Menu   ](https://images.wondershare.com/filmora/article-images/youtube-history-menu.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049378/7443" target="_top" id="2049378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 3: Access/View Your Past Comments**
 
 Click **Comments** from the right of the **History** page to view all the comments that you have posted earlier.
 
 ![YouTube History Menu  Comments ](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2\. Find Your YouTube Comments on an iPhone
 
@@ -91,13 +84,6 @@ Launch your favorite web browser on your iPhone (Safari, the default one, is use
 Tap the **More Options** icon from the top-left corner of the browser, and then tap **Request Desktop Website** from the menu that appears to access the desktop version of YouTube on your iPhone.
 
 ![Access the Desktop Version of YouTube ](https://images.wondershare.com/filmora/article-images/request-desktop-website-youtube.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 3: View Your Past YouTube Comments**
 
@@ -143,13 +129,34 @@ Make sure that the **Uploads** tab is selected on the **Channel content** window
 
 ![Find  YouTube Comments List ](https://images.wondershare.com/filmora/article-images/find-youtube-video-comments-list.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036467/19272" target="_top" id="2036467">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036467" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036467/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 3: Hide or Hold a Comment for Approval**
 
 Click the **More** icon from the right of the comment you want to moderate, and click **Hide user from channel** or **Always approve comments from this user** to hide the comments from the selected user or keep their comments on hold until you review and approve them respectively.
 
 ![Find  YouTube Comments List ](https://images.wondershare.com/filmora/article-images/set-up-specific-user-comment-moderation.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Note: To view all comments received on your YouTube channel, go to the Comments tab under YouTube Studio, and you will find all Channel comments & mentions.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. Find Your Channel’s YouTube Comments on a Mobile App
 
@@ -172,10 +179,10 @@ Tap the **More** button from the right of an inappropriate comment, and tap **Hi
 ![Find  YouTube Comments mobile ](https://images.wondershare.com/filmora/article-images/find-youtube-channel-comments-mobile.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: Find Someone’s YouTube Comments by User Name
@@ -195,16 +202,10 @@ Go to your or any other’s YouTube video, and click **Load All** from the top-r
 ![Find  YouTube Comments mobile ](https://images.wondershare.com/filmora/article-images/load-all-comments-with-youtube-comment-search-extension.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983552">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 3: Search Comments from a Particular User**
@@ -212,6 +213,13 @@ Go to your or any other’s YouTube video, and click **Load All** from the top-r
 Choose **Comments** from the search type drop-down list, enter the name of the user in question in the **Search** box, and click **Search** to fetch all their comments on the video.
 
 ![Serach  YouTube Comments of specific users ](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915870/19272" target="_top" id="1915870">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915870/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 4: How to Edit and Reply to YouTube Comments?
 
@@ -226,13 +234,6 @@ Use any of the methods explained above to locate your YouTube comment that you w
 Locate the comment that you want to reply to, click **REPLY** from under the comment, type your text in the available field, and click **REPLY**.
 
 ![Reply  YouTube Comments  ](https://images.wondershare.com/filmora/article-images/reply-youtube-comments.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 5: How to Moderate YouTube Comments?
 
@@ -250,13 +251,6 @@ Go to the **Community** category from the left pane, and go to the **Defaults** 
 
 ![set  YouTube Community Comments moderation ](https://images.wondershare.com/filmora/article-images/set-up-youtube-community-comments-moderaiton.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
-  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 6: Tips for Writing Good YouTube Comments
 
 While posting a comment on a YouTube video, it is imperative to keep a few things in mind. Some important tips that might come in handy in this regard are suggested below:
@@ -268,10 +262,10 @@ While posting a comment on a YouTube video, it is imperative to keep a few thing
 * Ignore the replies with inappropriate content
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094482/7443" target="_top" id="2094482">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094482" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094482/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
@@ -309,21 +303,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-tunes-takeover-transitioning-tracks-to-youtube/"><u>[New] 2024 Approved Tunes Takeover Transitioning Tracks to YouTube</u></a></li>
-<li><a href="https://extra-information.techidaily.com/new-animepic-full-review-year-2024-edition/"><u>[New] AnimEpic Full Review - Year 2024 Edition</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-bridging-audio-artistry-in-visual-formats/"><u>[New] Bridging Audio Artistry in Visual Formats</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-direct-path-to-delight-your-ifunny-meme-guidebook/"><u>[Updated] 2024 Approved Direct Path to Delight Your iFunny Meme Guidebook</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-novices-selection-guide-to-ideal-filming-cameras/"><u>[Updated] Novice's Selection Guide to Ideal Filming Cameras</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/2024-approved-leveraging-technology-for-efficient-team-discussions-slack-filmora-strategy/"><u>2024 Approved Leveraging Technology for Efficient Team Discussions Slack-Filmora Strategy</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-adding-audio-descriptions-to-videos-on-youtube/"><u>In 2024, Adding Audio Descriptions to Videos on YouTube</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-boosting-youtube-interaction-with-emojis/"><u>In 2024, Boosting YouTube Interaction with Emojis</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-breakdown-of-profit-from-a-million-youtube-watches/"><u>In 2024, Breakdown of Profit From a Million Youtube Watches</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-crafting-a-winning-strategy-youtube-keyword-mastery-explained/"><u>In 2024, Crafting a Winning Strategy YouTube Keyword Mastery Explained</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-creative-freedom-the-best-9-online-editors-for-beginners/"><u>In 2024, Creative Freedom The Best 9 Online Editors for Beginners</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-debating-platform-preferences-igtv-versus-youtube-video-sharing/"><u>In 2024, Debating Platform Preferences IGTV Versus YouTube Video Sharing</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-harness-the-power-of-insights-a-curated-list-of-instagram-performance-trackers/"><u>In 2024, Harness the Power of Insights A Curated List of Instagram Performance Trackers</u></a></li>
-<li><a href="https://discover-alternatives.techidaily.com/neuester-software-encoder-fur-av1-ist-jetzt-einsatzbereit-und-erreichbar/"><u>Neuester Software-Encoder Für AV1 Ist Jetzt Einsatzbereit Und Erreichbar</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/top-10-online-hubs-for-public-domain-music-in-games-for-2024/"><u>Top 10 Online Hubs for Public Domain Music in Games for 2024</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/understanding-apples-revolutionary-chip-technology-the-impact-of-the-m1m2m3-on-your-next-purchase-decision/"><u>Understanding Apple's Revolutionary Chip Technology: The Impact of the M1/M2/M3 on Your Next Purchase Decision</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/levating-video-marketing-understanding-keywords-on-platforms-like-youtube-for-2024/"><u>[New] Elevating Video Marketing Understanding Keywords on Platforms Like YouTube for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-examining-the-economic-impact-of-mr-beast/"><u>[New] In 2024, Examining the Economic Impact of Mr. Beast</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-ultimate-vlog-gear-list-17-edition/"><u>[New] The Ultimate Vlog Gear List (#17 Edition)</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-navigating-updated-youtube-money-strategies/"><u>[Updated] 2024 Approved Navigating Updated YouTube Money Strategies</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-earnings-exploration-how-youtube-turns-viewers-into-cash/"><u>[Updated] In 2024, Earnings Exploration How YouTube Turns Viewers Into Cash</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-download-and-translate-youtube-videos-for-free/"><u>2024 Approved Download and Translate YouTube Videos for Free</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/amd-smbus-driver-update-how-to-quickly-secure-your-system/"><u>AMD SMBus Driver Update: How to Quickly Secure Your System</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ing-engagement-customizing-your-shorts-first-impressions-for-2024/"><u>Boosting Engagement Customizing Your Shorts' First Impressions for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/crucial-considerations-before-buying-your-video-documentation-device/"><u>Crucial Considerations Before Buying Your Video Documentation Device</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/guia-completa-maximizando-el-espacio-libre-en-su-unidad-de-almacenamiento-digital/"><u>Guía Completa: Maximizando El Espacio Libre en Su Unidad De Almacenamiento Digital</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-oneplus-12-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On OnePlus 12? | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/innovative-guide-transforming-social-media-sounds-into-mobile-alerts/"><u>Innovative Guide Transforming Social Media Sounds Into Mobile Alerts</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ng-authenticity-a-guide-to-personal-youtube-content-for-2024/"><u>Sharing Authenticity A Guide to Personal YouTube Content for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/ultimate-guide-to-choosing-the-right-dvd-ripping-tools-the-top-7-mac-programs-for-quick-and-secure-copies/"><u>Ultimate Guide to Choosing the Right DVD Ripping Tools: The Top 7 Mac Programs for Quick and Secure Copies</u></a></li>
 </ul></div>
 

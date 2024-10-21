@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Step-by-Step  Changing the State of Your YouTube Comments for 2024\""
-date: 2024-10-13T20:09:47.877Z
-updated: 2024-10-15T10:31:51.989Z
+date: 2024-10-14T22:11:33.341Z
+updated: 2024-10-20T17:03:57.910Z
 tags:
   - ai video
   - ai youtube
@@ -95,13 +95,6 @@ Selecting this option holds all the comments from all the users, and waits for y
 
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: Turn on or Turn off Comments for Specific Videos
 
 As you might have noticed, any video that is marked as ‘Made for kids’ doesn’t allow users to post comments. You can exploit this feature to enable or disable commenting on specific YouTube videos as well.
@@ -123,19 +116,19 @@ From under the **Audience** section in the right window of the **Video details**
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144283/7443" target="_top" id="2144283">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144283" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144283/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
@@ -155,10 +148,10 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100533/7443" target="_top" id="2100533">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100533/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### 4\. If I turn comments off and back on again, will the old comments come back?
@@ -174,6 +167,13 @@ That depends on the nature of the comments. For instance, if you modify the sett
 It is easy to understand **how to turn on comments on YouTube**. The best thing is, the comments are enabled by default, and if you don’t need them, you can simply disable them by configuring the videos or the entire channel as ‘Made for kids’. If the comments on any video were enabled previously, and are disabled later on, the existing comments automatically disappear. They reappear when the comments on the video are reenabled.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151855/7443" target="_top" id="2151855">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151855" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151855/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -196,20 +196,24 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/onvert-youtube-music-seamlessly-for-mac-users-2023-edition-for-2024/"><u>[New] Convert YouTube Music Seamlessly for Mac Users, 2023 Edition for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ree-mp3s-galore-10-no-cost-online-tools/"><u>[New] Free Mp3s Galore 10 No-Cost Online Tools</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/aximizing-impact-with-youtube-micro-videos-for-2024/"><u>[New] Maximizing Impact with YouTube Micro Videos for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-expose-your-guide-to-finding-censored-youtube-clips/"><u>[Updated] 2024 Approved Exposé Your Guide to Finding Censored YouTube Clips</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-the-essential-guide-to-populating-powerpoint-decks-with-youtube-videos/"><u>[Updated] 2024 Approved The Essential Guide to Populating PowerPoint Decks With YouTube Videos</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-how-to-capitalize-on-youtube-shorts-must-knows-earning-prospects-for-2024/"><u>[Updated] How to Capitalize on Youtube Shorts Must-Knows, Earning Prospects for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-swift-transformation-video-aspects-to-mac-standard/"><u>2024 Approved Swift Transformation Video Aspects to Mac Standard</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/neering-exercise-videos-to-keep-your-viewers-active-for-2024/"><u>8 Pioneering Exercise Videos To Keep Your Viewers Active for 2024</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/elevate-learning-efficiency-with-ai-driven-note-taking-gpt-edition/"><u>Elevate Learning Efficiency with AI-Driven Note Taking - GPT Edition</u></a></li>
-<li><a href="https://change-location.techidaily.com/here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-xiaomi-redmi-note-12-pro-5g-drfone-by-drfone-virtual-android/"><u>Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Xiaomi Redmi Note 12 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-expert-recommended-filmmaking-equipment-roundup/"><u>In 2024, Expert-Recommended Filmmaking Equipment Roundup</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-sustainable-traffic-growth-ethical-video-marketing-tips/"><u>In 2024, Sustainable Traffic Growth Ethical Video Marketing Tips</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/1721962910474-is-accessing-chatgpt-compatible-with-virtual-private-networks-find-out-here/"><u>Is Accessing ChatGPT Compatible With Virtual Private Networks? Find Out Here</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-10-best-spy-watches-for-your-nubia-z50s-pro-drfone-by-drfone-virtual-android/"><u>Top 10 Best Spy Watches For your Nubia Z50S Pro | Dr.fone</u></a></li>
-<li><a href="https://program-issues.techidaily.com/troubleshooting-and-repairing-dota-2-game-crashes-a-comprehensive-guide/"><u>Troubleshooting and Repairing Dota 2 Game Crashes: A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-navigate-your-way-to-youtube-fame-a-guide-to-25-proven-techniques/"><u>[New] 2024 Approved Navigate Your Way to YouTube Fame A Guide to 25 Proven Techniques</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-time-travel-through-free-visual-storerooms/"><u>[New] In 2024, Time Travel Through Free Visual Storerooms</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nnovative-youtube-titles-crafting-a-standout-brand-for-2024/"><u>[New] Innovative YouTube Titles Crafting a Standout Brand for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/kyline-your-content-with-these-11-seo-strategies-for-2024/"><u>[New] Skyline Your Content with These 11 SEO Strategies for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/he-essence-of-youtubes-new-shorts-investment-scheme-for-2024/"><u>[New] The Essence of YouTube's New Shorts Investment Scheme for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-efficient-editing-for-quick-youtube-content/"><u>[Updated] 2024 Approved Efficient Editing for Quick YouTube Content</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-the-ultimate-cheat-sheet-for-inserting-songs-into-youtube-clips/"><u>[Updated] 2024 Approved The Ultimate Cheat Sheet for Inserting Songs Into YouTube Clips</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-mastering-idevice-screen-recording-techniques-for-youtube/"><u>[Updated] In 2024, Mastering iDevice Screen Recording Techniques for YouTube</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-screen-times-best-and-worst-app-reviews/"><u>[Updated] Screen Time's Best and Worst App Reviews</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-unveiling-10-hidden-powers-of-photoshop-newbies/"><u>[Updated] Unveiling 10 Hidden Powers of Photoshop Newbies</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-no-need-for-apps-download-youtube-files/"><u>2024 Approved No Need for Apps Download YouTube Files</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-youtube-music-a-guide-to-coherence/"><u>2024 Approved YouTube Music A Guide to Coherence</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/best-iphone-contact-recovery-software-to-recover-deleted-contacts/"><u>Best iPhone Contact Recovery Software to Recover Deleted Contacts</u></a></li>
+<li><a href="https://video-capture.techidaily.com/experience-unlimited-hd-video-editing-with-get-video-converter-factory-pro-free-trial-available/"><u>Experience Unlimited HD Video Editing with Get Video Converter Factory Pro: Free Trial Available!</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/how-to-record-steam-gameplay-for-2024/"><u>How to Record Steam Gameplay for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-broken-video-files-of-70-lite-5g-on-windows-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair Broken video files of 70 Lite 5G on Windows??</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ps-lock-required-android-and-ios-downloader-hacks/"><u>No Caps Lock Required Android and iOS Downloader Hacks</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/samsung-galaxy-s23-ultra-vs-s21-ultra/"><u>Samsung Galaxy S23 Ultra Vs. S21 Ultra</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/unlocking-crypto-potential-the-ultimate-list-of-nft-engines/"><u>Unlocking Crypto Potential The Ultimate List of NFT Engines</u></a></li>
 </ul></div>
 

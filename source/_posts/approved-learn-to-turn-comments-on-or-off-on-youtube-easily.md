@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Learn to Turn Comments On or Off on YouTube Easily\""
-date: 2024-09-14T20:41:45.335Z
-updated: 2024-09-16T22:19:41.990Z
+date: 2024-10-18T16:47:37.946Z
+updated: 2024-10-20T21:09:33.586Z
 tags:
   - ai video
   - ai youtube
@@ -95,6 +95,13 @@ Selecting this option holds all the comments from all the users, and waits for y
 
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
+  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Turn on or Turn off Comments for Specific Videos
 
 As you might have noticed, any video that is marked as ‘Made for kids’ doesn’t allow users to post comments. You can exploit this feature to enable or disable commenting on specific YouTube videos as well.
@@ -117,6 +124,19 @@ From under the **Audience** section in the right window of the **Video details**
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
+<!-- affiliate ads begin -->
+<span id="1531882">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## FAQs About YouTube Comments
 
 #### 1\. Why can’t I comment on the YouTube video?
@@ -133,6 +153,13 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144309/7443" target="_top" id="2144309">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144309/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
 Yes. When you turn off the comments, the existing comments disappear. When you turn them back on, all the previous comments reappear, and become visible to the audience.
@@ -146,6 +173,19 @@ That depends on the nature of the comments. For instance, if you modify the sett
 It is easy to understand **how to turn on comments on YouTube**. The best thing is, the comments are enabled by default, and if you don’t need them, you can simply disable them by configuring the videos or the entire channel as ‘Made for kids’. If the comments on any video were enabled previously, and are disabled later on, the existing comments automatically disappear. They reappear when the comments on the video are reenabled.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1983446">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -166,12 +206,18 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120861/26400?prodsku=Saturn" target="_top" id="2120861">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120861" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120861/26400?prodsku=Saturn" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-deciphering-the-superior-video-sharing-platform-tiktok-or-youtube-shorts/"><u>[New] In 2024, Deciphering the Superior Video-Sharing Platform TikTok or YouTube Shorts?</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-visionblend-editor/"><u>[Updated] 2024 Approved VisionBlend Editor</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-channel-catalysts-affiliates-aiding-budgeted-buzzers/"><u>[Updated] In 2024, Channel Catalysts Affiliates Aiding Budgeted Buzzers</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/experience-the-power-of-affordable-innovation-with-oneplus-nord-n10-5g/"><u>Experience the Power of Affordable Innovation with OnePlus Nord N10 5G</u></a></li>
+<li><a href="https://windows11.techidaily.com/how-to-change-reset-count-after-login-failures-a-windows-11-technique/"><u>How to Change Reset Count After Login Failures: A Windows 11 Technique</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-heartstrings-harmony-best-music-to-accompany-your-engagement/"><u>In 2024, Heartstrings Harmony Best Music to Accompany Your Engagement</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/utubes-monetization-routine-for-2024/"><u>Is YouTube’s Monetization Routine for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/mastering-mobile-photography-with-androids-lightroom-for-2024/"><u>Mastering Mobile Photography with Android’s Lightroom for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/reviewing-the-next-level-in-mobile-video-with-samsung-s8-for-2024/"><u>Reviewing the Next Level in Mobile Video with Samsung S8 for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/stability-secrets-unveiled-how-to-stop-euro-truck-simulator-2-from-crashing-your-pc/"><u>Stability Secrets Unveiled: How to Stop Euro Truck Simulator 2 From Crashing Your PC</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/video-based-teaching-methodologies-explained/"><u>Video-Based Teaching Methodologies Explained</u></a></li>
+</ul></div>
 

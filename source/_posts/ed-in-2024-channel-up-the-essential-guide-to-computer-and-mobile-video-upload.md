@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Channel Up  The Essential Guide to Computer & Mobile Video Upload\""
-date: 2024-10-13T11:45:29.447Z
-updated: 2024-10-15T10:12:02.518Z
+date: 2024-10-19T01:31:26.850Z
+updated: 2024-10-20T17:10:43.428Z
 tags:
   - ai video
   - ai youtube
@@ -82,10 +82,10 @@ For macOS 10.12 or later
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012429/19272" target="_top" id="2012429">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012429" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012429/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: How to Upload Short Video on YouTube Mobile App?
@@ -95,10 +95,10 @@ The process of **uploading YouTube Shorts** from the mobile app is fairly simple
 **Note:** The guidelines for creating and uploading short videos to YouTube remain the same, regardless of the platform or device you use.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Method 1: Upload an Existing Short Video
@@ -109,31 +109,24 @@ The process of **uploading YouTube Shorts** from the mobile app is fairly simple
 
 ![Select a Video to Upload as Shorts](https://images.wondershare.com/filmora/article-images/select-shorts-videos-to-upload-on-youtube.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 On your Android or iOS smartphone, launch the YouTube app, tap the **+** (**Create**) icon from the bottom, tap **Create a Short** from the **Create** box that pops up from the bottom, tap **Upload** from the bottom-right corner of the next screen, and select and upload a short, 60 seconds video recorded in portrait orientation from your device’s storage to the app.
 
 #### Step 2: Add Details
 
 ![add details to Shorts video](https://images.wondershare.com/filmora/article-images/add-details-to-youtube-shrots-video.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 On the next screen, tap **NEXT**, user the **Music** and **Text** icons at the bottom-left corner to add a background music and caption to the video respectively, and tap **NEXT** from the top-right corner. On the next screen, enter a name for the video in the **Title** field along with the **#Shorts** tag, and tap **Select audience** to choose your preferred audience.
 
 #### Step 3: Upload the Video
 
 Finally tap **UPLOAD** from the top-right corner to upload the short video on YouTube.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052059/7443" target="_top" id="2052059">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052059" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052059/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Method 2: Record a Short Video and Upload
 
@@ -167,6 +160,13 @@ Learning the process of **how to post short videos on YouTube** is fairly simple
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139122/17108" target="_top" id="2139122">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139122" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139122/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -190,24 +190,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-fifas-favorite-footage-charted-on-youtube/"><u>[New] 2024 Approved FIFA's Favorite Footage Charted on YouTube</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-navigating-through-instagrams-video-time-slot/"><u>[New] 2024 Approved Navigating Through Instagram's Video Time Slot</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-settled-evasive-behavior-of-shorts-content/"><u>[New] 2024 Approved Settled Evasive Behavior of Shorts Content</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-step-by-step-guide-to-youtube-video-enhancement-with-wmm/"><u>[New] 2024 Approved Step-by-Step Guide to YouTube Video Enhancement with WMM</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-stop-automated-youtube-content-rollouts/"><u>[New] 2024 Approved Stop Automated YouTube Content Rollouts</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-swapping-sequence-a-simple-guide-to-reversed-playlists/"><u>[New] 2024 Approved Swapping Sequence A Simple Guide to Reversed Playlists</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-the-counterplay-creative-ways-to-watch-youtube-in-reverse/"><u>[New] 2024 Approved The Counterplay Creative Ways to Watch YouTube in Reverse</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-the-prime-listening-guide-to-youtube-standards/"><u>[New] 2024 Approved The Prime Listening Guide to YouTube Standards</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-the-ultimate-method-streaming-idevice-screens-on-youtube/"><u>[New] 2024 Approved The Ultimate Method Streaming iDevice Screens on YouTube</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-top-picks-for-vloggers-8-mirrorless-cameras-leading-the-pack/"><u>[New] 2024 Approved Top Picks for Vloggers 8 Mirrorless Cameras Leading the Pack</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-video-voyages-venturing-into-the-vlog-profit-world/"><u>[New] 2024 Approved Video Voyages Venturing Into the Vlog Profit World</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-pixiz-essentials-from-stills-to-moving-images/"><u>[New] Pixiz Essentials From Stills to Moving Images</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-dive-into-diy-the-beginners-guide-to-eye-catching-mac-videos/"><u>[Updated] Dive Into DIY The Beginner’s Guide to Eye-Catching Mac Videos</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-the-best-20-words-for-marketing-success/"><u>[Updated] The Best 20 Words for Marketing Success</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/circumventing-edgenuity-effortlessly-a-students-guide-for-2024/"><u>Circumventing Edgenuity Effortlessly A Student's Guide for 2024</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-how-to-use-ispoofer-on-samsung-galaxy-f34-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Samsung Galaxy F34 5G? | Dr.fone</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/podcastpioneer-diving-beyond-dacast/"><u>PodcastPioneer Diving Beyond DaCast</u></a></li>
-<li><a href="https://change-location.techidaily.com/pokemon-go-error-12-failed-to-detect-location-on-samsung-galaxy-s23plus-drfone-by-drfone-virtual-android/"><u>Pokemon Go Error 12 Failed to Detect Location On Samsung Galaxy S23+? | Dr.fone</u></a></li>
-<li><a href="https://extra-information.techidaily.com/unlocking-potential-an-in-depth-look-at-vivocut-editing/"><u>Unlocking Potential An In-Depth Look at VivoCut Editing</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-premier-composer-of-media-experience/"><u>[New] 2024 Approved Premier Composer of Media Experience</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-expert-tips-for-harnessing-the-power-of-top-9-free-youtube-makers/"><u>[New] In 2024, Expert Tips for Harnessing the Power of Top 9 Free YouTube Makers</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/avigating-the-maze-of-youtube-endorsements-with-a-famebit-perspective/"><u>[New] Navigating the Maze of YouTube Endorsements with a FameBit Perspective</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-vids-for-cash-a-compreomed-analysis-of-monetization-plays/"><u>[New] Vids for Cash A Compreomed Analysis of Monetization Plays</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-channel-combat-determining-which-earns-more-from-videosdailymotion-or-youtube/"><u>[Updated] Channel Combat Determining Which Earns More From Videos—Dailymotion or YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-creative-channel-themes-get-them-for-free/"><u>[Updated] Creative Channel Themes Get Them for Free</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-flash-vids-unpacked-whats-inside/"><u>[Updated] Flash Vids Unpacked What's Inside?</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-5-frosty-yet-inviting-backdrops-for-your-vids/"><u>2024 Approved 5 Frosty Yet Inviting Backdrops for Your Vids</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-charting-a-course-essential-equipment-for-youtube-enthusiasts/"><u>2024 Approved Charting a Course Essential Equipment for YouTube Enthusiasts</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-unpacking-the-best-youtube-music-reactions-2023/"><u>In 2024, Unpacking the Best YouTube Music Reactions, 2023</u></a></li>
+<li><a href="https://driver-download.techidaily.com/overcome-hp-headphone-difficulties-efficient-solutions-for-windows-1087-audio-driver-problems/"><u>Overcome HP Headphone Difficulties: Efficient Solutions for Windows 10/8/7 Audio Driver Problems</u></a></li>
+<li><a href="https://techtrends.techidaily.com/understanding-lg-channel-distribution-key-information-revealed/"><u>Understanding LG Channel Distribution: Key Information Revealed</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/unlocking-narrative-expertise-a-guide-on-leveraging-chatgpt-for-superior-story-craft/"><u>Unlocking Narrative Expertise: A Guide on Leveraging ChatGPT for Superior Story Craft</u></a></li>
 </ul></div>
 

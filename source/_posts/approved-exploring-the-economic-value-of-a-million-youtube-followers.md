@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Exploring the Economic Value of a Million YouTube Followers\""
-date: 2024-10-11T20:01:34.467Z
-updated: 2024-10-14T21:48:21.859Z
+date: 2024-10-18T17:06:44.672Z
+updated: 2024-10-20T17:04:41.555Z
 tags:
   - ai video
   - ai youtube
@@ -46,10 +46,10 @@ Although StandUpBits had uploaded thousands of clips and received over 1 million
 If you are thinking about a career on YouTube, reaching 1 million views might seem like an excellent target for making a successful page, and it is, but reaching 1 million views doesn’t magically guarantee financial success.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036486/19272" target="_top" id="2036486">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036486" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036486/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How Revenue is Calculated
@@ -65,13 +65,6 @@ As of February 2018, to qualify for ad revenue, the YouTube channel must have:
 2\. You will need to have accumulated 4,000 hours of watch time over the last 12 months.
 
 The AdSense revenue that you earn through YouTube will vary depending on a large number of factors related to the specific ads running and what type of content you produce.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068432/7443" target="_top" id="2068432">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068432" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068432/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Understanding CPM and CPCs
 
@@ -115,13 +108,6 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 
 04 [How monetization is changing](#part4)
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
-  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## $2000 for 1 Million Views
 
 In [a case study performed by Standupbits](https://www.fastcompany.com/3018123/a-million-youtube-views-wont-pay-your-rent-but-tubestart-could) and Josef Holm, a YouTube channel is created with over 3500 comedy clips that a comedian and stand up actor had put together over the years. The YouTube clips took extensive time to upload, and the library was prevalent. The YouTube ad revenue only equated to around $2000.
@@ -145,10 +131,10 @@ As of February 2018, to qualify for ad revenue, the YouTube channel must have:
 The AdSense revenue that you earn through YouTube will vary depending on a large number of factors related to the specific ads running and what type of content you produce.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886015/19272" target="_top" id="1886015">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886015" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094428/7443" target="_top" id="2094428">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094428" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886015/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094428/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Understanding CPM and CPCs
@@ -160,6 +146,13 @@ CPM stands as the ‘cost per mille’ or ‘cost per thousand.’
 Your CPM is the amount you earn for 1000 ad impressions (1000 viewers clicking on an ad or watching a skippable ad). Your CPM is usually related to the demographics of your users, the content you regularly post, the length of time on the videos that you post, and the gender of your viewers. YouTube CPMs can vary depending on the advertising bid the company has submitted with Google. The lowest bids can be around .33 cents per thousand views, and other advertisers can spend as much as $10 for 1000 views.
 
 For example, gaming is the most prominent genre on YouTube, and there are many gaming-related ads to go around, but most of them are very low-paying (i.e., ads for free online games). Only YouTube gamers with extensive subscriber bases get higher-paying ads.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### What is CPC?
 
@@ -226,10 +219,10 @@ Your CPM is the amount you earn for 1000 ad impressions (1000 viewers clicking o
 For example, gaming is the most prominent genre on YouTube, and there are many gaming-related ads to go around, but most of them are very low-paying (i.e., ads for free online games). Only YouTube gamers with extensive subscriber bases get higher-paying ads.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044585/7443" target="_top" id="2044585">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044585" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://arkmc.pxf.io/c/5597632/352557/5172" target="_top" id="352557">
+  <img src="//a.impactradius-go.com/display-ad/5172-352557" border="0" alt="https://techidaily.com" width="720" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044585/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352557/5172" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### What is CPC?
@@ -264,6 +257,13 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 
 04 [How monetization is changing](#part4)
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## $2000 for 1 Million Views
 
 In [a case study performed by Standupbits](https://www.fastcompany.com/3018123/a-million-youtube-views-wont-pay-your-rent-but-tubestart-could) and Josef Holm, a YouTube channel is created with over 3500 comedy clips that a comedian and stand up actor had put together over the years. The YouTube clips took extensive time to upload, and the library was prevalent. The YouTube ad revenue only equated to around $2000.
@@ -271,6 +271,19 @@ In [a case study performed by Standupbits](https://www.fastcompany.com/3018123/a
 Although StandUpBits had uploaded thousands of clips and received over 1 million views on their channel, their library was only able to earn around $2000 from the ad revenue sharing. It's estimated the group had spent approximately $25,000 to finish off the clips, edit them, and upload them, which means they invested far more in the channel than they earned.
 
 If you are thinking about a career on YouTube, reaching 1 million views might seem like an excellent target for making a successful page, and it is, but reaching 1 million views doesn’t magically guarantee financial success.
+
+<!-- affiliate ads begin -->
+<span id="1983539">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How Revenue is Calculated
 
@@ -286,14 +299,14 @@ As of February 2018, to qualify for ad revenue, the YouTube channel must have:
 
 The AdSense revenue that you earn through YouTube will vary depending on a large number of factors related to the specific ads running and what type of content you produce.
 
-## Understanding CPM and CPCs
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036481/19272" target="_top" id="2036481">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036481" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036481/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+## Understanding CPM and CPCs
 
 ### What is CPM?
 
@@ -306,13 +319,6 @@ For example, gaming is the most prominent genre on YouTube, and there are many g
 ### What is CPC?
 
 CPC means ‘cost per click.’ A CPC ad interprets an ‘ad impression’ as a click on an ad rather than a viewer merely seeing it. Most YouTube ads are CPC ads, but skippable video ads are CPV (cost per view), and impressions are based on viewers watching the ad instead of skipping it.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975816/19272" target="_top" id="1975816">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975816" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975816/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Changes on YouTube and How You Can Earn More
 
@@ -337,10 +343,10 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 ![filmora](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 <ins class="adsbygoogle"
@@ -364,22 +370,24 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/0-free-youtube-playlist-downloaders-onlinepcandroidios2-for-2024/"><u>[New] 10 FREE YouTube Playlist Downloaders [Online/PC/Android/iOS]2 for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-best-free-downloaders-download-youtube-thumbnail-for-freeonlinewinmac/"><u>[New] 2024 Approved Best Free Downloaders Download YouTube Thumbnail for Free [Online/Win/Mac]</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-breakdown-of-youtubes-money-making-mechanisms-cpm/"><u>[New] 2024 Approved Breakdown of YouTube’s Money-Making Mechanisms (CPM)</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-elevate-your-content-seo-mastery-starts-here/"><u>[New] 2024 Approved Elevate Your Content SEO Mastery Starts Here!</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-framing-perfection-a-filmmakers-guide-to-cinematic-youtube-videos/"><u>[New] 2024 Approved Framing Perfection A Filmmaker's Guide to Cinematic YouTube Videos</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-incorporating-custom-visuals-in-youtube-videos-easily/"><u>[New] 2024 Approved Incorporating Custom Visuals in YouTube Videos Easily</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-navigating-the-economic-landscape-of-short-video-royalties/"><u>[New] 2024 Approved Navigating the Economic Landscape of Short Video Royalties</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-rhythm-roundup-hot-music-for-todays-top-youtube-short-videos/"><u>[New] 2024 Approved Rhythm Roundup Hot Music for Today’s Top YouTube Short Videos</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-step-forward-leveraging-live-talks-in-the-instagram-world/"><u>[New] In 2024, Step Forward Leveraging Live Talks in the Instagram World</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-the-professionals-secret-utilizing-windows-movie-maker-expertly-in-windows-8-systems/"><u>[Updated] The Professional's Secret Utilizing Windows Movie Maker Expertly in Windows 8 Systems</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-the-ultimate-guide-to-using-hashtags-for-youtube-gaming-videos/"><u>[Updated] The Ultimate Guide To Using Hashtags For YouTube Gaming Videos</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/complete-fixes-to-solve-iphone-xr-randomly-asking-for-apple-id-password-by-drfone-ios/"><u>Complete Fixes To Solve iPhone XR Randomly Asking for Apple ID Password</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/ended-device-drive-error-43/"><u>Ended Device Drive Error #43</u></a></li>
-<li><a href="https://fox-that.techidaily.com/escaping-the-apple-symbol-top-8-tips-when-your-iphone-gets-stuck/"><u>Escaping the Apple Symbol: Top 8 Tips When Your iPhone Gets Stuck</u></a></li>
-<li><a href="https://windows11.techidaily.com/unlocking-your-windows-10-past-insights-on-activity-logs/"><u>Unlocking Your Windows 10 Past: Insights on Activity Logs</u></a></li>
-<li><a href="https://media-tips.techidaily.com/video-trimming-techniques-with-vlc-a-step-by-step-guide/"><u>Video Trimming Techniques with VLC: A Step-by-Step Guide</u></a></li>
-<li><a href="https://fox-http.techidaily.com/zoom-techniques-for-captivating-tiktok-audiences-for-2024/"><u>Zoom Techniques for Captivating TikTok Audiences for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-expressive-sketches-for-fortnite-icons/"><u>[New] 2024 Approved Expressive Sketches for Fortnite Icons</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/levate-your-youtube-presence-strategic-tagging-and-titling-techniques-for-2024/"><u>[New] Elevate Your YouTube Presence Strategic Tagging and Titling Techniques for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/inancial-flourishing-in-youtube-content-markets/"><u>[New] Financial Flourishing in YouTube Content Markets</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-elite-audio-modifying-tools-tailored-to-youtube-creators/"><u>[New] In 2024, Elite Audio Modifying Tools Tailored to YouTube Creators</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/uick-guide-on-converting-videos-into-dynamic-gifs-online/"><u>[New] Quick Guide on Converting Videos Into Dynamic Gifs Online</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-creating-unique-youtube-music-mixtapes/"><u>[Updated] 2024 Approved Creating Unique YouTube Music Mixtapes</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-the-complete-wm-maker-playbook-for-youtube-clips-perfection/"><u>[Updated] 2024 Approved The Complete WM Maker Playbook for YouTube Clips Perfection</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-the-instagram-djs-playlist-tailoring-sounds-for-stories/"><u>[Updated] 2024 Approved The Instagram DJ's Playlist Tailoring Sounds for Stories</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-transform-videos-with-these-premium-free-sound-options/"><u>[Updated] In 2024, Transform Videos with These Premium, Free Sound Options</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-streamline-your-360-videos-for-youtube-with-easy-upload-tricks/"><u>2024 Approved Streamline Your 360 Videos for YouTube with Easy Upload Tricks</u></a></li>
+<li><a href="https://blog-min.techidaily.com/8-ways-to-transfer-photos-from-vivo-v27e-to-iphone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>8 Ways to Transfer Photos from Vivo V27e to iPhone Easily | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/from-life-written-in-stillness-to-moving-pictures-for-2024/"><u>From Life' Written in Stillness to Moving Pictures for 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-erase-an-apple-iphone-6-plus-without-apple-id-by-drfone-ios/"><u>How to Erase an Apple iPhone 6 Plus without Apple ID?</u></a></li>
+<li><a href="https://win-answers.techidaily.com/immortals-adventure-game-unleashed-the-road-from-pending-to-now-available-immortals-fenyx-rising/"><u>Immortals' Adventure Game Unleashed: The Road From Pending to Now-Available Immortal's Fenyx Rising</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-unveiling-youtubes-full-rotation-streaming-potential/"><u>In 2024, Unveiling YouTube’s Full-Rotation Streaming Potential</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/pinnacle-photo-narrative-assembly-platform/"><u>Pinnacle Photo Narrative Assembly Platform</u></a></li>
+<li><a href="https://games-able.techidaily.com/pitting-the-emulators-pi-edition-batocera-vs-retropie/"><u>Pitting the Emulators: Pi Edition – Batocera Vs. RetroPie</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/tag-and-post-a-moment-of-pure-sound-wisdom/"><u>Tag & Post a Moment of Pure Sound Wisdom</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/winx-dvd-ripper-platinum-quick-and-easy-dvd-to-mp4-conversion-within-5-minutes-h2/"><u>WinX DVD Ripper Platinum: Quick & Easy DVD to MP4 Conversion Within 5 Minutes | H.2([官方])</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] The Epic Creator's Colloquium"
-date: 2024-09-11T00:39:29.725Z
-updated: 2024-09-16T19:31:54.916Z
+date: 2024-10-16T22:47:48.187Z
+updated: 2024-10-21T01:18:40.438Z
 tags:
   - ai video
   - ai youtube
@@ -64,6 +64,13 @@ _Tess takes you to some of her favorite places in Dumbo._
 
 Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators who attended the summit probably had a lot of fun exploring it.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Post Cards
 
 One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
@@ -78,31 +85,44 @@ To help them relax after long days at the summit, YouTube provided creators with
 
 ![Branded slippers - 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-branded-slippers.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115919/19272" target="_top" id="2115919">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115919" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115919/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 _thinknoodles wearing his YouTube slippers._
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983552">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 5\. Pins, pins, pins
 
 There were numerous custom pins available at different events at the summit. Aside from a complementary Brooklyn and 1 Hotel Brooklyn Bridge (the hotel the creators were staying at) pins, the creators did not receive these in their swag boxes – they had to collect them.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 6\. Denim jacket
 
 A denim jacket with a play button on it was also in the box. The idea was that creators would collect pins and display them on their new jackets. At the end of the week, they would have a great souvenir reminding them of every event they attended at the summit.
 
 _![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 _Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
 
@@ -111,13 +131,6 @@ Most creators here on Filmora are still trying to grow their channels, but one d
 Want to join the YouTube Creator Summit in the future? We all know that there is a long way to go, but we can start making good YouTube videos now. Remember to use [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) with the templates and effects to touch up your YouTube videos.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115928/19272" target="_top" id="2115928">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115928" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115928/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -140,5 +153,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-guide-to-producing-effective-youtube-promo-videos/"><u>[New] In 2024, Guide to Producing Effective YouTube Promo Videos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/peedy-guide-crafting-images-into-stellar-youtube-thumbnail-pics-for-2024/"><u>[New] Speedy Guide Crafting Images Into Stellar YouTube Thumbnail Pics for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/outube-prodigy-vs-creative-hub-beta-edition/"><u>[New] YouTube Prodigy Vs. Creative Hub Beta Edition</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-15-best-youtube-movies-channels-for-you-to-kill-time/"><u>[Updated] 15 Best YouTube Movies Channels for You to Kill Time</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-youtubes-everlasting-titles-with-millions-of-viewers/"><u>[Updated] 2024 Approved YouTube's Everlasting Titles with Millions of Viewers</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-simple-win-steps-for-fishy-sounds-alteration/"><u>[Updated] Simple Win Steps for Fishy Sounds Alteration</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-humorous-hits-lifetime-access-to-memes/"><u>2024 Approved Humorous Hits Lifetime Access to Memes</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-unveiling-the-secrets-of-fisheye-imaging/"><u>2024 Approved Unveiling the Secrets of Fisheye Imaging</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-and-install-nvidia-geforce-gtx-1080-ti-driver-complete-guide/"><u>Download & Install NVIDIA GeForce GTX 1080 Ti Driver: Complete Guide</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-10-free-location-spoofers-to-fake-gps-location-on-your-oneplus-11r-drfone-by-drfone-virtual/"><u>In 2024, 10 Free Location Spoofers to Fake GPS Location on your OnePlus 11R | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/leveraging-cookiebot-technology-for-superior-online-engagement/"><u>Leveraging Cookiebot Technology for Superior Online Engagement</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-2024-approved-blur-dont-reveal-the-best-video-editing-tools-for-anonymity/"><u>New 2024 Approved Blur, Dont Reveal The Best Video Editing Tools for Anonymity</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/optimal-mac-management-software-of-the-year-expertly-curated-selections-by-zdnet-for-peak-performance/"><u>Optimal Mac Management Software of the Year: Expertly Curated Selections by ZDNet for Peak Performance</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/reversing-a-youtube-strike-a-guide-for-2024/"><u>Reversing a YouTube Strike A Guide for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ltimate-checklist-for-understanding-the-value-of-youtube-tv/"><u>The Ultimate Checklist for Understanding the Value of YouTube TV</u></a></li>
+</ul></div>
 

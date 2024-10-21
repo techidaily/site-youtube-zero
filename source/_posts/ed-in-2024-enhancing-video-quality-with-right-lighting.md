@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Enhancing Video Quality with Right Lighting"
-date: 2024-10-10T09:20:09.441Z
-updated: 2024-10-15T04:26:24.119Z
+date: 2024-10-14T17:41:27.450Z
+updated: 2024-10-20T21:12:45.294Z
 tags:
   - ai video
   - ai youtube
@@ -50,19 +50,19 @@ The **fill light** is less bright than the primary source of light and it is pla
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037358/7443" target="_top" id="2037358">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037358" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144280/7443" target="_top" id="2144280">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144280" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037358/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144280/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Watch Video! Top Lighting Tips for Vlogging
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
-  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006946/19272" target="_top" id="2006946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006946" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006946/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Lightning Tips for Aspiring YouTube Videographers
@@ -91,18 +91,18 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484951/16446" target="_top" id="1484951">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484951" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484951/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
 
 If you are hosting a **beauty vlog** then you might consider a slightly different set up. Instead of having your main light off to one side set it up directly in front of you so your entire face is lit evenly. It is still a good idea to use fill lights in this set up to give you some dimension, and a backlight is even more essential for helping you stand out from the background. The even light hitting your face will also make you look flat if you do not use a backlight.
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
 
@@ -111,10 +111,10 @@ If you are stuck shooting in **low light conditions** it is best to use a lens w
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880940/19272" target="_top" id="1880940">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880940" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094479/7443" target="_top" id="2094479">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094479" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880940/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094479/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -138,20 +138,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-thumbnail-dimensions-the-key-to-youtube-attraction/"><u>[New] 2024 Approved Thumbnail Dimensions The Key to YouTube Attraction</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-unlock-free-power-of-youtube-imagery-extraction/"><u>[New] 2024 Approved Unlock Free Power of YouTube Imagery Extraction</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/igh-fidelity-game-recording-tools/"><u>[New] High Fidelity Game Recording Tools</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-recording-internet-radios-simplified-tips-and-tricks/"><u>[New] Recording Internet Radios Simplified Tips and Tricks</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-creating-compelling-valorant-thumbnails-for-digital-viewers-for-2024/"><u>[Updated] Creating Compelling Valorant Thumbnails for Digital Viewers for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-leading-9-free-logo-design-software-for-youtube-channels/"><u>[Updated] In 2024, Leading 9 Free Logo Design Software for YouTube Channels</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/1-the-durable-clamshell-notebook-a-timeless-tech-companion/"><u>1. The Durable Clamshell Notebook: A Timeless Tech Companion</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-the-infographic-index-youtubes-surprising-stat-treasury-2017/"><u>2024 Approved The Infographic Index YouTube's Surprising Stat Treasury (2017)</u></a></li>
-<li><a href="https://win-dash.techidaily.com/download-logitech-speaker-software-compatible-with-windows-10-7-and-8/"><u>Download Logitech Speaker Software Compatible with Windows 10, 7 & 8</u></a></li>
-<li><a href="https://win-remarkable.techidaily.com/guide-comparatif-choisir-entre-les-microphones-audio-gratuit-et-payant-pour-lenregistrement-professionnel/"><u>Guide Comparatif : Choisir Entre Les Microphones Audio Gratuit Et Payant Pour L'enregistrement Professionnel</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/how-can-we-bypass-honor-play-40c-frp-by-drfone-android/"><u>How Can We Bypass Honor Play 40C FRP?</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/live-streaming-pro-discover-the-best-features-of-manycam-your-ultimate-virtual-camera/"><u>Live Streaming Pro: Discover the Best Features of ManyCam - Your Ultimate Virtual Camera</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/utionizing-video-sharing-alternatives-to-youtube-for-2024/"><u>Revolutionizing Video Sharing Alternatives to YouTube for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unveiling-the-pixel-slates-flaws-the-confounding-journey-through-chromeos/"><u>Unveiling the Pixel Slate's Flaws - The Confounding Journey Through ChromeOS</u></a></li>
-<li><a href="https://techidaily.com/y78plus-video-recovery-recover-deleted-videos-from-y78plus-by-fonelab-android-recover-video/"><u>Y78+ Video Recovery - Recover Deleted Videos from Y78+</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-craft-professional-scenes-access-these-top-8-free-green-screen-backdrops-sites-for-2024/"><u>[New] Craft Professional Scenes - Access These Top 8 Free Green Screen Backdrops Sites for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-building-a-fanbase-with-youtube-streams/"><u>[New] In 2024, Building a Fanbase with YouTube Streams</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-top-lenses-for-animation-photography/"><u>[New] In 2024, Top Lenses for Animation Photography</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-reaping-the-benefits-of-hdr-for-professional-videoists/"><u>[New] Reaping the Benefits of HDR for Professional Videoists</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2-ways-to-increase-your-youtube-audience-fast/"><u>[Updated] 2 Ways to Increase Your YouTube Audience Fast</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-ultimate-sound-bank-vintage-voice-choices/"><u>[Updated] Ultimate Sound Bank Vintage Voice Choices</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-trend-driven-infographics-the-leaders-in-23/"><u>2024 Approved Trend-Driven Infographics The Leaders in '23</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-inspirational-themes-for-regular-vlogs/"><u>In 2024, Inspirational Themes for Regular Vlogs</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/rootjunky-apk-to-bypass-google-frp-lock-for-vivo-y27-4g-by-drfone-android/"><u>Rootjunky APK To Bypass Google FRP Lock For Vivo Y27 4G</u></a></li>
 </ul></div>
 

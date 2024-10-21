@@ -1,7 +1,7 @@
 ---
 title: "\"Step-by-Step  Designing Striking Youtube Thumbnails with macOS\""
-date: 2024-10-09T17:12:35.568Z
-updated: 2024-10-15T05:54:23.807Z
+date: 2024-10-16T19:27:00.879Z
+updated: 2024-10-20T22:44:21.999Z
 tags:
   - ai video
   - ai youtube
@@ -47,29 +47,22 @@ thumbnails are a significant factor in determining the number of views a Youtube
 
 If you don’t create a thumbnail then youtube will generate one by itself which may not be so enticing for viewers. The purpose of the thumbnail is to make your videos stand out among the rest so you need to pay attention to it!
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to make Youtube Thumbnails on Mac
 
 You can easily create interesting thumbnails for youtube videos using a thumbnail maker like[FilmoraX](https://tools.techidaily.com/wondershare/filmora/download/) . Here is a step by step guide:
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037345/7443" target="_top" id="2037345">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037345" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037345/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1. Preview the video and choose the still snapshot
 
 The first step in creating a thumbnail is to import the final video into the FilmoraX editor on your MacBook.
 
 ![import](https://images.wondershare.com/filmora/filmoraX/Guide-Mac/3.import-media-files.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Then, use the thumbnail editor to play your video and choose the snapshot that you want to be appearing as your thumbnail.
 
@@ -90,16 +83,17 @@ FilmoraX has a wide range of effects that you can apply to your videos or pictur
 ![filter9](https://images.wondershare.com/filmora/guide/filter-9-mac.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1484963">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934188/19272" target="_top" id="1934188">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934188" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934188/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4. Save the thumbnail
@@ -116,14 +110,20 @@ Hopefully, the above-mentioned steps have given you enough insight and clarity o
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1977004">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -146,19 +146,14 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-simple-screen-capture-techniques-to-grab-youtube-soundtracks/"><u>[New] 2024 Approved Simple Screen-Capture Techniques to Grab YouTube Soundtracks</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-unveiling-the-must-have-gear-for-new-youtubers/"><u>[New] 2024 Approved Unveiling the Must-Have Gear for New YouTubers</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-finding-the-central-node-of-youtube-video-management-for-2024/"><u>[New] Finding the Central Node of YouTube Video Management for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-insider-guide-to-gopro-wizardry-for-2024/"><u>[New] Insider Guide to GoPro Wizardry for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-the-compre-habits-of-top-reddit-posters-explained/"><u>[Updated] In 2024, The Compre Habits of Top Reddit Posters Explained</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/best-value-4k-photography-equipment-for-2024/"><u>Best Value 4K Photography Equipment for 2024</u></a></li>
-<li><a href="https://win-dash.techidaily.com/download-lenovo-x220-drivers-made-simple-with-this-handy-how-to-guide/"><u>Download Lenovo X220 Drivers Made Simple with This Handy How-To Guide</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/groundbreenas-choosing-first-time-gamers-editing-apps/"><u>Groundbreenas Choosing First-Time Gamers' Editing Apps</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-apex-artists-youtubes-most-followed-sages/"><u>In 2024, Apex Artists YouTube's Most-Followed Sages</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-bridging-content-gap-youtube-videos-to-instagram/"><u>In 2024, Bridging Content Gap YouTube Videos to Instagram</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-deep-dive-into-rank-tracker-solutions-for-peak-success-on-youtube/"><u>In 2024, Deep Dive Into Rank Tracker Solutions for Peak Success on YouTube</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/the-youtubers-overture-orchestrating-video-triumphs-for-2024/"><u>The YouTuber’s Overture Orchestrating Video Triumphs for 2024</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/toms-computer-reviews-expert-insights-on-latest-tech/"><u>Tom's Computer Reviews: Expert Insights on Latest Tech</u></a></li>
-<li><a href="https://ai-voice-clone.techidaily.com/top-list-best-5-tools-for-creating-talking-avatars-for-2024/"><u>Top List Best 5 Tools for Creating Talking Avatars for 2024</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-2024-approved-the-question-of-streaming-fb-moviesvideos-via-tv/"><u>[New] 2024 Approved The Question of Streaming FB Movies/Videos via TV</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/astery-of-gamers-channel-graphics-with-template-use-for-2024/"><u>[New] Mastery of Gamers' Channel Graphics with Template Use for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-whats-youtube-creative-commons-and-how-to-use-cc-to-make-video/"><u>[Updated] 2024 Approved What's YouTube Creative Commons and How to Use CC to Make Video</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-dive-into-creating-alluring-youtube-video-intros/"><u>[Updated] Dive Into Creating Alluring YouTube Video Intros</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/android-wi-fi-connection-woes-heres-how-to-solve-authentication-errors/"><u>Android Wi-Fi Connection Woes? Here's How to Solve Authentication Errors</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/fixing-frost-on-macbook-air-how-to-defrost-quickly-and-safely/"><u>Fixing Frost on MacBook Air: How To Defrost Quickly and Safely</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-best-audio-equipment-matched-with-4k-cameras/"><u>In 2024, Best Audio Equipment Matched with 4K Cameras</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/eling-the-secrets-of-captivating-education-videos-the-ultimate-youtube-strategy/"><u>Unraveling the Secrets of Captivating Education Videos The Ultimate YouTube Strategy</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/visualize-storage-quickly-integrate-diskanalyzer-into-windows-menu/"><u>Visualize Storage Quickly: Integrate DiskAnalyzer Into Windows Menu</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The YouTube Creator Summit - A Getaway for YouTube's Top Talent for 2024\""
-date: 2024-10-10T06:42:26.337Z
-updated: 2024-10-15T02:44:51.639Z
+date: 2024-10-19T17:51:00.031Z
+updated: 2024-10-20T17:21:09.244Z
 tags:
   - ai video
   - ai youtube
@@ -64,16 +64,16 @@ _Tess takes you to some of her favorite places in Dumbo._
 
 Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators who attended the summit probably had a lot of fun exploring it.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 2\. Post Cards
 
 One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 3\. S’well bottle
 
@@ -85,27 +85,7 @@ To help them relax after long days at the summit, YouTube provided creators with
 
 ![Branded slippers - 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-branded-slippers.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082539/7443" target="_top" id="2082539">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082539" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082539/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 _thinknoodles wearing his YouTube slippers._
-
-<!-- affiliate ads begin -->
-<span id="1975562">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 5\. Pins, pins, pins
 
@@ -117,6 +97,13 @@ A denim jacket with a play button on it was also in the box. The idea was that c
 
 _![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 _Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
 
 Most creators here on Filmora are still trying to grow their channels, but one day I hope you’ll be able to attend an event like the YouTube Creator Summit and tell us all about it!
@@ -126,13 +113,20 @@ Want to join the YouTube Creator Summit in the future? We all know that there is
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528689/16446" target="_top" id="1528689">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528689" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528689/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -155,22 +149,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-download-custom-mcb-banner-packs/"><u>[New] 2024 Approved Download Custom MCB Banner Packs</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-gain-an-edge-access-these-top-8-sites-for-free-eco-screen-backdrops-and-clips/"><u>[New] 2024 Approved Gain an Edge - Access These Top 8 Sites for FREE Eco-Screen Backdrops and Clips</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-instant-grooves-lasting-stories-making-sense-of-music-shorts/"><u>[New] 2024 Approved Instant Grooves, Lasting Stories Making Sense of Music Shorts</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-miniature-harmonies-character-music-journey/"><u>[New] 2024 Approved Miniature Harmonies Character Music Journey</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-repeat-revelry-televised-looping-of-online-media-content/"><u>[New] 2024 Approved Repeat Revelry Televised Looping of Online Media Content</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-aspect-ratio-essentials-for-social-network-videos-for-2024/"><u>[New] Aspect Ratio Essentials for Social Network Videos for 2024</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/solved-logitech-g433-mic-not-working/"><u>[SOLVED] Logitech G433 Mic Not Working</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-professional-selfies-elevating-your-online-presence/"><u>[Updated] 2024 Approved Professional Selfies Elevating Your Online Presence</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/-the-art-of-steadiness-in-photography-for-2024/"><u>Grasp the Art of Steadiness in Photography for 2024</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-your-nokia-150-2023-location-on-twitter-drfone-by-drfone-virtual-android/"><u>How to Change your Nokia 150 (2023) Location on Twitter | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-jailbreak-icloud-locked-apple-iphone-6s-plus-by-drfone-ios/"><u>How to jailbreak iCloud locked Apple iPhone 6s Plus</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-planning-to-use-a-pokemon-go-joystick-on-nokia-c210-drfone-by-drfone-virtual-android/"><u>In 2024, Planning to Use a Pokemon Go Joystick on Nokia C210? | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/navigating-ig-success-a-guide-to-best-management-tools-for-2024/"><u>Navigating IG Success A Guide to Best Management Tools for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/-video-editors-for-youtube-enthusiasts-for-2024/"><u>Prime Video Editors for YouTube Enthusiasts for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/-picking-playbacks-character-beats-unveiled/"><u>Pulse-Picking Playbacks Character Beats Unveiled</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/1721917632165-share-and-keep-record-of-all-your-interactions-using-these-powerful-chatgpt-extensions/"><u>Share and Keep Record of All Your Interactions Using These Powerful ChatGPT Extensions</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/total-reset-of-an-iphone-on-your-computer-best-techniques-for-windows-and-mac-devices/"><u>Total Reset of an iPhone on Your Computer: Best Techniques for Windows and Mac Devices</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/avigating-the-complexities-of-youtube-copyright-claims/"><u>[New] Navigating the Complexities of YouTube Copyright Claims</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-seamless-sharing-linking-youtube-to-insta-stories/"><u>[New] Seamless Sharing Linking YouTube to Insta Stories</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-dodge-digital-watchers-accelerating-view-count-growth/"><u>[Updated] Dodge Digital Watchers Accelerating View Count Growth</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-go-live-with-google-meet-youtube-broadcasting-steps-for-2024/"><u>[Updated] Go Live with Google Meet YouTube Broadcasting Steps for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-key-methods-for-silent-screen-imaging-for-2024/"><u>[Updated] Key Methods for Silent Screen Imaging for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/utube-video-ideas-for-musicians/"><u>15 YouTube Video Ideas for Musicians</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/2024-approved-share-the-laughs-right-top-gif-saver-for-twitter/"><u>2024 Approved Share the Laughs Right Top GIF Saver for Twitter</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/avi-m2ts-online/"><u>AVI 크레이트를 M2TS로 자유성 대상에서 원활한 바이네틱스 전환 - Online웍스</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/o-buy-1-million-youtube-views-safely-from-trusted-providers/"><u>How to Buy 1 Million YouTube Views Safely From Trusted Providers</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-lava-agni-2-5g-by-phone-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Lava Agni 2 5G by Phone Number | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/maximize-your-icloud-capacity-a-step-by-step-guide-to-clearing-space-and-earn-extra-storage/"><u>Maximize Your iCloud Capacity: A Step-by-Step Guide to Clearing Space & Earn Extra Storage</u></a></li>
+<li><a href="https://fox-that.techidaily.com/step-by-step-solution-for-fixing-the-last-line-no-longer-available-problem-on-iphones/"><u>Step-by-Step Solution for Fixing the ‘Last Line No Longer Available’ Problem on iPhones</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/step-by-step-tutorial-on-connecting-with-a-bose-soundlink-speaker/"><u>Step-by-Step Tutorial on Connecting with a Bose SoundLink Speaker</u></a></li>
 </ul></div>
 
