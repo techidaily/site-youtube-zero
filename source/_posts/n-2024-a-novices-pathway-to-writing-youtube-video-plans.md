@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, A Novice's Pathway to Writing YouTube Video Plans"
-date: 2024-09-11T01:49:59.587Z
-updated: 2024-09-12T01:49:59.587Z
+date: 2024-10-24T16:46:08.728Z
+updated: 2024-10-26T21:00:18.011Z
 tags:
   - ai video
   - ai youtube
@@ -35,13 +35,10 @@ You have a great idea for a video, but you’re just not sure how to express it 
 3. [After Writing Your YouTube Video Script](#after)
 4. [Bonus Tip- Add Subtitles to Your YouTube Video with Wondershare Filmora](#bonus)
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
 
 ## Before You Write Your YouTube Script
 
@@ -63,55 +60,20 @@ Now that you're ready to sit down and write, here's what you do:
 
 The first step in writing a script is to develop an outline for the story. You might think that it is an unnecessary step, but it’s one of the most important steps to writing a script. The outline serves as a guide that will make the finished product better compared to when you just tried to wing it. One tip on how to write a script for a YouTube video is to have an outline for the beginning, middle, and ending of the video. Once you have all the elements of the story, then you can start with the first draft of the script.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ### 2\. Set the tone
 
 The tone you pick for the video will depend on your audience. It’s safe to assume that viewers want something that’s unique, informative, and engaging. In some cases, they look for a video that’s personal, and they can relate to it. Humor is also something that you should consider when writing a script.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115919/19272" target="_top" id="2115919">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115919" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115919/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### 3\. Just keep writing
 
 When you start writing it is important that you keep on doing it no matter what happens. Just write down everything that comes into your mind. After that, read what you’ve written. If you think that something needs to be replaced, then replace it. If you get more inspiration and think that the script is lacking, then add to it.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115943/19272" target="_top" id="2115943">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115943" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115943/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### 4\. Make sure that the script is well structured
 
@@ -135,25 +97,18 @@ While you are scripting and focusing on the information you want to deliver, it�
 
 Remember to refer to your audience as ‘you’, not ‘you guys’ (you are speaking to individual viewers, not a collective) and to include moments of engagement throughout your videos. Ask your viewers questions to keep their minds active, this also encourages them to leave comments.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## After Writing your YouTube Video Script
 
 After writing the script, the next step is to invite a trusted friend or family member to look at the script. Ask them for their feedback and if they have any ideas to add. And don’t forget, be open-minded to feedback
 
 These are the tips to keep in mind when considering how to write a script for a YouTube video.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043639/7443" target="_top" id="2043639">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043639" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043639/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Add Subtitles to Your YouTube Video with Wondershare Filmora
 
@@ -161,41 +116,21 @@ Creating subtitles with Wondershare Filmora is very easy and a newbie can easily
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1983552">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
+<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 Richard Bennett
 
@@ -203,14 +138,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -219,12 +151,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-techtrends-screencapture-software-evaluation/"><u>[New] 2024 Approved TechTrends ScreenCapture Software Evaluation</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/irection-and-intensity-in-video-lighting-for-2024/"><u>[New] Direction and Intensity in Video Lighting for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ree-end-credits-maker-the-1-video-closers-guide/"><u>[New] Free End Credits Maker - The #1 Video Closers Guide</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-seeking-the-best-ps2-games-try-these-5-android-emulators-for-2024/"><u>[New] Seeking the Best PS2 Games? Try These 5 Android Emulators for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-captivating-viewers-top-10-creative-yt-reaction-tactics/"><u>[Updated] 2024 Approved Captivating Viewers Top 10 Creative YT Reaction Tactics</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-channel-name-genius-brainstorming-like-a-pro/"><u>[Updated] 2024 Approved Channel Name Genius Brainstorming Like a Pro</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-tutorial-on-youtube-thumbnail-extraction-for-all-os-enthusiasts/"><u>[Updated] 2024 Approved Tutorial on YouTube Thumbnail Extraction for All OS Enthusiasts</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-best-websites-to-find-3d-gold-text-effects/"><u>[Updated] Best Websites to Find 3D Gold Text Effects</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-breaking-down-the-three-stages-of-snapchat-calls-and-chats/"><u>[Updated] Breaking Down the Three Stages of Snapchat Calls and Chats</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-direct-conversion-of-spotify-music-5-tools-for-youtube-streaming/"><u>[Updated] In 2024, Direct Conversion of Spotify Music 5 Tools for YouTube Streaming</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-expert-insights-where-to-invest-in-youtube-creator-revenue/"><u>[Updated] In 2024, Expert Insights Where to Invest in YouTube Creator Revenue</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-animatedapp-full-guide-24-edition/"><u>In 2024, AnimatedApp Full Guide '24 Edition</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-navigating-youtube-tv-the-ultimate-guide/"><u>In 2024, Navigating YouTube TV The Ultimate Guide</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-reimagine-your-content-with-advanced-number-edits-in-tiktok/"><u>In 2024, Reimagine Your Content with Advanced Number Edits in TikTok</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-top-4-sim-location-trackers-to-easily-find-your-lost-infinix-gt-10-pro-device-by-drfone-android/"><u>In 2024, Top 4 SIM Location Trackers To Easily Find Your Lost Infinix GT 10 Pro Device</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-ultimate-glossary-for-googles-voice-to-text-feature/"><u>In 2024, Ultimate Glossary for Google's Voice-to-Text Feature</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/y-workshop-converting-your-visuals-into-stellar-youtube-pics/"><u>Speedy Workshop Converting Your Visuals Into Stellar YouTube Pics</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/unlocking-streamlined-web-application-creation-leveraging-chatgpt-technology/"><u>Unlocking Streamlined Web Application Creation: Leveraging ChatGPT Technology</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/yield-your-content-mastering-youtube-ads-for-earnings-for-2024/"><u>Yield Your Content Mastering YouTube Ads for Earnings for 2024</u></a></li>
+</ul></div>
 

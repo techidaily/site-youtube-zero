@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, How to View YouTube Statistics"
-date: 2024-10-14T23:15:56.394Z
-updated: 2024-10-21T00:10:05.135Z
+date: 2024-10-25T16:50:31.447Z
+updated: 2024-10-26T20:35:49.991Z
 tags:
   - ai video
   - ai youtube
@@ -49,10 +49,10 @@ As one of the best video editing software for YouTube, [Filmora](https://tools.t
 [![Get free YouTube Subscribers Guide Banner](https://images.wondershare.com/filmora/article-images/get-free-youtube-subs-banner.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997675/19272" target="_top" id="1997675">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997675" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997675/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to View Your YouTube Statistics
@@ -62,13 +62,6 @@ In order to view your YouTube Analytics, sign in to your YouTube account and go 
 In order to check which of your videos are performing the best, click on **Watch time** under **Watch time reports**. At the top of the page there’ll be a graph of your watch time in general, and if you scroll down you’ll see a list of your videos ranked by watch time. The best performing ones will be at the top and, to see more stats related to these high-performing videos, simply click on their titles. Afterwards, you’ll be able to click around the different sections in your Analytics and see reports relating to the specific video you clicked on.
 
 The two main types of analytics reports are Watch Time Reports and Interaction Reports.
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148634/16836" target="_top" id="2148634">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148634" border="0" alt="https://techidaily.com" width="80" height="31"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148634/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1. Interpreting YouTube Watch Time Reports
 
@@ -83,6 +76,13 @@ Alongside watch time you can see the average duration individual viewers are wat
 In the watch time reports for individual videos, you will be able to see data on where your views are coming from and which demographics are watching the most. Where your viewers are watching, in terms of desktop or mobile, is also interesting data that is available in this section.
 
 Click here for more tips on[increasing your views](https://www.filmora.io/community-blog/12-proven-ways-to-increase-youtube-views-315.html).
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925544/19272" target="_top" id="1925544">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925544" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925544/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2. Interpreting YouTube Interaction Reports
 
@@ -109,10 +109,10 @@ Interaction reports can be broken down into several different reports that can h
 **7\. 360 heat map reports:** A heat map report works specifically with 360° videos if you are choosing to engage your audience with this type of content. Viewing YouTube video statistics for 360° heat maps will help to show the areas on your video that viewers are most interested in.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to View Other Peoples YouTube Statistics
@@ -124,10 +124,10 @@ Now that you know how to view YouTube statistics, what will you do with them?
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -151,18 +151,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-how-to-expertly-record-and-save-your-favorite-hulu-shows/"><u>[Updated] 2024 Approved How To Expertly Record and Save Your Favorite Hulu Shows</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-the-video-venture-a-vloggers-journey-to-judicious-gains/"><u>[Updated] 2024 Approved The Video Venture A Vlogger's Journey to Judicious Gains</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-connect-with-creators-unravel-your-youtube-subscriber-type-with-6-exciting-questionnaires/"><u>[Updated] Connect With Creators Unravel Your YouTube Subscriber Type with 6 Exciting Questionnaires</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-guide-to-avoid-instagram-auto-suggest-feature/"><u>2024 Approved Guide to Avoid Instagram Auto-Suggest Feature</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-harmonize-your-listens-the-complete-path-to-youtube-playlist-making-webmobile/"><u>2024 Approved Harmonize Your Listens The Complete Path to YouTube Playlist Making (Web/Mobile)</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/in-2024-creating-ootd-masterpieces-for-tiktok-with-macos/"><u>In 2024, Creating OOTD Masterpieces for TikTok with MacOS</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-snapshot-surprises-yearly-yt-stats-and-trends-in-graphics/"><u>In 2024, Snapshot Surprises Yearly YT Stats & Trends in Graphics</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-top-10-free-youtube-channels-for-exceptional-art-creation/"><u>In 2024, Top 10 FREE YouTube Channels for Exceptional Art Creation</u></a></li>
-<li><a href="https://fox-that.techidaily.com/resolving-iphone-downloading-hurdles-essential-tips-and-tricks-you-need/"><u>Resolving iPhone Downloading Hurdles: Essential Tips and Tricks You Need</u></a></li>
-<li><a href="https://location-social.techidaily.com/set-your-preferred-job-location-on-linkedin-app-of-your-vivo-t2x-5g-drfone-by-drfone-virtual-android/"><u>Set Your Preferred Job Location on LinkedIn App of your Vivo T2x 5G | Dr.fone</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/solved-continuous-audio-disruption-problems-in-windows-10-explained/"><u>Solved! Continuous Audio Disruption Problems in Windows 10 Explained</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/table-choices-top-free-online-intros/"><u>Unbeatable Choices Top Free Online Intros</u></a></li>
-<li><a href="https://change-location.techidaily.com/what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-vivo-y100i-drfone-by-drfone-virtual-android/"><u>What is the best Pokemon for pokemon pvp ranking On Vivo Y100i? | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/treaming-success-starts-here-8-tips-for-beginners/"><u>[New] Streaming Success Starts Here - 8 Tips for Beginners</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/tylish-profiles-easy-downloads/"><u>[New] Stylish Profiles, Easy Downloads</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ips-for-seamlessly-adding-youtube-to-your-gslides-deck/"><u>[New] Tips for Seamlessly Adding YouTube to Your GSlides Deck</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-unlock-the-power-of-vocal-performance-in-digital-media-production/"><u>[New] Unlock the Power of Vocal Performance in Digital Media Production</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-views-for-livelihood-mastering-youtubes-true-numbers/"><u>[Updated] 2024 Approved Views for Livelihood Mastering YouTube's True Numbers</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-constructive-approaches-to-defeating-digital-trolls-for-2024/"><u>[Updated] Constructive Approaches to Defeating Digital Trolls for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/cultivating-a-loyal-viewership-base-on-youtube/"><u>Cultivating a Loyal Viewership Base on Youtube</u></a></li>
+<li><a href="https://fox-access.techidaily.com/exploring-advanced-options-with-gopro-burst-features-for-2024/"><u>Exploring Advanced Options with GoPro Burst Features for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/gratuitamente-converti-i-file-opus-in-formato-flac-di-qualita-superior-con-movavi-online/"><u>Gratuitamente Converti I File Opus in Formato Flac Di Qualità Superior Con Movavi - OnLine!</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-nokia-c22-drfone-by-drfone-virtual-android/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Nokia C22 | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-unveiling-hidden-gems-top-purchasers-of-youtube-creators/"><u>In 2024, Unveiling Hidden Gems Top Purchasers of YouTube Creators</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/mastering-supplementary-video-for-enhanced-storytelling/"><u>Mastering Supplementary Video for Enhanced Storytelling</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/e-game-innovators-and-their-streams-for-2024/"><u>Mobile Game Innovators and Their Streams for 2024</u></a></li>
 </ul></div>
 

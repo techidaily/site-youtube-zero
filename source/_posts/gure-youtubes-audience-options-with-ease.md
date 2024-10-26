@@ -1,7 +1,7 @@
 ---
 title: "Configure YouTube's Audience Options with Ease"
-date: 2024-09-11T01:48:36.115Z
-updated: 2024-09-12T01:48:36.115Z
+date: 2024-10-19T21:07:55.143Z
+updated: 2024-10-26T21:22:41.283Z
 tags:
   - ai video
   - ai youtube
@@ -60,20 +60,6 @@ thumbnail: https://thmb.techidaily.com/8e684e3736085a42393dd155a637e8f217c26c390
 
 ![youtube privacy setting](https://images.wondershare.com/filmora/article-images/youtube-privacy-setting.JPG)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115911/19272" target="_top" id="2115911">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115911" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115911/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Part 2: How to Change Privacy Settings
 
  There are two ways to change the privacy settings: firstly, when you upload the video, and secondly through Creator Studio.
@@ -90,41 +76,14 @@ thumbnail: https://thmb.techidaily.com/8e684e3736085a42393dd155a637e8f217c26c390
 
 ![youtube privacy settings](https://images.wondershare.com/filmora/article-images/unlisted-video.JPG)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1424531">
-					<video width="864" height="NaN" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
  To change the privacy, click the icon. You’ll be taken to the video's info and settings page. Down below where you see the thumbnails you'll see the selected privacy setting. Click this to open a drop down menu, and select your desired privacy level.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934254/19272" target="_top" id="1934254">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934254" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934254/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Part 3: Sharing Private Videos
 
@@ -132,19 +91,19 @@ thumbnail: https://thmb.techidaily.com/8e684e3736085a42393dd155a637e8f217c26c390
 
 ![share youtube privacy video](https://images.wondershare.com/filmora/article-images/share-private-video.JPG)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120861/26400?prodsku=Saturn" target="_top" id="2120861">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120861" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://arkmc.pxf.io/c/5597632/352557/5172" target="_top" id="352557">
+  <img src="//a.impactradius-go.com/display-ad/5172-352557" border="0" alt="https://techidaily.com" width="720" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120861/26400?prodsku=Saturn" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352557/5172" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
-
-
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1186802/12108" target="_top" id="1186802">
+  <img src="//a.impactradius-go.com/display-ad/12108-1186802" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186802/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -152,35 +111,14 @@ thumbnail: https://thmb.techidaily.com/8e684e3736085a42393dd155a637e8f217c26c390
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886019/19272" target="_top" id="1886019">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886019" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886019/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 Richard Bennett
 
@@ -188,14 +126,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -204,4 +139,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/nhancing-video-quality-editing-tips-for-published-content-for-2024/"><u>[New] Enhancing Video Quality Editing Tips for Published Content for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-effortless-youtube-file-extraction/"><u>[New] In 2024, Effortless YouTube File Extraction</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-the-economics-of-youtube-marketing-strategies-for-2024/"><u>[New] The Economics of YouTube Marketing Strategies for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-streamers-vs-micro-influencers-which-platform-reigns-supreme-for-brief-videos/"><u>[Updated] 2024 Approved Streamers Vs. Micro-Influencers Which Platform Reigns Supreme for Brief Videos?</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-frameworks-for-compelling-youtube-content-layouts-for-2024/"><u>[Updated] Frameworks for Compelling YouTube Content Layouts for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-masters-designing-virtual-marvel-realms/"><u>[Updated] In 2024, Masters Designing Virtual Marvel Realms</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-navigating-lenses-for-professional-videography/"><u>[Updated] In 2024, Navigating Lenses for Professional Videography</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/avoiding-content-id-alerts-strategies-on-youtube-for-2024/"><u>Avoiding Content ID Alerts Strategies on YouTube for 2024</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/experts-insights-on-the-secure-high-capacity-amazon-basics-12-sheet-shredder/"><u>Experts' Insights on the Secure, High-Capacity Amazon Basics 12-Sheet Shredder</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-oneplus-ace-2v-to-other-android-devices-using-bluetooth-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from OnePlus Ace 2V to Other Android Devices Using Bluetooth? | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-6-ways-to-change-spotify-location-on-your-apple-iphone-15-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, 6 Ways to Change Spotify Location On Your Apple iPhone 15 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-strategies-for-overcoming-8-typical-newbie-youtube-errors/"><u>In 2024, Strategies for Overcoming 8 Typical Newbie YouTube Errors</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-2024-approved-how-to-add-audio-fade-out-effect/"><u>New 2024 Approved How to Add Audio Fade Out Effect</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-music-from-nokia-c32-by-fonelab-android-recover-music/"><u>Possible solutions to restore deleted music from Nokia C32</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/the-ultimate-guide-to-stellar-tiktok-content-through-template-utilization-for-2024/"><u>The Ultimate Guide to Stellar TikTok Content Through Template Utilization for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/k-free-youtube-gallery-downloads-now/"><u>Unlock Free YouTube Gallery Downloads Now</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/king-youtubes-secrets-for-profound-visibility-gains/"><u>Unlocking YouTube's Secrets for Profound Visibility Gains</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] How to Use Google Trends to Come up with Video Ideas for 2024"
-date: 2024-10-13T18:01:03.457Z
-updated: 2024-10-20T18:28:53.152Z
+date: 2024-10-25T20:19:22.219Z
+updated: 2024-10-26T20:12:35.824Z
 tags:
   - ai video
   - ai youtube
@@ -52,10 +52,10 @@ Unless you do news or political commentary on your channel these probably aren�
 To get information more relevant to your channel you’re going to have to do some filtering.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: Getting Results That Matter to You
@@ -88,6 +88,19 @@ Having something to say doesn’t have to mean having a strong opinion. If you j
 
 Clicking on these results will give you more specific data including how often the topic has been searched recently and links to recent news articles. These can give you a better idea of why it is trending and help you come up with what you want to say.
 
+<!-- affiliate ads begin -->
+<span id="1993647">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3: Battle of the Keywords
 
 Once you have a topic in mind for your next video – whether it came from Google Trends or your own noggin – think about what the most important keyword for that topic might be.
@@ -101,6 +114,13 @@ Once you have a keyword in mind, type it into the Explore bar at the top of your
 What happens after you click **enter** is pretty much magic. Say I want to make a video on how to use Filmora. The first thing I’ll type into that Explore bar is ‘Filmora’.
 
 ![Google Trends YouTube Video Keywords](https://images.wondershare.com/filmora/article-images/google-trends-search-term.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 You can see near the top that this chart represents searches for the topic over the last 5 years, which isn’t necessarily useful (although it is sort of cool that you can see when Filmora was ‘born’). I’m going to narrow that down to results from the U.S in the last week.
 
@@ -131,10 +151,10 @@ One of the biggest benefits of identifying trends and making videos about them q
 Want to make coming up with YouTube video ideas a habit? [This post here](https://www.filmora.io/community-blog/how-to-come-up-with-better-youtube-video-ideas-391.html) will help you develop a process to generate more ideas and properly evaluate them.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934138/19272" target="_top" id="1934138">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934138" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934138/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Making Better YouTube Videos with [Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -143,27 +163,7 @@ As one of the most widely used video editing software among YouTubers, Filmora p
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<span id="1899850">
-					<video width="486" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043639/7443" target="_top" id="2043639">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043639" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043639/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -186,18 +186,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-flip-to-fun-converting-youtube-videos-to-playful-download-free-gifs/"><u>[New] 2024 Approved Flip to Fun Converting YouTube Videos to Playful, Download-Free GIFs</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/nwind-with-laughter-curating-15-hilarious-youtube-masterpieces/"><u>[New] Unwind with Laughter Curating 15 Hilarious YouTube Masterpieces</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-employing-google-trends-to-discover-compelling-video-themes/"><u>[Updated] 2024 Approved Employing Google Trends to Discover Compelling Video Themes</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-discover-15-superior-snap-strategies-for-2024/"><u>[Updated] Discover 15 Superior Snap Strategies for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-testing-the-capabilities-of-magix-image-viewer-for-2024/"><u>[Updated] Testing the Capabilities of MAGIX Image Viewer for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-whats-youtube-creative-commons-and-how-to-use-cc-to-make-video/"><u>2024 Approved What's YouTube Creative Commons and How to Use CC to Make Video</u></a></li>
-<li><a href="https://techtrends.techidaily.com/6-frequent-problems-leading-to-car-batteries-draining-too-soon-insights-and-solutions/"><u>6 Frequent Problems Leading to Car Batteries Draining Too Soon: Insights and Solutions</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/te-your-video-popularity-essential-seo-techniques-for-success/"><u>Elevate Your Video Popularity Essential SEO Techniques for Success</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/in-2024-a-comprehensive-analysis-of-how-to-speed-up-audio-files-on-spotify-safely/"><u>In 2024, A Comprehensive Analysis of How to Speed Up Audio Files on Spotify Safely</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-will-ispoofer-update-on-nubia-z50s-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Will iSpoofer update On Nubia Z50S Pro | Dr.fone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/g-your-music-collection-accessible-worldwide/"><u>Making Your Music Collection Accessible Worldwide</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/master-meeting-magic-key-ways-to-tweak-with-zoom-converter-for-2024/"><u>Master Meeting Magic Key Ways to Tweak with Zoom Converter for 2024</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/top-apps-and-online-tools-to-track-samsung-galaxy-a05-phone-withwithout-imei-number-by-drfone-android/"><u>Top Apps and Online Tools To Track Samsung Galaxy A05 Phone With/Without IMEI Number</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-premium-9-clandestine-content-getters/"><u>[New] 2024 Approved Premium 9 Clandestine Content Getters</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/treamlined-playback-controlling-youtube-video-delivery-speeds/"><u>[New] Streamlined Playback Controlling YouTube Video Delivery Speeds</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-elevate-video-quality-mastering-aspect-ratio-and-size-settings-on-youtube/"><u>[Updated] 2024 Approved Elevate Video Quality Mastering Aspect Ratio and Size Settings on YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-exploring-profit-sharing-in-youtube-short-creation/"><u>[Updated] 2024 Approved Exploring Profit Sharing in YouTube Short Creation</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-elevate-your-videos-visibility-with-perfect-thumbnail-sizing-for-2024/"><u>[Updated] Elevate Your Video's Visibility with Perfect Thumbnail Sizing for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-free-and-paid-video-game-opening-mastery-rank-the-best-of-yt-makers-for-2024/"><u>[Updated] Free & Paid Video Game Opening Mastery Rank the Best of YT Makers for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-the-seamless-shift-your-path-to-kinemaster-expertise/"><u>[Updated] In 2024, The Seamless Shift Your Path to Kinemaster Expertise</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-ultimate-vr-journey-best-pc-360-video-streamers-reviewed/"><u>[Updated] The Ultimate VR Journey Best PC 360 Video Streamers Reviewed</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-transforming-your-shots-with-ease-in-photoshop/"><u>[Updated] Transforming Your Shots with Ease in Photoshop</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-top-mp4-tools-for-mac-users-maximizing-youtube-productions/"><u>2024 Approved Top MP4 Tools For Mac Users Maximizing YouTube Productions</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/comprehensive-step-by-step-strategy-how-to-secure-employment-in-top-tech-firms-insights-from-zdnet/"><u>Comprehensive Step-by-Step Strategy: How to Secure Employment in Top Tech Firms - Insights From ZDNet</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/effective-techniques-to-correct-audio-driver-glitches-on-dell-under-windows-7/"><u>Effective Techniques to Correct Audio Driver Glitches on Dell Under Windows 7</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-audio-to-video-bridge-easy-3-step-guide-for-mp3-to-youtube-uploads/"><u>In 2024, Audio-to-Video Bridge Easy 3-Step Guide for MP3 to YouTube Uploads</u></a></li>
+<li><a href="https://extra-information.techidaily.com/sculpting-digital-artwork-through-distortion/"><u>Sculpting Digital Artwork Through Distortion</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/strategies-for-effective-ppt-sharing-in-google-meet-sessions-for-2024/"><u>Strategies for Effective PPT Sharing in Google Meet Sessions for 2024</u></a></li>
 </ul></div>
 

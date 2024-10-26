@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  On-Camera Charisma  A Guide to Personal Video Content\""
-date: 2024-09-11T01:48:36.652Z
-updated: 2024-09-12T01:48:36.652Z
+date: 2024-10-23T17:34:13.767Z
+updated: 2024-10-26T16:50:03.155Z
 tags:
   - ai video
   - ai youtube
@@ -37,19 +37,12 @@ We’ve summarized the key points about setting up talking head style video shot
 
 ![ Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
 
@@ -67,20 +60,6 @@ Objects and people that just make it into the sides of the frame will appear mor
 
 If you look closely into Sean’s eyes, you can also see a specular highlight in the shape of a circle. Many people like the way eyes look against a ring light.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ### 2.  Medium Vlog Set-Up
 
 If you have more space and want to shoot a more professional-looking talking-head shot with more realistic perspectives, a medium vlog set-up may be a better alternative for you.
@@ -95,6 +74,13 @@ You can see from how even the background and couch looks across the entire camer
 
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3.  Two Person Vlog Set-Up
 
 If your talking-head shot has got to include two people, you can use a similar set-up as the medium vlog set-up detailed above.
@@ -103,19 +89,12 @@ If you look back at the 39-second mark of deadmau5’s Masterclass trailer, you 
 
 With two people, though, you’ll want to set up your mic slightly differently. Rather than using a directional shotgun mic with a narrow area of sensitivity, you’ll want to use a directional mic with a wider area of sensitivity.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151890/7443" target="_top" id="2151890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151890" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151890/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### 4.  Long Teleprompter Vlog Set-Up
 
@@ -133,55 +112,20 @@ It is difficult to know whether the movement in his eyes is caused by not being 
 
 Looking to find the right lights for your video recording set? Check out our [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115919/19272" target="_top" id="2115919">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115919" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115919/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Tips for Making a Talking Head Video Better
 
 To make a talking-head video more interesting, you can add some background music to the video, apply some interesting texts or elements. [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) has built-in royalty-free music tracks and sound effects as well as [text templates](https://tools.techidaily.com/wondershare/filmora/download/), filters and motivating elements. Download the free trial version below and release your creativity.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 Richard Bennett
 
@@ -189,14 +133,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -205,4 +146,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-vr-adventures-that-will-captivate-you/"><u>[New] 2024 Approved VR Adventures That Will Captivate You</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-ways-to-increase-audience-retention-on-youtube-for-2024/"><u>[New] 6 Ways To Increase Audience Retention on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ssential-tips-for-editing-your-videos-in-youtube-studio-for-2024/"><u>[New] Essential Tips for Editing Your Videos in YouTube Studio for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ont-exploration-for-enhanced-youtube-thumbnails-appeal-for-2024/"><u>[New] Font Exploration for Enhanced YouTube Thumbnails' Appeal for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-how-to-re-watch-lost-youtube-scenes-online-simple-steps/"><u>[Updated] 2024 Approved How to Re-Watch Lost YouTube Scenes Online Simple Steps</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-maximize-your-youtube-yields-small-channel-sponsorship-strategies/"><u>[Updated] Maximize Your YouTube Yields Small Channel Sponsorship Strategies</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-seamless-video-editing-in-windows-10-without-expensive-software-for-2024/"><u>[Updated] Seamless Video Editing in Windows 10 Without Expensive Software for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-strategic-trailer-planning-for-increased-channels-profitability/"><u>2024 Approved Strategic Trailer Planning for Increased Channels' Profitability</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/vs-youtube-unveiling-key-distinctions-and-best-platform-for-sharing-for-2024/"><u>IGTV Vs. YouTube Unveiling Key Distinctions & Best Platform for Sharing for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-beauty-tutorials-unveiled-creating-a-youtube-channel-from-scratch/"><u>In 2024, Beauty Tutorials Unveiled Creating a YouTube Channel From Scratch</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-exploring-high-res-videography-with-nikon-j5/"><u>In 2024, Exploring High-Res Videography with Nikon J5</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-step-by-step-how-to-master-zoom-in-windows-10/"><u>In 2024, Step-by-Step How to Master Zoom in Windows 10</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-top-12-prominent-honor-v-purse-fingerprint-not-working-solutions-by-drfone-android/"><u>In 2024, Top 12 Prominent Honor V Purse Fingerprint Not Working Solutions</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-to-skyrocket-your-youtube-subscribers-count-for-2024/"><u>Steps to Skyrocket Your YouTube Subscribers Count for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/egic-game-plays-with-top-casters/"><u>Strategic Game Plays with Top Casters</u></a></li>
+<li><a href="https://games-able.techidaily.com/top-6-pitfalls-not-investing-in-a-gaming-specific-display/"><u>Top 6 Pitfalls: Not Investing in a Gaming-Specific Display</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/unraveling-the-mysteries-ai-and-vector-database-relationship/"><u>Unraveling the Mysteries: AI and Vector Database Relationship</u></a></li>
+</ul></div>
 

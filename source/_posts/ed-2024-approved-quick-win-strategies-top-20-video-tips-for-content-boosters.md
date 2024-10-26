@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Quick-Win Strategies  Top 20 Video Tips for Content Boosters\""
-date: 2024-10-13T22:28:05.740Z
-updated: 2024-10-20T18:06:38.871Z
+date: 2024-10-24T18:01:18.792Z
+updated: 2024-10-26T18:55:16.081Z
 tags:
   - ai video
   - ai youtube
@@ -46,13 +46,6 @@ While watching a YouTube video, there might be instances when you want to pause 
 | 'K'               | Play and Pause (Works as a toggle key) |
 | 'Spacebar'        | Play and Pause (Works as a toggle key) |
 
-<!-- affiliate ads begin -->
-<a href="https://bluettifr.pxf.io/c/5597632/2145079/17095" target="_top" id="2145079">
-  <img src="//a.impactradius-go.com/display-ad/17095-2145079" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145079/17095" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Category 2: Scrolling YouTube Videos Back and Forth
 
 This section talks about the shortcut keys to skim the video forward and backward during playback:
@@ -72,6 +65,13 @@ If you’re watching videos on YouTube mobile app, you can use double-tap on the
 
 Long press the Video Player and swipe right will navigate the video forward; and long press the video player and wwipe left will navigate the video backward.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Category 3: Manage Playback Speed
 
 This category contains information on increasing or decreasing the playback speed of a YouTube video:
@@ -80,6 +80,13 @@ This category contains information on increasing or decreasing the playback spee
 | ---------------------- | ----------------------- |
 | 'SHIFT' + '.' (Period) | Increase playback speed |
 | 'SHIFT' + ',' (Comma)  | Decrease playback speed |
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Category 4: Managing the Captions
 
@@ -93,13 +100,6 @@ This category talks about managing the video captions using the shortcut keys:
 | '-' (Minus Key)    | Reduce the font size of the captions (Minus key on the Numpad isn't supported)                                       |
 | '+' (Plus Key)     | Increase the font size of the captions (Plus key on the Numpad isn't supported)                                      |
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948895/19272" target="_top" id="1948895">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948895" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948895/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Category 5: Managing the Audio Video
 
 This category shows the shortcut keys to manage audio for a YouTube video:
@@ -109,13 +109,6 @@ This category shows the shortcut keys to manage audio for a YouTube video:
 | 'M'               | Mute YouTube video    |
 | '↑'               | Increase volume by 5% |
 | '↓'               | Decrease volume by 5% |
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Category 6: Switching Between Screen Modes
 
@@ -155,6 +148,13 @@ So, when you press the Shift+? on YouTube, you will see a full list of shortcuts
 
 ![YouTube Shortcut List](https://images.wondershare.com/filmora/article-images/youtube-keyboard-shortcuts-list.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049382/7443" target="_top" id="2049382">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049382" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049382/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Conclusion**
 
 Watching videos on YouTube is fun, and you can enjoy the clips, movies, tutorials, etc. more if you are well-aware of the important shortcut keys. This not only helps you navigate through the videos faster but also gives you relief from the additional efforts that you would otherwise have to make while grabbing the mouse, and then looking for and using the correct option.
@@ -166,16 +166,10 @@ As one of the most popular video editing software among YouTubers, Filmora provi
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1304647">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -199,20 +193,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-monthly-income-for-content-creators-on-youtube/"><u>[New] 2024 Approved Monthly Income for Content Creators on YouTube?</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-secrets-of-filmo/"><u>[New] 2024 Approved Secrets of Filmo</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-secure-your-contents-success-with-proper-srt-upload-methods-to-social-media/"><u>[New] 2024 Approved Secure Your Content's Success with Proper SRT Upload Methods to Social Media</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/n-2024-charting-a-successful-course-in-youtube-keywords/"><u>[New] In 2024, Charting a Successful Course in YouTube Keywords</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-streamlined-techniques-for-saving-slideshows/"><u>[New] In 2024, Streamlined Techniques for Saving Slideshows</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-enlightened-exercits-discovering-the-most-inspiring-yogis-online/"><u>[Updated] Enlightened Exercits - Discovering the Most Inspiring Yogis Online</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-how-to-craft-eye-catching-youtubes-end-titles/"><u>[Updated] In 2024, How to Craft Eye-Catching YouTubes End Titles</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-endgame-for-deactivating-an-instagram-profile-for-2024/"><u>[Updated] The Endgame for Deactivating an Instagram Profile for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/2024-approved-crafting-straightforward-stories/"><u>2024 Approved Crafting Straightforward Stories</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/t-friendly-broadcaster-gear-for-video-voyeurs/"><u>Budget-Friendly Broadcaster Gear for Video Voyeurs</u></a></li>
-<li><a href="https://win-able.techidaily.com/dmms-english-lessons-proven-techniques-for-recording-audio-and-video-sessions/"><u>DMM's English Lessons: Proven Techniques for Recording Audio and Video Sessions</u></a></li>
-<li><a href="https://fox-tls.techidaily.com/get-video-conversion-downloads-mp4-mov-avi-effortlessly-using-myvidster/"><u>Get Video Conversion Downloads (MP4, MOV, AVI) Effortlessly Using MyVidster.</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-3-methods-to-mirror-oppo-k11-5g-to-roku-drfone-by-drfone-android/"><u>In 2024, 3 Methods to Mirror Oppo K11 5G to Roku | Dr.fone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-revolutionize-your-content-with-innovative-tagging-approaches/"><u>In 2024, Revolutionize Your Content with Innovative Tagging Approaches</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/e-video-monikers-brainstorming-insights-for-2024/"><u>Unique Video Monikers Brainstorming Insights for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-overcome-dimness-with-easy-iphone-editing/"><u>[New] Overcome Dimness with Easy iPhone Editing</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/treamline-your-content-with-essential-ratio-knowledge-for-youtube/"><u>[New] Streamline Your Content with Essential Ratio Knowledge for YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-access-exclusive-video-artwork-free-flawless-and-fast/"><u>[Updated] 2024 Approved Access Exclusive Video Artwork – Free, Flawless, and Fast</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-selecting-gear-for-youtube-a-filmmakers-essentials/"><u>[Updated] 2024 Approved Selecting Gear for YouTube A Filmmaker's Essentials</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-the-sealed-snap-chronicles-an-experts-guidebook/"><u>[Updated] 2024 Approved The Sealed Snap Chronicles An Expert's Guidebook</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-becoming-a-billionaire-on-the-blockchain-non-ad-profits-on-youtube/"><u>[Updated] In 2024, Becoming a Billionaire on the Blockchain Non-Ad Profits on YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-understanding-youtubes-earnings-structure/"><u>[Updated] In 2024, Understanding YouTube's Earnings Structure</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-what-are-instagrams-daily-story-snapshots-for-2024/"><u>[Updated] What Are Instagram's Daily Story Snapshots for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-from-creation-to-calculation-your-guide-to-a-3-step-strategy-for-youtube-revenue-insight/"><u>2024 Approved From Creation to Calculation Your Guide to a 3-Step Strategy for YouTube Revenue Insight</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/3-ways-to-unlock-your-apple-iphone-7-plus-for-free-by-drfone-ios/"><u>3 Ways to Unlock Your Apple iPhone 7 Plus for Free</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/prehensive-overview-of-youtube-standards-for-content-creators-for-2024/"><u>A Comprehensive Overview of YouTube Standards for Content Creators for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/ais-influence-on-fake-news-proliferation/"><u>AI's Influence on Fake News Proliferation</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/asmr-video-knowledge-for-beginners/"><u>ASMR Video Knowledge for Beginners</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/o-upload-a-video-from-imovie-to-youtube-for-2024/"><u>How to Upload a Video From iMovie to YouTube for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/echniques-for-a-thorough-review-of-youtube-stats-for-2024/"><u>Key Techniques for a Thorough Review of YouTube Stats for 2024</u></a></li>
+<li><a href="https://win-latest.techidaily.com/strategies-pour-reprendre-automatiquement-les-donnees-supprimees-de-votre-ps4/"><u>Stratégies Pour Reprendre Automatiquement Les Données Supprimées De Votre PS4</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/inancial-frontier-youtubes-pay-structure-at-the-1m-mark/"><u>The Financial Frontier Youtube's Pay Structure at the 1M Mark</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/toms-tech-reviews-unveiling-the-latest-in-hardware-innovation/"><u>Tom's Tech Reviews: Unveiling the Latest in Hardware Innovation</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-is-geo-blocking-and-how-to-bypass-it-on-motorola-moto-g34-5g-drfone-by-drfone-virtual-android/"><u>What is Geo-Blocking and How to Bypass it On Motorola Moto G34 5G? | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Top 20 Essential YouTube Tips for Optimal Engagement\""
-date: 2024-10-15T01:21:34.751Z
-updated: 2024-10-20T23:39:21.106Z
+date: 2024-10-24T16:04:04.670Z
+updated: 2024-10-26T16:47:26.152Z
 tags:
   - ai video
   - ai youtube
@@ -37,13 +37,6 @@ With that said, the following two-columned tables give you detailed information 
 
 To make things convenient for you, the shortcut keys are placed under their corresponding categories, where each category is in the form of a two-columned table.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Category 1: YouTube Playback Hotkeys
 
 While watching a YouTube video, there might be instances when you want to pause and resume the playback. This category teaches how this can be done using the keyboard:
@@ -52,13 +45,6 @@ While watching a YouTube video, there might be instances when you want to pause 
 | ----------------- | -------------------------------------- |
 | 'K'               | Play and Pause (Works as a toggle key) |
 | 'Spacebar'        | Play and Pause (Works as a toggle key) |
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Category 2: Scrolling YouTube Videos Back and Forth
 
@@ -89,10 +75,10 @@ This category contains information on increasing or decreasing the playback spee
 | 'SHIFT' + ',' (Comma)  | Decrease playback speed |
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2080328/19272" target="_top" id="2080328">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080328" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080328/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Category 4: Managing the Captions
@@ -107,6 +93,13 @@ This category talks about managing the video captions using the shortcut keys:
 | '-' (Minus Key)    | Reduce the font size of the captions (Minus key on the Numpad isn't supported)                                       |
 | '+' (Plus Key)     | Increase the font size of the captions (Plus key on the Numpad isn't supported)                                      |
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Category 5: Managing the Audio Video
 
 This category shows the shortcut keys to manage audio for a YouTube video:
@@ -116,6 +109,13 @@ This category shows the shortcut keys to manage audio for a YouTube video:
 | 'M'               | Mute YouTube video    |
 | '↑'               | Increase volume by 5% |
 | '↓'               | Decrease volume by 5% |
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Category 6: Switching Between Screen Modes
 
@@ -131,13 +131,6 @@ Double press F/T/I on the keyboard will exit the full-screen/theater model/indep
 
 If you are watching video on YouTube mobile app, you can swipe up the video slightly to enter the full screen mode, and swipe down the video slightly to exit the full screen.
 
-<!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/2106655/12108" target="_top" id="2106655">
-  <img src="//a.impactradius-go.com/display-ad/12108-2106655" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106655/12108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Category 7: Viewing 360o/VR Videos
 
 In this category, the navigation and management of shortcut keys for 360o and Virtual Reality (VR) view are discussed:
@@ -149,6 +142,13 @@ In this category, the navigation and management of shortcut keys for 360o and Vi
 | '-' (Minus Key on Numpad)   | Zoom out                                              |
 | '-' (Minus Key on Keyboard) | Decrease font size                                    |
 | '+' (Plus Key on Keyboard)  | Increase font size                                    |
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Bonus: How to Get the YouTube Shortcut List with One-Click
 
@@ -193,24 +193,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-creating-channel-names-that-capture-attention/"><u>[New] 2024 Approved Creating Channel Names That Capture Attention</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-dive-into-design-get-a-complimentary-set-of-50-banner-pieces/"><u>[New] 2024 Approved Dive Into Design Get a Complimentary Set of 50 Banner Pieces!</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/xpert-mp3-creation-guide-top-video-to-audio-devices-for-2024/"><u>[New] Expert MP3 Creation Guide Top Video-to-Audio Devices for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-how-to-maximize-ios-podcast-features/"><u>[New] How to Maximize iOS Podcast Features</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/nlocking-youtubes-potential-subscriber-triumph-tactics-for-2024/"><u>[New] Unlocking YouTube's Potential Subscriber Triumph Tactics for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-quick-guide-youtube-soundtracks-to-mp3-for-macos-2shift/"><u>[Updated] 2024 Approved Quick Guide YouTube Soundtracks to MP3 for MacOS 2Shift</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-crafting-fast-fortnite-icons-in-minutes/"><u>[Updated] In 2024, Crafting Fast Fortnite Icons in Minutes</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-deciphering-youtubes-featured-comment-selection/"><u>2024 Approved Deciphering YouTube's Featured Comment Selection</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/ai-showdown-unveiling-the-powers-of-forefront-ai-vs-chatgpt/"><u>AI Showdown: Unveiling the Powers of Forefront AI vs ChatGPT</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/transcription-aid-for-your-youtube-videos-for-2024/"><u>Best Transcription Aid for Your YouTube Videos for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/down-fundamental-aspects-of-asmr-videos/"><u>Breakdown Fundamental Aspects of ASMR Videos</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ructing-inquiry-curtain-closers/"><u>Constructing Inquiry Curtain Closers</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/google-tv-chromecast-vs-firetv-a-comprehensive-showdown/"><u>Google TV Chromecast vs FireTV: A Comprehensive Showdown</u></a></li>
-<li><a href="https://techidaily.com/how-to-easily-hard-reset-my-vivo-x90s-drfone-by-drfone-reset-android-reset-android/"><u>How to Easily Hard reset my Vivo X90S | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-seamless-digital-presence-top-screen-share-methods-on-social-streaming-platforms/"><u>In 2024, Seamless Digital Presence Top Screen-Share Methods on Social Streaming Platforms</u></a></li>
-<li><a href="https://win-blog.techidaily.com/step-by-step-fixes-to-overcome-directx-problems-in-fifa-19-easily/"><u>Step-by-Step Fixes to Overcome DirectX Problems in FIFA 19 Easily</u></a></li>
-<li><a href="https://win11.techidaily.com/understanding-and-correcting-a-missing-msvcr110dll/"><u>Understanding & Correcting a Missing Msvcr110.dll</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/why-isolate-audio-devices-on-windows-platform/"><u>Why Isolate Audio Devices on Windows Platform?</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/1728464695515-windows/"><u>Windowsが正しく読み込まれませんでした</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-prime-captures-of-apples-hd-video-screenshots-under-156-chars/"><u>[New] 2024 Approved Prime Captures of Apple's HD Video Screenshots (Under 156 Chars)</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/arnings-escalation-leveraging-your-youtube-channel-on-mobile-devices/"><u>[New] Earnings Escalation Leveraging Your YouTube Channel on Mobile Devices</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/he-chefs-roadmap-creating-culinary-content-for-2024/"><u>[New] The Chef's Roadmap Creating Culinary Content for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-social-media-savvy-capturing-spherical-photos-with-iphone/"><u>[Updated] 2024 Approved Social Media Savvy Capturing Spherical Photos with iPhone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-savory-streams-the-best-food-channels-to-watch/"><u>[Updated] In 2024, Savory Streams The Best Food Channels to Watch</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-seamless-search-for-your-youtube-comments-across-platforms/"><u>[Updated] In 2024, Seamless Search for Your YouTube Comments Across Platforms</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-swift-transformation-video-aspects-to-mac-standard/"><u>[Updated] In 2024, Swift Transformation Video Aspects to Mac Standard</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-thriving-despite-youtubes-rigorous-copyright-strike-system/"><u>2024 Approved Thriving Despite YouTube's Rigorous Copyright Strike System</u></a></li>
+<li><a href="https://howto.techidaily.com/7-fixes-for-unfortunately-phone-has-stopped-on-google-pixel-8-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Fixes for Unfortunately, Phone Has Stopped on Google Pixel 8 | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/clearing-space-how-to-uninstall-programs-on-a-samsung-smart-television/"><u>Clearing Space: How to Uninstall Programs on a Samsung Smart Television</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/te-your-game-strategies-for-stellar-gaming-youtube-banners-for-2024/"><u>Elevate Your Game Strategies for Stellar Gaming YouTube Banners for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-the-essential-manual-to-fb-video-playback-settings/"><u>In 2024, The Essential Manual to FB Video Playback Settings</u></a></li>
+<li><a href="https://media-tips.techidaily.com/step-by-step-guide-transforming-videos-into-zen-vision-format-using-your-mac/"><u>Step-by-Step Guide: Transforming Videos Into Zen Vision Format Using Your Mac</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/windows-11-audio-troubles-heres-how-to-keep-your-sounds-consistent-and-clear/"><u>Windows 11 Audio Troubles? Here's How to Keep Your Sounds Consistent and Clear</u></a></li>
 </ul></div>
 

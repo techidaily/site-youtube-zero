@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Navigating Lenses for Professional Videography"
-date: 2024-10-18T17:43:49.443Z
-updated: 2024-10-20T23:07:04.591Z
+date: 2024-10-19T16:01:46.107Z
+updated: 2024-10-26T19:50:49.264Z
 tags:
   - ai video
   - ai youtube
@@ -61,13 +61,6 @@ With standard lenses or normal lenses, you won’t get the stretched out objects
 
 Out of all the other ranges in focal lengths, telephoto lenses will appear the most zoomed in. This can be beneficial for the shooter who wants to get a closer shot of a scene without having to physically be in close proximity to the scene. Objects that are further away in the background also appear larger and closer than they would appear on wide-angle or standard lenses.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111982/7443" target="_top" id="2111982">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111982" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111982/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Vlogging With Each Focal Length Group
 
 You can get your talking head footage using lenses from any of the three focal length groups. Depending on how you plan to vlog most of the time, though, one of the three focal lengths might be more suitable for you.
@@ -90,18 +83,18 @@ As telephoto lenses are even more zoomed in, you’ll need to be even further aw
 
   In the above video, Marcos Rocha compares different focal lengths for talking head videos. Which focal length range do you like the look of?
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Crop Factor
 
 Focal lengths in camera lenses are measured in millimeters. You can vlog yourself handheld with a 24mm lens on a camera with a full-frame sensor (the sensor is the piece of hardware inside your camera that turns the light it receives into a digital image). But if you use a 24mm lens on a camera with a smaller sensor, like an APS-C sensor or even smaller Micro 4/3 sensor, more of you will get cropped out (see below).
 
  ![Crop Factor](https://images.wondershare.com/filmora/article-images/camera-lenses-crop-factor.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
 
@@ -121,16 +114,10 @@ This table shows you the focal lengths needed to achieve the same shot between c
 | Telephoto                   | 200mm      | 125mm | 100mm     |
 
 <!-- affiliate ads begin -->
-<span id="1328683">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Aperture
@@ -147,6 +134,13 @@ Fast lenses are more expensive because they cost more to produce. There’s a lo
 
 But do you even need a fast lens?
 
+<!-- affiliate ads begin -->
+<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
+  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Vlogging With a Fast Lens
 
 #### Pros of Vlogging With a Fast Lens
@@ -161,13 +155,6 @@ But do you even need a fast lens?
 * Moving subjects more likely to get out of focus when shooting with a large aperture
 * Better continuous autofocus performance needed when shooting moving subjects with a large aperture
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012415/19272" target="_top" id="2012415">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012415" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012415/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Optical Image Stabilization
 
 Finally, you’ll have to decide whether or not you want your lens to have built-in optical image stabilization (OIS).
@@ -181,6 +168,19 @@ If, however, you are shooting most of your vlogs on a tripod, you won’t need a
  Looking for ways to set up your talking-head shot for YouTube with any of these lenses? Check out our post on [4 Ways To Set Up Your Talking-Head Shots For YouTube](https://tools.techidaily.com/wondershare/filmora/download/).
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1160850">
+					<video width="576" height="324" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -203,16 +203,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-optimal-video-balance-top-stabilizer-brands/"><u>[New] 2024 Approved Optimal Video Balance Top Stabilizer Brands</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/deal-asmr-channel-selections-for-2024/"><u>[New] Ideal ASMR Channel Selections for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-craft-compelling-videos-utilize-no-cost-templates-and-samples/"><u>[Updated] Craft Compelling Videos Utilize No-Cost Templates & Samples</u></a></li>
-<li><a href="https://win-news.techidaily.com/como-sincronizar-carpetas-usando-la-linea-de-comandos-robocopy-en-windows-una-guia-completa/"><u>Cómo Sincronizar Carpetas Usando La Línea De Comandos Robocopy en Windows: Una Guía Completa</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-fix-unresponsive-phone-touchscreen-of-vivo-x-fold-2-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Unresponsive Phone Touchscreen Of Vivo X Fold 2 | Dr.fone</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/in-2024-mastering-the-art-of-sync-free-obs-streaming/"><u>In 2024, Mastering the Art of Sync-Free OBS Streaming</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/g-money-with-youtube-understanding-partner-program/"><u>Making Money with YouTube Understanding Partner Program</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/mastering-photography-with-nikon-d7500-for-2024/"><u>Mastering Photography with Nikon D7500 for 2024</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/still-using-pattern-locks-with-oppo-k11-5g-tips-tricks-and-helpful-advice-by-drfone-android/"><u>Still Using Pattern Locks with Oppo K11 5G? Tips, Tricks and Helpful Advice</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/troubleshooting-tips-fixing-the-windows-11-calculator-malfunction-issue/"><u>Troubleshooting Tips: Fixing the Windows 11 Calculator Malfunction Issue</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-oppo-reno-11-pro-5g-device-by-drfone-android/"><u>What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Oppo Reno 11 Pro 5G Device</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-mastering-youtubes-feature-switch-between-commenting-states/"><u>[New] 2024 Approved Mastering YouTube's Feature Switch Between Commenting States</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-video-platform-profiles-vimeo-vs-youtube-comparison/"><u>[New] 2024 Approved Video Platform Profiles Vimeo vs YouTube Comparison</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-top-10-music-videos-on-facebook/"><u>[New] In 2024, Top 10 Music Videos on Facebook</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-unseen-vids-on-facebook-heres-your-fix-guide-with-12-tactics-2023/"><u>[New] In 2024, Unseen Vids on Facebook? Here's Your Fix Guide with 12 Tactics, 2023</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-streamline-your-audio-content-with-googles-tools/"><u>[Updated] In 2024, Streamline Your Audio Content with Google’s Tools</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-packed-shoots-creating-dynamic-video-stories-on-youtube/"><u>Action-Packed Shoots Creating Dynamic Video Stories on YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/el-building-through-characters-and-plot-twists/"><u>Channel-Building Through Characters and Plot Twists</u></a></li>
+<li><a href="https://fox-sys.techidaily.com/desamorcez-le-conflict-solutions-pour-demarrer-google-chrome-sous-windows-10/"><u>Désamorçez Le Conflict : Solutions Pour Démarrer Google Chrome Sous Windows 10</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-samsung-galaxy-a15-5g-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On Samsung Galaxy A15 5G | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-gionee-f3-pro-to-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Gionee F3 Pro To Phone | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-swiftly-adjust-video-speeds-a-users-guide-to-youtube-features/"><u>In 2024, Swiftly Adjust Video Speeds A User's Guide to YouTube Features</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/mastering-fixes-for-stuck-instagram-videos/"><u>Mastering Fixes for Stuck Instagram Videos</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/mastering-pip-navigating-netflixs-floating-screen-functionality/"><u>Mastering PIP Navigating Netflix's Floating Screen Functionality</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-guide-fixing-the-issue-with-overwatchs-push-to-talk-feature/"><u>Troubleshooting Guide: Fixing the Issue with Overwatch's Push-to-Talk Feature</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ling-the-secret-permanently-ditch-youtube-shorts/"><u>Unsealing the Secret Permanently Ditch YouTube Shorts</u></a></li>
 </ul></div>
 

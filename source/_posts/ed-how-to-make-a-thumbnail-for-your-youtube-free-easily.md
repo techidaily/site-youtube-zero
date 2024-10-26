@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Make a Thumbnail for Your YouTube Free Easily!"
-date: 2024-09-11T01:50:22.094Z
-updated: 2024-09-12T01:50:22.094Z
+date: 2024-10-20T19:12:11.222Z
+updated: 2024-10-26T20:31:19.232Z
 tags:
   - ai video
   - ai youtube
@@ -43,20 +43,6 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step1](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step1.png)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 **Step 02:** Make sure that the aspect ratio of your project is 16:9\. To do that, click on a screen-shaped icon below the preview screen and select "Change Project Aspect Ratio."
 
 ![ai-portrait-thumbnail-step2](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step2.png)
@@ -69,37 +55,9 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step4](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step4.png)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 **Step 05:** If you want to use your custom background, you can import it into the Filmora by clicking import or dragging and dropping it in the media section.
 
 ![ai-portrait-thumbnail-step5](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step5.png)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 **Step 06:** Import your video the same way into the media folder of Filmora and drag it into the timeline and place it above your background.
 
@@ -108,20 +66,6 @@ With time, Filmora brings new and advanced features for its users to equip them 
 **Step 07:** Select your footage, go to the Effects tab and click on AI Portraits. It will open up all the effects related to AI Portraits. These AI Portrait features help you separate the human from a background without using a green screen or anything else.
 
 ![ai-portrait-thumbnail-step7](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step11.png)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 **Step 08:** Double click on any of these effects to see how they will look like on your footage.
 
@@ -134,20 +78,6 @@ With time, Filmora brings new and advanced features for its users to equip them 
 **Step 10:** The effect will be applied to the footage. Now the background has been removed from the footage and ready to be used on your custom background. You can adjust the human accordingly where it looks perfect.
 
 ![ai-portrait-thumbnail-step10](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step10.png)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 **Step 11:** Now it is time to add a title into your thumbnail to highlight what the video is all about. Go to the Titles, and select lower thirds. You can also select any of the titles types which best suits your needs. Drop the title into the timeline above the footage and adjust it accordingly. Now double click on the header to edit and rename it.
 
@@ -165,35 +95,7 @@ This article on making a thumbnail for your Youtube is just an idea for you, and
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 Shanoon Cox
 
@@ -201,14 +103,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -217,12 +116,30 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-exquisite-couple-clips-the-best-weddings-online-8-picks/"><u>[New] In 2024, Exquisite Couple Clips The Best Weddings Online (8 Picks)</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ptimizing-engagement-using-cards-and-annotations-for-2024/"><u>[New] Optimizing Engagement Using Cards and Annotations for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-essential-gopro-editing-the-top-15-color-luts-selection-guide/"><u>[Updated] Essential GoPro Editing The Top 15 Color LUTs Selection Guide</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-guidelines-for-effective-use-of-cc-licenses-for-2024/"><u>[Updated] Guidelines for Effective Use of CC Licenses for 2024</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-how-to-improve-gopro-battery-life-for-2024/"><u>[Updated] How to Improve GoPro Battery Life for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-fashion-your-snaps-top-trendy-augmentations-revealed/"><u>[Updated] In 2024, Fashion Your Snaps Top Trendy Augmentations Revealed</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-prime-audio-alteration-tech-for-influencer-marketers/"><u>[Updated] In 2024, Prime Audio Alteration Tech for Influencer Marketers</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-creative-anime-characters-and-scenes-for-viral-tiktoks/"><u>2024 Approved Creative Anime Characters & Scenes for Viral TikToks</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-from-concept-to-curtain-call-scriptwriting-tips-for-successful-streams/"><u>2024 Approved From Concept to Curtain Call Scriptwriting Tips for Successful Streams</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/r-over-a-thousand-viewers-swiftly/"><u>Garner Over a Thousand Viewers Swiftly</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-essential-tips-for-making-youtube-introductory-trailers/"><u>In 2024, Essential Tips for Making YouTube Introductory Trailers</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/tted-practices-for-saving-youtube-videos-for-2024/"><u>Permitted Practices for Saving YouTube Videos for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/pivot-producer-system-for-2024/"><u>Pivot Producer System for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/mline-visual-marking-in-youtube-posts-with-watermarks-and-logos/"><u>Streamline Visual Marking in Youtube Posts with Watermarks & Logos</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/the-ultimate-picks-top-6-food-diary-and-tracker-apps-reviewed/"><u>The Ultimate Picks: Top 6 Food Diary and Tracker Apps Reviewed</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/updated-a-detailed-guide-to-stream-to-instagram-with-an-rtmp/"><u>Updated A Detailed Guide To Stream to Instagram With an RTMP</u></a></li>
+</ul></div>
 
-
-
-
-
-
-
-
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

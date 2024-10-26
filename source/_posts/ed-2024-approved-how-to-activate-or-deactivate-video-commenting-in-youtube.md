@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  How To Activate or Deactivate Video Commenting in YouTube\""
-date: 2024-10-14T23:04:09.495Z
-updated: 2024-10-20T23:45:02.089Z
+date: 2024-10-22T20:34:44.793Z
+updated: 2024-10-26T19:18:53.567Z
 tags:
   - ai video
   - ai youtube
@@ -96,10 +96,10 @@ Selecting this option holds all the comments from all the users, and waits for y
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151870/7443" target="_top" id="2151870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151870" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151870/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: Turn on or Turn off Comments for Specific Videos
@@ -123,20 +123,13 @@ From under the **Audience** section in the right window of the **Video details**
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
 
@@ -155,10 +148,16 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151869/7443" target="_top" id="2151869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151869" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1531882">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### 4\. If I turn comments off and back on again, will the old comments come back?
@@ -174,6 +173,13 @@ That depends on the nature of the comments. For instance, if you modify the sett
 It is easy to understand **how to turn on comments on YouTube**. The best thing is, the comments are enabled by default, and if you don’t need them, you can simply disable them by configuring the videos or the entire channel as ‘Made for kids’. If the comments on any video were enabled previously, and are disabled later on, the existing comments automatically disappear. They reappear when the comments on the video are reenabled.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -196,16 +202,22 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/n-2024-graphical-forecast-the-dominant-23-social-themes/"><u>[New] In 2024, Graphical Forecast The Dominant '23 Social Themes</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-in-2024-ps1-gaming-delighted-top-5-emulators/"><u>[New] In 2024, PS1 Gaming Delighted? Top 5 Emulators</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-from-flat-to-fierce-transformative-color-workflows-for-2024/"><u>[Updated] From Flat to Fierce Transformative Color Workflows for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-from-simple-designs-to-compelling-animated-graphics/"><u>[Updated] From Simple Designs to Compelling Animated Graphics</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-discover-ultimate-asmr-microphones-for-clear-sounds/"><u>2024 Approved Discover Ultimate ASMR Microphones for Clear Sounds</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-innovative-and-inexpensive-the-best-free-youtube-name-generators/"><u>2024 Approved Innovative & Inexpensive The Best Free YouTube Name Generators</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/challenges-with-chatgpt-7-inquiries-it-cant-handle/"><u>Challenges with ChatGPT: 7 Inquiries It Can't Handle</u></a></li>
-<li><a href="https://howto.techidaily.com/fix-app-not-available-in-your-country-play-store-problem-on-realme-v30-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix App Not Available in Your Country Play Store Problem on Realme V30 | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/gauging-influence-tracking-metrics-that-predict-igtv-performance/"><u>Gauging Influence Tracking Metrics that Predict IGTV Performance</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-music-manifesto-constructing-your-signature-youtube-playlists/"><u>In 2024, Music Manifesto Constructing Your Signature YouTube Playlists</u></a></li>
-<li><a href="https://win-ratings.techidaily.com/simple-strategies-how-to-seamlessly-secure-your-emails-via-icloud-backup/"><u>Simple Strategies: How to Seamlessly Secure Your Emails via iCloud Backup</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-transform-concepts-to-successful-youtube-titles/"><u>[New] 2024 Approved Transform Concepts to Successful YouTube Titles</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-youtube-view-bots-how-to-increase-youtube-views/"><u>[New] 2024 Approved YouTube View Bots How to Increase YouTube Views?</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-zero-price-techniques-for-online-educational-recordings/"><u>[New] In 2024, Zero Price Techniques for Online Educational Recordings</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-how-to-get-people-to-subscribe-by-asking-the-right-way/"><u>[Updated] 2024 Approved How to Get People to Subscribe by Asking the Right Way</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-simplify-your-video-sharing-with-our-youtube-upload-strategy/"><u>[Updated] 2024 Approved Simplify Your Video Sharing with Our YouTube Upload Strategy</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-navigating-digital-earnings-a-side-by-side-comparison/"><u>[Updated] In 2024, Navigating Digital Earnings A Side-by-Side Comparison</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-unveiling-the-secrets-to-high-impact-live-streaming-with-wirecast-on-youtube/"><u>[Updated] In 2024, Unveiling the Secrets to High-Impact Live Streaming with WireCast on YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/cing-clicks-youtube-thumbnail-sizes-explored-for-2024/"><u>Enhancing Clicks YouTube Thumbnail Sizes Explored for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-3-things-you-must-know-about-fake-snapchat-location-on-honor-magic-5-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Things You Must Know about Fake Snapchat Location On Honor Magic 5 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-hacks-to-do-pokemon-go-trainer-battles-for-oneplus-11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Hacks to do pokemon go trainer battles For OnePlus 11 5G | Dr.fone</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/new-in-2024-top-10-budget-friendly-options-premium-free-podcast-players-for-modern-smartphones/"><u>New In 2024, Top 10 Budget-Friendly Options Premium-Free Podcast Players for Modern Smartphones</u></a></li>
+<li><a href="https://win-answers.techidaily.com/quick-and-simple-solutions-repairing-madden-nfl-22-glitches/"><u>Quick and Simple Solutions: Repairing Madden NFL 22 Glitches</u></a></li>
+<li><a href="https://fox-that.techidaily.com/safeguard-focus-prevent-ringtone-responses-between-ipad-and-iphone/"><u>Safeguard Focus: Prevent Ringtone Responses Between iPad & iPhone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/the-easy-way-to-launch-ais-from-your-browser/"><u>The Easy Way to Launch AIs From Your Browser</u></a></li>
+<li><a href="https://discover-helper.techidaily.com/top-5-best-music-mp3aac-players-of-2020-compatible-with-windows-and-mac-os/"><u>Top 5 Best Music MP3/AAC Players of 2020: Compatible with Windows and Mac OS</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/humbnails-the-ultimate-guide-to-optimal-youtube-sizes/"><u>Top Thumbnails The Ultimate Guide to Optimal YouTube Sizes</u></a></li>
+<li><a href="https://win-dash.techidaily.com/top-rated-no-cost-mp4-to-wav-file-transformer-software-for-pc-complete-step-by-step-guide/"><u>Top-Rated No-Cost MP4 to WAV File Transformer Software for PC: Complete Step-by-Step Guide</u></a></li>
 </ul></div>
 
