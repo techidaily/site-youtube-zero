@@ -1,7 +1,7 @@
 ---
 title: "Unleash Creative Control: Edit Photos Like a Pro With Free RAW Converter Darktable on macOS and Linux Platforms"
-date: 2024-10-24T17:25:23.054Z
-updated: 2024-10-26T17:35:00.874Z
+date: 2024-10-27T16:41:55.807Z
+updated: 2024-11-01T16:04:36.406Z
 categories:
   - BestProducts
 description: "This Article Describes Unleash Creative Control: Edit Photos Like a Pro With Free RAW Converter Darktable on macOS and Linux Platforms"
@@ -47,13 +47,6 @@ thumbnail: https://thmb.techidaily.com/9841b29c6cea5f5f780b6eadf9d0ee4bcbe0f046f
 
 ![Surviving Mars](https://www.lifewire.com/thmb/Em7mFCNB7ffPEBeVuQuFIJpvJyQ=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_HeroSquare-b3aab20f5ee249ca9872c5279d25d0c1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012401/19272" target="_top" id="2012401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012401" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012401/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Rebecca Isaacs
 
 [View On Steampowered.com](https://store.steampowered.com/app/464920/Surviving%5FMars/) [View On G2a.com](https://www.g2a.com/en-us/surviving-mars-first-colony-edition-steam-key-global-i10000147752001?)
@@ -74,10 +67,10 @@ thumbnail: https://thmb.techidaily.com/9841b29c6cea5f5f780b6eadf9d0ee4bcbe0f046f
  Released in 2018, the Surviving Mars developed by Haemimont Games and published by Paradox Interactive poses a massive challenge: colonizing a planet. When I picked this up, I decided to check out how the game fared for a two-year-old game in terms of[graphics](https://www.lifewire.com/graphic-design-basics-s2-1074288) , gameplay, and competition. Read on for the verdict to see how it measures up against other games on our best city-building games list—and for forewarning about those pesky cold waves.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100529/7443" target="_top" id="2100529">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Plot: Lots of options**
@@ -87,13 +80,6 @@ thumbnail: https://thmb.techidaily.com/9841b29c6cea5f5f780b6eadf9d0ee4bcbe0f046f
  As for a real plotline, there isn’t really one—the only kind of plot in the game is the objective to colonize Mars. There are challenges which you can do if you’re feeling particularly adventurous, which is nice, but they’re not a real plotline, and only serve to give you a different angle to colonizing the planet.
 
 ![Surviving Mars](https://www.lifewire.com/thmb/tWjPu4rcPDZ30Ilhru3tUFnqjc8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_02-d1d5dfcccecb478098ab06a6b5137e68.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Lifewire / Rebecca Isaacs
 
@@ -135,7 +121,21 @@ thumbnail: https://thmb.techidaily.com/9841b29c6cea5f5f780b6eadf9d0ee4bcbe0f046f
 
 ![Surviving Mars](https://www.lifewire.com/thmb/xyO7-tOzWWRT_ffxzC7TaIMOwH0=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Surviving_Mars_03-9d30e99e7a0b4364bc86c4b40dfc99bf.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148635/16836" target="_top" id="2148635">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148635" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148635/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Lifewire / Rebecca Isaacs
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Competition: Other city-building games**
 
@@ -150,10 +150,16 @@ thumbnail: https://thmb.techidaily.com/9841b29c6cea5f5f780b6eadf9d0ee4bcbe0f046f
  While Surviving Mars is marred by slowness and micromanagement, the unique gameplay and setting make for a true sci-fi treat. It’s at a fair price point, promises lots of fun, and some fun twists and turns. Just watch out for those blasted dust storms. Your colonists’ lives depend on it.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868495/19272" target="_top" id="1868495">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868495" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868495/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1702748">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specs
@@ -183,18 +189,18 @@ thumbnail: https://thmb.techidaily.com/9841b29c6cea5f5f780b6eadf9d0ee4bcbe0f046f
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-dissecting-obs-technology-for-top-level-recording-for-2024/"><u>[New] Dissecting OBS Technology for Top-Level Recording for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/astering-youtubes-feature-switch-between-commenting-states/"><u>[New] Mastering YouTube's Feature Switch Between Commenting States</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/treamlining-video-quality-on-youtube-top-formats-revealed-for-2024/"><u>[New] Streamlining Video Quality on YouTube – Top Formats Revealed for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-deadly-dominance-the-quintessential-zombie-gameplay/"><u>[Updated] In 2024, Deadly Dominance The Quintessential Zombie Gameplay</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/10-easy-to-use-frp-bypass-tools-for-unlocking-google-accounts-on-honor-100-by-drfone-android/"><u>10 Easy-to-Use FRP Bypass Tools for Unlocking Google Accounts On Honor 100</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/2024-approved-top-10-picture-frames-and-organizers/"><u>2024 Approved Top 10 Picture Frames & Organizers</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/al-whirlwind-top-30-hashes-for-video-stardom-for-2024/"><u>Digital Whirlwind Top 30 Hashes for Video Stardom for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-freedom-from-filmage-tiktok-videos-without-stickers/"><u>In 2024, Freedom From Filmage TikTok Videos Without Stickers</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-strategizing-for-success-the-essential-guide-to-online-individuality/"><u>In 2024, Strategizing for Success The Essential Guide to Online Individuality</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-unlocking-your-potential-multiplatform-studio-use-for-profit/"><u>In 2024, Unlocking Your Potential Multiplatform Studio Use for Profit</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/the-ultimate-guide-to-reviving-vintage-images-with-advanced-software/"><u>The Ultimate Guide to Reviving Vintage Images with Advanced Software</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/ultimate-review-of-the-10-leading-p2p-torrent-software-for-your-pc/"><u>Ultimate Review of the 10 Leading P2P Torrent Software for Your PC</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/1719574163521-windows-11-printer-woes-time-to-act/"><u>Windows 11 Printer Woes? Time to Act!</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ree-video-embedding-for-dynamic-online-articles-for-2024/"><u>[New] Free Video Embedding for Dynamic Online Articles for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-choosing-creativitys-canvas-youtube-vs-tiktok/"><u>[New] In 2024, Choosing Creativity's Canvas Youtube Vs. TikTok</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-expressive-commentary-utilizing-emojis-on-youtube-for-2024/"><u>[Updated] Expressive Commentary Utilizing Emojis on YouTube for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-how-to-see-every-participant-in-google-meet-for-2024/"><u>[Updated] How to See Every Participant in Google Meet for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-discover-the-best-3-platforms-for-video-consumption-post-youtube/"><u>[Updated] In 2024, Discover the Best 3 Platforms for Video Consumption (Post-YouTube)</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-decoding-windows-10s-secret-for-file-imports/"><u>2024 Approved Decoding Windows 10'S Secret for File Imports</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/into-the-world-of-enhanced-youtube-content-with-premium-subscription/"><u>Dive Into the World of Enhanced YouTube Content with Premium Subscription</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/guidance-resolving-vds-errors-in-windows-1011/"><u>Guidance: Resolving VDS Errors in Windows 10/11</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-phones-speed-up-sound-essential-app-listing/"><u>In 2024, Phones’ Speed Up Sound Essential App Listing</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-thorough-breakdown-googles-podcast-app-unveiled/"><u>In 2024, Thorough Breakdown Google's Podcast App Unveiled</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/mastering-the-art-of-restarting-disrupted-fb-live-sessions/"><u>Mastering the Art of Restarting Disrupted FB LIVE Sessions</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/lays-you-can-now-see-your-shorts-for-2024/"><u>No Delays! You Can Now See Your Shorts for 2024</u></a></li>
+<li><a href="https://win-rankings.techidaily.com/1728497798079-synology-nas/"><u>Synology NASデバイスでの増分的バックアップ手順:最新ガイド</u></a></li>
 </ul></div>
 

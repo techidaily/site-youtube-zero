@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Speedy Tutorial  Crafting YouTube Image Thumbnails From Scratch\""
-date: 2024-10-20T17:25:03.977Z
-updated: 2024-10-26T17:50:21.540Z
+date: 2024-10-30T16:49:46.073Z
+updated: 2024-11-01T16:50:52.157Z
 tags:
   - ai video
   - ai youtube
@@ -59,13 +59,6 @@ Step2 Select "Define custom dimensions."
 
 ![youtube thumbnail custom dimensions](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-resize-dimensions.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step3 Set the width to **1280** and the height to **720**. Then **tick** the box for "**Maintain Aspect Ratio** "and **click "Save Resized Copy."**
 
 ![setting image width and height](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-resize-ratio.jpg)
@@ -73,13 +66,6 @@ Step3 Set the width to **1280** and the height to **720**. Then **tick** the box
 Step4 Click the upload thumbnail button on YouTube and **import** your resized image.
 
 ![upload resized thumbnail in youtube](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-resize-finished.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938716/19272" target="_top" id="1938716">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938716" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938716/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Method 2\. Online YouTube Thumbnail Size Converter
 
@@ -92,10 +78,10 @@ Promo is a free online software you can use to convert an image to a YouTube thu
 ![promo YouTube thumbnail size maker](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-size-converter-promo.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043639/7443" target="_top" id="2043639">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043639" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043639/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Here are the steps on how to use the Promo YouTube thumbnail size converter:
@@ -103,6 +89,13 @@ Here are the steps on how to use the Promo YouTube thumbnail size converter:
 Step1 Go to Promo's [official website](https://promo.com/tools/image-resizer/) and **import** your image
 
 ![importing image to promo](https://images.wondershare.com/filmora/article-images/convert-to-youtube-thumbnail-import.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step2 Scroll down and find the YouTube thumbnail size where your resized image is displayed. Then, **click "Download."**
 
@@ -132,6 +125,13 @@ Step3 Select the output storage location and **click OK**.
 
 ![filmora save snapshot](https://images.wondershare.com/filmora/article-images/filmora-save-snapshot.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **2\. Resize the YouTube Thumbnail**
 
 Step1 Import the image into the app timeline.
@@ -145,13 +145,6 @@ Step2 Drag and drop the image into the timeline and **click** the green "**Expor
 Step3 As the recommended size of a YouTube Thumbnail is 1280 \* 720 pixels, you can set the resolution to 1280 \* 720\. Then click **Apply** and **Export** the GIF. You can now upload the GIF thumbnail to your YouTube account.
 
 ![filmora adjust resolution](https://images.wondershare.com/filmora/article-images/filmora-adjust-resolution.JPG)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Method 4\. Convert Images to YouTube Thumbnail Using Third-Party Software
 
@@ -173,13 +166,40 @@ Step3 Click on "**Image**" > "**Scale Image**" and make sure that the resolution
 
 ![gimp edit resolution](https://images.wondershare.com/filmora/article-images/gimp-edit-resolution.JPG)
 
+<!-- affiliate ads begin -->
+<span id="1983474">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step4 Click on "**File**" > "**Export As**" and **toggle** the "**Select File Type (By Extension)**" option. **Choose** JPG/JPEG format because it can compress the thumbnail enough to stay within the limit of 2 megabytes.
 
 ![gimp export format](https://images.wondershare.com/filmora/article-images/gimp-export-format.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step5 You can change the quality of the image and **click** the "**Export**" button to save the thumbnail.
 
 ![gimp export thumbnail](https://images.wondershare.com/filmora/article-images/gimp-export-thumbnail.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528703/16446" target="_top" id="1528703">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528703" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528703/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Comparison of These 4 YouTube Thumbnail Resizing Methods
 
@@ -206,6 +226,13 @@ Image editing programs like GIMP offer many features and tools for customizing y
 However, using a third-party image editing program may require a learning curve and maybe more time-consuming than other methods, and there may be a cost associated with purchasing the software.
 
 Each of the four methods for resizing YouTube thumbnails has its pros and cons, and the best method will depend on the user's specific needs and preferences.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934292/19272" target="_top" id="1934292">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934292" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934292/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -237,13 +264,6 @@ Step2 Drag and drop the image into the timeline and **click** the green "**Expor
 
 ![adjust filmora export settings](https://images.wondershare.com/filmora/article-images/filmora-adjust-gif-settings.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step3 As the recommended size of a YouTube Thumbnail is 1280 \* 720 pixels, you can set the resolution to 1280 \* 720\. Then click **Apply** and **Export** the GIF. You can now upload the GIF thumbnail to your YouTube account.
 
 ![filmora adjust resolution](https://images.wondershare.com/filmora/article-images/filmora-adjust-resolution.JPG)
@@ -268,22 +288,15 @@ Step3 Click on "**Image**" > "**Scale Image**" and make sure that the resolution
 
 ![gimp edit resolution](https://images.wondershare.com/filmora/article-images/gimp-edit-resolution.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148635/16836" target="_top" id="2148635">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148635" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148635/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step4 Click on "**File**" > "**Export As**" and **toggle** the "**Select File Type (By Extension)**" option. **Choose** JPG/JPEG format because it can compress the thumbnail enough to stay within the limit of 2 megabytes.
 
 ![gimp export format](https://images.wondershare.com/filmora/article-images/gimp-export-format.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144308/7443" target="_top" id="2144308">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144308" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144308/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step5 You can change the quality of the image and **click** the "**Export**" button to save the thumbnail.
@@ -316,13 +329,6 @@ However, using a third-party image editing program may require a learning curve 
 
 Each of the four methods for resizing YouTube thumbnails has its pros and cons, and the best method will depend on the user's specific needs and preferences.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136622/26400" target="_top" id="2136622">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136622" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136622/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 This article explored four methods for resizing YouTube thumbnails: using the Windows default app, online converters, Wondershare Filmora, and image editing programs like GIMP. Each method has advantages and disadvantages; the best one depends on your specific needs and preferences. No matter your chosen method, you can resize YouTube thumbnails confidently with these tools and techniques.
@@ -348,15 +354,15 @@ This article explored four methods for resizing YouTube thumbnails: using the Wi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/he-ultimate-framework-for-crafting-compelling-live-video-thumbnails/"><u>[New] The Ultimate Framework for Crafting Compelling Live Video Thumbnails</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/new-unleash-music-without-spending-a-penny/"><u>[New] Unleash Music, Without Spending a Penny</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-essential-details-on-creating-effective-yt-shorts/"><u>[Updated] Essential Details on Creating Effective YT Shorts</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/20plus-amazing-youtube-shortcuts-you-should-know-for-2024/"><u>20+ Amazing YouTube Shortcuts You Should Know for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-a-comprehensible-approach-to-masterful-gopro-studio-edits/"><u>2024 Approved A Comprehensible Approach to Masterful GoPro Studio Edits</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ing-the-course-for-your-niche-in-the-youtube-world/"><u>Charting the Course for Your Niche in the YouTube World</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-perfect-your-video-subtitles-on-youtube/"><u>In 2024, Perfect Your Video Subtitles on YouTube</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-unleash-the-beats-try-these-free-web-scanners/"><u>In 2024, Unleash the Beats Try These Free Web Scanners</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-unlocking-your-videos-the-pathway-to-streamlined-cc-and-subtitling-on-youtube/"><u>In 2024, Unlocking Your Videos The Pathway to Streamlined CC & Subtitling on YouTube</u></a></li>
-<li><a href="https://win11.techidaily.com/quick-disconnect-solution-non-operative-printer-removal-in-win-1011/"><u>Quick Disconnect Solution: Non-Operative Printer Removal in Win 10/11</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/deal-editors-perfect-for-high-quality-youtube-videos-for-2024/"><u>[New] Ideal Editors Perfect for High-Quality YouTube Videos for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-mastering-podcast-upload-on-itunes/"><u>[New] In 2024, Mastering Podcast Upload on iTunes</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-the-premier-guide-to-free-online-meetings-and-sharing-screens/"><u>[New] In 2024, The Premier Guide to FREE Online Meetings & Sharing Screens</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/oves-epic-tales-the-finest-9-weddings-on-youtube-and-vimeo/"><u>[New] Love's Epic Tales The Finest 9 Weddings on YouTube & Vimeo</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/remium-film-experiences-yts-best-of-lists/"><u>[New] Premium Film Experiences YT's Best Of Lists</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-fix-pdf-file-couldnt-open-in-protected-view-by-stellar-guide/"><u>How to Fix PDF File Couldnt Open in Protected View</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/o-harness-youtubes-creative-commons-in-video-making/"><u>How to Harness YouTube's Creative Commons in Video Making</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-easy-ways-to-manage-your-realme-v30-location-settings-drfone-by-drfone-virtual/"><u>In 2024, Easy Ways to Manage Your Realme V30 Location Settings | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-unlock-icloud-activation-lock-and-icloud-account-on-iphone-13-by-drfone-ios/"><u>In 2024, How to Unlock iCloud Activation Lock and iCloud Account On iPhone 13?</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/macx-mediatrans/"><u>MacX MediaTrans 使用法と製品マニュアル【権威ある指南書】</u></a></li>
 </ul></div>
 

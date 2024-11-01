@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  A Bundle of Nine Premium Holiday Treasures  Watch for Free on YouTube\""
-date: 2024-10-23T16:10:12.370Z
-updated: 2024-10-26T17:42:36.646Z
+date: 2024-10-25T16:59:33.493Z
+updated: 2024-11-01T16:40:30.141Z
 tags:
   - ai video
   - ai youtube
@@ -39,6 +39,13 @@ The Nutcracker is a holiday classic that many people seek out every year on the 
 
 A Smoky Mountain Christmas is a film from 1986 directed by Harry Winkler and starring Lee Majors and Dolly Parton. The full musical fairy tale can be found online on YouTube and it's about a country singer who is trying to spend a quiet Christmas holiday at home. She suddenly becomes involved with a mysterious mountain man, an evil witch and is forced to protect seven orphans over the holidays. This film can be found at:
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3. Ernest saves Christmas
 
 This film from 1989 features Jim Varney and his most famous character Ernest in a holiday Christmas movie that is an instant classic. This film is very funny and a favorite amongst some of the Ernest films for many. This Christmas movie from 1989 can be found at:
@@ -47,26 +54,26 @@ This film from 1989 features Jim Varney and his most famous character Ernest in 
 
 A Christmas story has long been one of the favorite Christmas movies for many families. In this film from 1983 we travel back in time to a traditional 1940s Christmas. In this film we follow the nine-year-old Ralphie who is looking for the famous red Ryder BB gun for Christmas and will stop at absolutely nothing to get it. A Christmas story can be found at:
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 5. Richie Rich's Christmas wish
 
 In this film from 1998 we hear the story of the richest kid in the world on Christmas. In this film we see the richest in the world wishing that he had never been born with the wish coming true. Richie needs to find himself a new wishing machine and a way out of the parallel universe he gets stuck in to get back to his family. You can find this film at:
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 6. On the second day of Christmas
 
 This film stars the hulk Mark Ruffalo in one of his earlier roles as a store employee who catches a con woman trying to steal from a department store on Christmas. His character agrees to be responsible for the con woman and her niece over the holidays to prevent them from staying with social services. A romance develops! This 1997 film can be found at:
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 7. Santa Who?
@@ -74,22 +81,15 @@ This film stars the hulk Mark Ruffalo in one of his earlier roles as a store emp
 Santa who is a film from the year 2000 starring Leslie Nielsen. In this holiday classic Santa suffers a severe case of amnesia on Christmas Eve and needs to recover for Christmas day in order to make it through and deliver presents to all of the good children of the world. See if Santa gets his Christmas memories back by watching Santa Who here:
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
-  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 8. A Christmas Carol
 
 In this film from 1984 George C Scott brings to life the role of Ebenezer Scrooge from the perspective of the Charles Dickens novel. This is heavily been regarded as one of the most accurate versions to the Charles Dickens story. Although it may not have all of the special effects of some of the other versions of a Christmas carol this is still one of the favored versions of the story out there. You can watch this 1984 film here:
-
-<!-- affiliate ads begin -->
-<a href="https://bluettifr.pxf.io/c/5597632/2145079/17095" target="_top" id="2145079">
-  <img src="//a.impactradius-go.com/display-ad/17095-2145079" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145079/17095" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 9. Miracle on 34th street
 
@@ -118,21 +118,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/ffortless-online-guide-youtube-video-to-gif-magic-no-download/"><u>[New] Effortless Online Guide YouTube Video to GIF Magic (No Download)</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/n-2024-discover-the-leading-youtube-to-webm-converter-tools/"><u>[New] In 2024, Discover the Leading YouTube-to-WebM Converter Tools</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-ace-your-green-screen-videos-must-know-secrets/"><u>[Updated] 2024 Approved Ace Your Green Screen Videos Must-Know Secrets</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-engaging-tactics-for-increased-subscriber-count/"><u>[Updated] 2024 Approved Engaging Tactics for Increased Subscriber Count</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-the-comprehensive-guide-to-creating-movies-not-just-youtube/"><u>[Updated] In 2024, The Comprehensive Guide to Creating Movies, Not Just YouTube</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-in-2024-the-essential-guide-to-webcam-assisted-presentations/"><u>[Updated] In 2024, The Essential Guide to Webcam-Assisted Presentations</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-precision-videoplayers-for-high-definition-on-android/"><u>[Updated] Precision Videoplayers for High Definition on Android</u></a></li>
-<li><a href="https://fox-access.techidaily.com/2024-approved-ideal-extras-for-improving-gopro-experience/"><u>2024 Approved Ideal Extras for Improving GoPro Experience</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/effortless-downloads-at-zero-cost-find-the-top-20-tools-for-youtube-sound-ripping-for-2024/"><u>Effortless Downloads at Zero Cost Find the Top 20 Tools for YouTube Sound Ripping for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ce-interaction-share-your-custom-youtube-playlist/"><u>Enhance Interaction Share Your Custom YouTube Playlist</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/experts-weigh-in-on-iphone-15-essential-upgrades-that-even-seasoned-professionals-will-love-insight/"><u>Experts Weigh in on iPhone 15: Essential Upgrades That Even Seasoned Professionals Will Love Insight</u></a></li>
-<li><a href="https://techtrends.techidaily.com/explore-our-selection-of-top-8-secondary-phone-number-services-online/"><u>Explore Our Selection of Top 8 Secondary Phone Number Services Online</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-location-on-tiktok-to-see-more-content-on-your-oppo-find-n3-flip-drfone-by-drfone-virtual-android/"><u>How to Change Location on TikTok to See More Content On your Oppo Find N3 Flip | Dr.fone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-unlocking-youtube-top-rated-pc-and-mobile-video-extractors/"><u>In 2024, Unlocking YouTube Top-Rated PC & Mobile Video Extractors</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/4-youtube-titles-to-skyrocket-your-gaming-channels-popularity-for-2024/"><u>Top 14 YouTube Titles to Skyrocket Your Gaming Channel's Popularity for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/understanding-the-invisible-aspects-of-stories-for-2024/"><u>Understanding the Invisible Aspects of Stories for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-channel-gain-strategies-for-youtube-aspirants/"><u>[New] 2024 Approved Channel Gain Strategies for YouTube Aspirants</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-how-to-blur-faces-or-objects-in-youtube-videos-for-2024/"><u>[New] How to Blur Faces or Objects in YouTube Videos for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-peek-at-all-shared-images-and-videos-in-chats/"><u>[New] In 2024, Peek at All Shared Images & Videos in Chats</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nnovating-with-structured-content-on-youtube-for-2024/"><u>[New] Innovating with Structured Content on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ransform-your-youtube-videos-into-webm-easily-for-2024/"><u>[New] Transform Your YouTube Videos Into WebM Easily for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-crafting-success-leading-business-channels-for-professionals/"><u>[Updated] Crafting Success Leading Business Channels for Professionals</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-elite-gaming-setup-essentials-revealed/"><u>[Updated] In 2024, Elite Gaming Setup Essentials Revealed</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/4-in-performance-insights-from-zdnet/"><u>4 in Performance – Insights From ZDNet</u></a></li>
+<li><a href="https://facebook.techidaily.com/dissecting-friendship-layers-on-social-media/"><u>Dissecting Friendship Layers on Social Media</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/tial-8-linux-software-for-editors/"><u>Essential 8 Linux Software for Editors</u></a></li>
+<li><a href="https://program-issues.techidaily.com/fixing-resolved-cold-war-in-call-of-duty-black-ops-pc-stability-issues/"><u>Fixing: [Resolved] Cold War in Call of Duty Black Ops - PC Stability Issues</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/noob-to-pro-selecting-webcams-that-make-a-difference-in-youtube-livestreams/"><u>From Noob to Pro Selecting Webcams That Make a Difference in YouTube Livestreams</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-the-perfect-loop-technique-for-all-your-youtube-favorites/"><u>In 2024, The Perfect Loop Technique for All Your YouTube Favorites</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-6-appsservices-to-trace-any-xiaomi-redmi-12-5g-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, Top 6 Apps/Services to Trace Any Xiaomi Redmi 12 5G Location By Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-top-8-linux-friendly-video-cutters/"><u>In 2024, Top 8 Linux-Friendly Video Cutters</u></a></li>
+<li><a href="https://fox-pages.techidaily.com/resolving-issues-with-missing-shared-folders-on-onedrive-via-windows-explorer/"><u>Resolving Issues with Missing Shared Folders on OneDrive via Windows Explorer</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-next-level-of-collaboration-youtubes-elite-meetups-for-2024/"><u>The Next Level of Collaboration Youtube's Elite Meetups for 2024</u></a></li>
 </ul></div>
 

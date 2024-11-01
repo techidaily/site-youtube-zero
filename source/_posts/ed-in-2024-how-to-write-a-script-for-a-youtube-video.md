@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, How to Write a Script for a YouTube Video"
-date: 2024-10-22T16:25:29.843Z
-updated: 2024-10-26T18:44:21.141Z
+date: 2024-10-28T16:40:40.611Z
+updated: 2024-11-01T16:04:07.909Z
 tags:
   - ai video
   - ai youtube
@@ -44,6 +44,13 @@ You have a great idea for a video, but you’re just not sure how to express it 
 
 Here are some things to do before you start writing your script for YouTube:
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886044/19272" target="_top" id="1886044">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886044" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886044/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Collect Ideas
 
 Before you write the script, it’s a good idea to gather ideas. If you think of something, or if something funny happens, write it down right away. Keep a pen and notebook handy that way you will not forget about it.
@@ -56,13 +63,6 @@ Once you have gathered enough ideas for the YouTube video, the next step is to f
 
 Now that you're ready to sit down and write, here's what you do:
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016143/19272" target="_top" id="2016143">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016143" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016143/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. Create an outline for your story
 
 The first step in writing a script is to develop an outline for the story. You might think that it is an unnecessary step, but it’s one of the most important steps to writing a script. The outline serves as a guide that will make the finished product better compared to when you just tried to wing it. One tip on how to write a script for a YouTube video is to have an outline for the beginning, middle, and ending of the video. Once you have all the elements of the story, then you can start with the first draft of the script.
@@ -71,16 +71,16 @@ The first step in writing a script is to develop an outline for the story. You m
 
 The tone you pick for the video will depend on your audience. It’s safe to assume that viewers want something that’s unique, informative, and engaging. In some cases, they look for a video that’s personal, and they can relate to it. Humor is also something that you should consider when writing a script.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3\. Just keep writing
 
 When you start writing it is important that you keep on doing it no matter what happens. Just write down everything that comes into your mind. After that, read what you’ve written. If you think that something needs to be replaced, then replace it. If you get more inspiration and think that the script is lacking, then add to it.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151872/7443" target="_top" id="2151872">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151872" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151872/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\. Make sure that the script is well structured
 
@@ -111,10 +111,10 @@ After writing the script, the next step is to invite a trusted friend or family 
 These are the tips to keep in mind when considering how to write a script for a YouTube video.
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
-  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006928/19272" target="_top" id="2006928">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006928" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006928/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Add Subtitles to Your YouTube Video with Wondershare Filmora
@@ -123,14 +123,14 @@ Creating subtitles with Wondershare Filmora is very easy and a newbie can easily
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
 
@@ -153,19 +153,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-maximize-your-online-interactions-with-these-5-devices/"><u>[Updated] 2024 Approved Maximize Your Online Interactions with These 5 Devices</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-a-beginners-guide-to-creating-impactful-slug-lines/"><u>[Updated] A Beginner's Guide to Creating Impactful Slug Lines</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-exploring-subscriptions-the-value-of-youtube-premium/"><u>2024 Approved Exploring Subscriptions The Value of YouTube Premium</u></a></li>
-<li><a href="https://extra-information.techidaily.com/21-pioneering-metaverse-ventures-for-insightful-discussion/"><u>21 Pioneering Metaverse Ventures for Insightful Discussion</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/e-a-perfect-playlist-on-youtube-a-step-by-step-guide/"><u>Curate a Perfect Playlist on YouTube A Step-by-Step Guide</u></a></li>
-<li><a href="https://fox-triigers.techidaily.com/expandiendo-capacidad-una-guia-completa-para-copiar-e-instalar-una-nueva-ssd-mas-grande/"><u>Expandiendo Capacidad: Una Guía Completa Para Copiar E Instalar Una Nueva SSD Más Grande</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/financial-freedom-awaits-learn-these-8-ways-to-earn-on-tiktok/"><u>Financial Freedom Awaits Learn These 8 Ways to Earn on TikTok</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ing-order-inverting-the-flow-of-your-youtube-watch-list/"><u>Flipping Order Inverting the Flow of Your YouTube Watch List</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-securely-separating-youtube-songs-3-approaches-available-for-free/"><u>In 2024, Securely Separating YouTube Songs 3 Approaches Available for Free</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-tailored-video-experience-creating-a-structured-watch-later-list-on-youtube/"><u>In 2024, Tailored Video Experience Creating a Structured 'Watch Later' List on YouTube</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-the-math-behind-making-money-youtubes-viewer-insights/"><u>In 2024, The Math Behind Making Money YouTube’s Viewer Insights</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/transformative-writing-for-pinterest-descriptions-chatgpt/"><u>Transformative Writing for Pinterest Descriptions (ChatGPT)</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/hed-vids-rediscovered-the-ultimate-guide-to-old-youtube-videos-for-2024/"><u>Vanished Vids Rediscovered The Ultimate Guide to Old YouTube Videos for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/video-creation-simplified-key-elements-of-using-aiseesofts-tech/"><u>Video Creation Simplified Key Elements of Using Aiseesoft's Tech</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-breakdown-of-profit-earning-potential-from-each-youtube-sponsored-post/"><u>[New] 2024 Approved Breakdown of Profit Earning Potential From Each YouTube Sponsored Post?</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nhance-your-profile-with-free-imagery/"><u>[New] Enhance Your Profile with Free Imagery</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/he-definitive-users-manual-for-youtube-tv-for-2024/"><u>[New] The Definitive User's Manual for YouTube TV for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-harnessing-powerful-tools-for-effective-youtubers-seo/"><u>[Updated] Harnessing Powerful Tools for Effective YouTubers' SEO</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-capture-save-and-watch-5-best-pinterest-videos-tools/"><u>[Updated] In 2024, Capture, Save and Watch 5 Best Pinterest Videos Tools</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-the-ultimate-guide-to-selecting-screen-recorder-software/"><u>[Updated] In 2024, The Ultimate Guide to Selecting Screen Recorder Software</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-how-to-seamlessly-upload-youtube-videos-to-facebook-feed/"><u>2024 Approved How to Seamlessly Upload YouTube Videos to Facebook Feed</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-no-more-distractions-expert-guide-to-removing-youtube-ads/"><u>2024 Approved No More Distractions - Expert Guide to Removing YouTube Ads</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/accelerate-any-video-or-audio-with-winxvideo-ai-using-gpu-power/"><u>Accelerate Any Video or Audio with WinxVideo AI Using GPU Power</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/se-video-realms-sites-outshining-youtube-for-2024/"><u>Diverse Video Realms Sites Outshining Youtube for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-will-ispoofer-update-on-asus-rog-phone-7-ultimate-drfone-by-drfone-virtual-android/"><u>In 2024, Will iSpoofer update On Asus ROG Phone 7 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/mastering-the-art-of-naming-your-podcast-right-and-50plus-creative-title-suggestions-for-2024/"><u>Mastering the Art of Naming Your Podcast Right & 50+ Creative Title Suggestions for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722707403140-mice-and-me-a-gaming-duo-adventure/"><u>Mice & Me: A Gaming Duo Adventure!</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/tor-browser-how-it-can-protect-your-online-privacy-on-windows-11/"><u>Tor Browser: How It Can Protect Your Online Privacy on Windows 11</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/k-higher-rankings-essential-tips-to-elevate-your-yt-content-for-2024/"><u>Unlock Higher Rankings Essential Tips to Elevate Your YT Content for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/unlock-savings-up-to-300-off-on-the-asus-rog-zephyrus-g14-oled-and-rtx-4060-laptop-2024/"><u>Unlock Savings: Up To $300 Off On The Asus ROG Zephyrus G14 - OLED & RTX 4060 Laptop, 2024</u></a></li>
 </ul></div>
 

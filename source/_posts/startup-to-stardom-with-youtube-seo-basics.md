@@ -1,7 +1,7 @@
 ---
 title: "From Startup to Stardom with YouTube SEO Basics"
-date: 2024-10-22T16:49:09.297Z
-updated: 2024-10-26T20:33:21.087Z
+date: 2024-10-29T16:23:48.254Z
+updated: 2024-11-01T16:44:49.463Z
 tags:
   - ai video
   - ai youtube
@@ -161,6 +161,13 @@ Have the specific keywords at the top, followed by more general keywords, and th
 
 **Branded**: Gordon Ramsay scrambled eggs
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Make The Best Darn Video Possible
 
 It doesn’t matter how relevant your keywords are or how epic your title is, if you video sucks (i.e. your viewers click in and leave right away), YouTube will not show it in search.
@@ -196,10 +203,16 @@ For example, in this scrambled egg video you are making, at the end you can ask,
 ![Encourage Viewers to Engage in Video](https://images.wondershare.com/filmora/article-images/encourage-viewers-to-engage-min.gif)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1516072">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Who knows, who will respond.
@@ -213,10 +226,10 @@ Your viewers will absolutely judge your video by its cover so it’s important t
 ![Design a Thumbnail](https://images.wondershare.com/filmora/article-images/design-youtube-video-thumbnail.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2080347/19272" target="_top" id="2080347">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080347" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080347/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Take a look at your competition. If they all look the same, do something different. Add text or a human face (preferably yours) to evoke emotion, as viewers are more likely to click into a video if they see an expressive image.
@@ -242,10 +255,10 @@ The video is done, the thumbnail is designed, and you have all your title, descr
 ![Fill Out Your Videos Assets](https://images.wondershare.com/filmora/article-images/creator-stuido-fill-out-video-assets.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938693/19272" target="_top" id="1938693">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938693" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938693/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### Step 11: Add Transcripts
@@ -276,13 +289,6 @@ Do you have any questions about SEO? Please leave us a comment below.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896546/19272" target="_top" id="1896546">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896546" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896546/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -304,21 +310,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/ulinary-cinematography-step-by-step-recipe-tutorials-for-2024/"><u>[New] Culinary Cinematography Step-by-Step Recipe Tutorials for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/inancial-foresight-select-youtube-stocks-hubs/"><u>[New] Financial Foresight Select YouTube Stocks Hubs</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-how-to-curate-a-facebook-playlist-via-phonetablet-for-2024/"><u>[New] How to Curate a Facebook Playlist via Phone/Tablet for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-knowledge-hub-leading-educational-youtube-sources/"><u>[Updated] 2024 Approved Knowledge Hub Leading Educational YouTube Sources</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-paving-the-way-for-individuality-in-the-digital-age-your-youtube-journey/"><u>[Updated] In 2024, Paving the Way for Individuality in the Digital Age Your YouTube Journey</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-the-ultimate-toolkit-for-youtube-marketers-banner-mastery-guide/"><u>[Updated] In 2024, The Ultimate Toolkit for YouTube Marketers Banner Mastery Guide</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-the-blueprint-crafting-compelling-audio-visuals/"><u>[Updated] The Blueprint Crafting Compelling Audio Visuals</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/comprehensive-review-of-heimvision-sunrise-alarm-clock-a8/"><u>Comprehensive Review of HeimVision Sunrise Alarm Clock A8</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/vering-the-top-5-smarter-url-lengtheners-for-youtube-for-2024/"><u>Discovering the Top 5 Smarter URL Lengtheners for YouTube for 2024</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/evolving-tech-frontier-openais-new-milestone-with-gpt-4/"><u>Evolving Tech Frontier: OpenAI's New Milestone with GPT-4</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/exploring-governance-in-tropico-6-power-plays-in-a-perfect-paradise/"><u>Exploring Governance in 'Tropico 6': Power Plays in a Perfect Paradise</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-xiaomi-redmi-note-13-proplus-5g-by-phone-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Xiaomi Redmi Note 13 Pro+ 5G by Phone Number | Dr.fone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ize-visual-impact-on-youtube-adding-watermarks-and-logo-to-media-content/"><u>Maximize Visual Impact on YouTube Adding Watermarks & Logo to Media Content</u></a></li>
-<li><a href="https://review-topics.techidaily.com/recover-your-contacts-after-xiaomi-14-has-been-deleted-by-fonelab-android-recover-contacts/"><u>Recover your contacts after Xiaomi 14 has been deleted.</u></a></li>
-<li><a href="https://driver-download.techidaily.com/seamless-installation-fresh-drivers-for-netgear-wna310-4ghz-wireless-router/"><u>Seamless Installation: Fresh Drivers for Netgear WNA310 4Ghz Wireless Router</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/smooth-nahimic-driver-upgrade-for-speed-and-ease/"><u>Smooth Nahimic Driver Upgrade for Speed & Ease</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-a-step-by-step-approach-to-lut-application-in-ae/"><u>[New] 2024 Approved A Step-by-Step Approach to LUT Application in AE</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/udio-conversion-made-simple-youtube-to-mp3-mac-edition/"><u>[New] Audio Conversion Made Simple YouTube to MP3, Mac Edition</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-snaptweet-transporter-swift-transfer-of-tweets-content/"><u>[New] In 2024, SnapTweet Transporter Swift Transfer of Tweets' Content</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/earching-comments-on-youtube/"><u>[New] Searching Comments on YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/kyrocket-engagement-optimizing-videos-for-peak-views-for-2024/"><u>[New] Skyrocket Engagement Optimizing Videos for Peak Views for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-expressiveness-in-yt-adopting-emojis/"><u>[Updated] 2024 Approved Expressiveness in YT Adopting Emojis</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-first-steps-on-the-path-equipment-for-beginners/"><u>[Updated] 2024 Approved First Steps on the Path Equipment for Beginners</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-get-more-views-with-the-best-youtube-thumbnail-ideas/"><u>[Updated] 2024 Approved Get More Views with the Best YouTube Thumbnail Ideas</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-detailed-guide-securely-recording-on-vimeo-for-2024/"><u>[Updated] Detailed Guide Securely Recording on Vimeo for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-skyrocketing-view-figures-by-sustaining-youtubes-creative-commons-license/"><u>[Updated] In 2024, Skyrocketing View Figures by Sustaining YouTube's Creative Commons License</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-netizen-chucklers-aid/"><u>[Updated] Netizen Chuckler's Aid</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-top-8-android-apps-to-change-slow-motion-videos-to-regular-speed-videos/"><u>[Updated] Top 8 Android Apps to Change Slow-Motion Videos to Regular-Speed Videos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-infusing-vitality-into-text-an-animated-adventure/"><u>2024 Approved Infusing Vitality Into Text An Animated Adventure</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-quickcast-your-youtube-selection-playlists/"><u>In 2024, Quickcast Your Youtube Selection, Playlists!</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-top-10-ways-to-procure-quality-photo-and-video-backgrounds/"><u>In 2024, Top 10 Ways to Procure Quality Photo & Video Backgrounds</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/rs-engineering-digital-marvel-realms/"><u>Leaders Engineering Digital Marvel Realms</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/preparation-to-beat-giovani-in-pokemon-go-for-honor-x50i-drfone-by-drfone-virtual-android/"><u>Preparation to Beat Giovani in Pokemon Go For Honor X50i | Dr.fone</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/resolving-your-intel-hd-graphics-630-driver-issues-on-windows-a-detailed-user-guide-corrected/"><u>Resolving Your Intel HD Graphics 630 Driver Issues on Windows - A Detailed User Guide [CORRECTED]</u></a></li>
+<li><a href="https://location-social.techidaily.com/set-your-preferred-job-location-on-linkedin-app-of-your-infinix-hot-40-pro-drfone-by-drfone-virtual-android/"><u>Set Your Preferred Job Location on LinkedIn App of your Infinix Hot 40 Pro | Dr.fone</u></a></li>
 </ul></div>
 
