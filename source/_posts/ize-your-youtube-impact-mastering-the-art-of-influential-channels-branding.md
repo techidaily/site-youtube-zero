@@ -1,7 +1,7 @@
 ---
 title: "\"Maximize Your YouTube Impact  Mastering the Art of Influential Channels' Branding\""
-date: 2024-09-06T13:03:07.867Z
-updated: 2024-09-07T13:03:07.867Z
+date: 2024-11-05T17:19:44.816Z
+updated: 2024-11-06T20:38:25.308Z
 tags:
   - ai video
   - ai youtube
@@ -20,12 +20,6 @@ thumbnail: https://thmb.techidaily.com/acc4624304fa10f6661dcbd0f5aeeaf72266dc481
 
 ![](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Shanoon Cox
 
  Nov 01, 2022• Proven solutions
@@ -52,6 +46,13 @@ When a branding element does not align with the message or the tone does not mat
 
 Imagine Michelle Phan using the aggressive colors of Epic Meal Time or vice versa. Pretty weird, huh?
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## What is YouTube Branding?
 
 You might think that branding simply comes together while making videos, but that’s not true. Branding takes a bit of preparation and foresight.
@@ -76,12 +77,6 @@ Here are notable elements of your channel’s branding:
 
 \- Style of video
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Start Branding Your YouTube Channel?
 
 Before you start designing thumbnails and coming up with a catchphrase, the first step in branding is understanding the purpose of your channel. Once you have a purpose, you will know how you want your viewers to feel.
@@ -164,6 +159,13 @@ The power of good branding is that your viewers will be able to spot your brand 
 
 ![Create Video Thumbnails](https://images.wondershare.com/filmora/article-images/create-video-thumbnails.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885943/19272" target="_top" id="1885943">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885943" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885943/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 _Epic Meal Time thumbnails standing out amongst other loud thumbnails._
 
  Once you have the feeling you want to evoke, test out different thumbnails. Go incognito, search up your videos, and see how the visuals appear beside your competitions. Do they all have the same style or is your far more impressive?
@@ -191,11 +193,12 @@ Want more resources for creating your channel’s visual elements? Yes? Well, we
 \- [Free Youtube Banners](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How to Make Your Visuals Consistent?
 
 When a viewer finds your video and considers it pretty interesting, they will then go into your channel page to learn more. Here is where they make their decision: subscribe or not subscribe?
@@ -206,12 +209,6 @@ Consistent branding affirms the viewer that they are in the right place. Peter M
 
 _Peter McKinnon is best known for his photography and cinematography, and his branding amplifies that._
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## But Branding Is Not Designing, It’s A Feeling
 
 Don’t get too caught up with a design.
@@ -220,12 +217,6 @@ Look at PewDiePie’s branding. You can argue that it is inconsistent and the de
 
 ![Pew Die Pie Channel](https://images.wondershare.com/filmora/article-images/pew-die-pie-channel.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115919/19272" target="_top" id="2115919">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115919" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115919/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 _PewDiePie’s brand highlights its upbeat and unpredictable personality._
 
  PewDiePie wants you to laugh. He is not branding his expertise like Peter McKinnon is, he’s branding his personality.
@@ -236,19 +227,14 @@ The humor in PewDiePie’s brand is consistent, even though his thumbnails don�
 
 ![Philip DeFranco](https://images.wondershare.com/filmora/article-images/philip-defranco.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1160850">
-					<video width="576" height="324" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 _Philip DeFranco supplies commentary on current events with a satirical flair. Like a news broadcast, his branding and video format are consistent, while the daily news is different._
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Inserting A Watermark
 
@@ -259,17 +245,12 @@ Let’s be honest, YouTube content can all look the same, especially if you are 
  ![Improvement Pill](https://images.wondershare.com/filmora/article-images/improvement-pill.jpg)
 
 <!-- affiliate ads begin -->
-<span id="701707">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 _Improvement Pill is a YouTube channel focused on inspiring and motivating its viewer to live a better life._
 
  Above we see an example of a watermark from the YouTube channel Improvement Pill. You can see the watermark in the lower right-hand corner.
@@ -280,26 +261,15 @@ When a viewer lands on their video, the watermark gives the viewer another way t
 
 Want to set up your subscription watermark? Here is a quick tutorial:
 
-<!-- affiliate ads begin -->
-<span id="1912746">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115925/19272" target="_top" id="2115925">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115925" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115925/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Coming Up With A Catchphrase
 
 A catchphrase can be your greeting or sign off, but it doesn’t have to be an original line, it can simply be the way you say “hello.”
@@ -308,18 +278,6 @@ Check out some of the popular YouTuber’s catchphrases:
 
   When coming up with a catchphrase that is connected to your channel’s branding remember how you want the viewer to feel. Do you want to leave them with a smile? Or do you want them to take action?
 
-<!-- affiliate ads begin -->
-<span id="1328679">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Final Thoughts On YouTube Branding
 
 As you build and grow your YouTube channel, you can expand your purpose while still sticking within the overall theme. You might have started a channel that focused on the topic of nutrition, but as you grow, you will discover that your audience may also be interested in fitness tips or workout accessories as well. Take it slowly and grow with purpose.
@@ -336,14 +294,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -352,4 +307,21 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-beginning-and-attending-zoom-meetings-for-android-users/"><u>[New] 2024 Approved Beginning and Attending Zoom Meetings for Android Users</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/oost-your-visual-storytelling-key-strategies-for-solo-videos-for-2024/"><u>[New] Boost Your Visual Storytelling Key Strategies for Solo Videos for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-mastery-in-mapping-out-your-youtube-audience/"><u>[Updated] 2024 Approved Mastery in Mapping Out Your YouTube Audience</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-unraveling-the-benefits-of-rapid-youtube-subscription/"><u>[Updated] 2024 Approved Unraveling the Benefits of Rapid YouTube Subscription</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-mastery-in-motion-choosing-your-path-for-vimeo-download-tools/"><u>[Updated] In 2024, Mastery in Motion Choosing Your Path for Vimeo Download Tools</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-the-ultimate-guide-to-audacitys-professional-tracking-for-2024/"><u>[Updated] The Ultimate Guide to Audacity's Professional Tracking for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-blitz-broadcasting-channel-your-playlist-swiftly/"><u>2024 Approved Blitz Broadcasting Channel Your Playlist Swiftly</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-boost-your-youtube-video-to-million-views-quickly/"><u>2024 Approved Boost Your YouTube Video to Million Views Quickly</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/ai-and-law-the-future-intersection/"><u>AI and Law: The Future Intersection</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/get-the-newest-dell-graphics-and-sound-card-drivers-optimized-for-windows/"><u>Get the Newest Dell Graphics and Sound Card Drivers Optimized for Windows</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-pictures-files-from-motorola-edge-40-pro-by-fonelab-android-recover-pictures/"><u>How To Restore Missing Pictures Files from Motorola Edge 40 Pro.</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-forgot-pattern-lock-heres-how-you-can-unlock-poco-m6-5g-pattern-lock-screen-by-drfone-android/"><u>In 2024, Forgot Pattern Lock? Heres How You Can Unlock Poco M6 5G Pattern Lock Screen</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-harness-the-full-potential-of-your-youtube-content-using-wmm/"><u>In 2024, Harness the Full Potential of Your YouTube Content Using WMM</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ng-9-free-logo-design-software-for-youtube-channels-for-2024/"><u>Leading 9 Free Logo Design Software for YouTube Channels for 2024</u></a></li>
+</ul></div>
 

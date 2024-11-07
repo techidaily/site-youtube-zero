@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Zeroing in on Audio Quality  Achievable Sans Mic\""
-date: 2024-09-06T13:03:11.857Z
-updated: 2024-09-07T13:03:11.857Z
+date: 2024-10-30T19:41:54.541Z
+updated: 2024-11-07T02:42:46.267Z
 tags:
   - ai video
   - ai youtube
@@ -39,12 +39,6 @@ Luckily, there are a lot of easy, free, things you can do to protect the quality
 * [5\. Use a Free Audio App](#app)
 * [6\. Do a Sound Check](#check)
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 1\. Keep Your Camera Close (like, really close)
 
 The biggest problem with the mic built into any camera or phone is just that, since it’s with the camera, it’s usually too far away from you. Built-in mics can record decent audio up close, but usually, your camera will be set up farther away from you than an external mic would be.
@@ -59,18 +53,6 @@ The best way to limit the amount of background noise you pick up in your sound r
 
 Sometimes the best thing you can do for your audio is simply to scout out a quiet room in your house where the sound recording conditions are better. Speaking of recording conditions…
 
-<!-- affiliate ads begin -->
-<span id="1982461">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 3\. Pick a Good Room
 
 There’s more that goes into picking a good room than how quiet it is. If you try to record in a room that’s too big your voice might sound to distant, and if you try to record in a room that’s too small your audio will be too echo-y. You need a room that’s just right.
@@ -78,6 +60,13 @@ There’s more that goes into picking a good room than how quiet it is. If you t
 You should also pay attention to what’s in the room you’re recording in. Avoid hard, reflective, surfaces like appliances and mirrors which your voice will bounce off of. The same conditions that make you sound great when you sing in the shower will – like recording in a small space -make your voiceover unpleasantly echo-y.
 
 Look for a room that has a lot of soft things in it, like beds and sofas.
+
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
+  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 4\. Protect your Built-In Mic from Wind
 
@@ -93,22 +82,17 @@ If your built-in mic is on top of your camera you can get something called a ‘
 
 ![Record better audio from wind with micromuff](https://images.wondershare.com/filmora/article-images/record-better-audio-from-wind.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120865/26400?prodsku=mercury" target="_top" id="2120865">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120865" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120865/26400?prodsku=mercury" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 _You use the adhesive backing to attach the base velcro to your camera. The other side of the velcro has your fluff attached to the back._
 
 The only thing about a micromuff is that it costs about $30, and if you’re going to spend $30 on audio equipment then you could just buy yourself an inexpensive LAV mic. I only bring up the micromuff because it’s a very simple design you can probably DIY – you just need velcro with adhesive backing and any of the fluff-sources we just discussed.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 5\. Use a Free Audio App
 
 If you’re recording on a smartphone, you can download a free app that will let you make adjustments to your audio as you record it. With the right app, you can adjust your gain (volume is how you control ‘output’ audio, and gain is for ‘input’ audio. By turning up your gain, you can make your mic more sensitive), tempo, and more. A lot of the time, your audio recording app will also let you edit your audio afterward.
@@ -126,30 +110,26 @@ Do you have any of your own audio tips to pass on? Leave them in the comments!
 _This topic was suggested by RS Beauty over in the forums. Thanks for the idea!_
 
 <!-- affiliate ads begin -->
-<span id="1982462">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Polish Your YouTube Videos with Filmora
 
 As one of the most widely used video editing software in YouTube video editing, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) allows you to [record voiceover](https://tools.techidaily.com/wondershare/filmora/download/) and edit the recorded audio with mixer, equalizer and provides lots of templates and effects with an intuitive interface, which saves much time. Download the free trial version and get started now.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880940/19272" target="_top" id="1880940">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880940" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880940/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -157,14 +137,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -173,4 +150,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/iscovering-success-through-the-most-effective-15-youtube-themes/"><u>[New] Discovering Success Through the Most Effective 15 YouTube Themes</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ilmmaker-tips-youtube-trailers-using-filmora-for-2024/"><u>[New] Filmmaker Tips YouTube Trailers Using Filmora for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-dos-and-donts-the-ultimate-fb-cover-video-tutorial/"><u>[New] In 2024, Dos & Don'ts The Ultimate FB Cover Video Tutorial</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/napshots-of-success-jake-pauls-youtube-milestones/"><u>[New] Snapshots of Success Jake Paul’s YouTube Milestones</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nlocking-your-creative-potential-style-and-niche/"><u>[New] Unlocking Your Creative Potential Style & Niche</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-no-money-down-for-vfx-wizards-exclusive-video-tutorials-on-free-green-screen-techniques-from-top-channels/"><u>[Updated] 2024 Approved No Money Down for VFX Wizards Exclusive Video Tutorials on Free Green Screen Techniques From Top Channels</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-the-future-of-development-understanding-the-impact-of-next-gen-frameworks/"><u>[Updated] 2024 Approved The Future of Development Understanding the Impact of Next-Gen Frameworks</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-crafting-a-cash-cascade-on-youtube-strategies-beyond-the-ad-model/"><u>2024 Approved Crafting a Cash Cascade on YouTube Strategies Beyond the Ad Model</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-revealed-top-windows-11-gems-that-could-boost-your-user-performance/"><u>2024 Approved Revealed Top Windows 11 Gems That Could Boost Your User Performance</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-surge-video-popularity-with-essential-seo-aids/"><u>2024 Approved Surge Video Popularity with Essential SEO Aids</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2212454-9780007536818-aries-2014-your-personal-horoscope/"><u>Aries 2014: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://android-frp.techidaily.com/easy-guide-to-oppo-a1-5g-frp-bypass-with-best-methods-by-drfone-android/"><u>Easy Guide to Oppo A1 5G FRP Bypass With Best Methods</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/o-completely-erase-youtube-shorts-footprint/"><u>How To Completely Erase YouTube Shorts Footprint</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-one-youtube-feed-how-to-merge-multiple-videos/"><u>In 2024, One YouTube Feed How to Merge Multiple Videos</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-the-easy-way-to-remove-an-apple-id-from-your-macbook-for-your-iphone-15-plus-by-drfone-ios/"><u>In 2024, The Easy Way to Remove an Apple ID from Your MacBook For your iPhone 15 Plus</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-transforming-youtube-footage-the-essentials-of-wm-maker-use/"><u>In 2024, Transforming YouTube Footage The Essentials of WM Maker Use</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/top-ranked-comedic-image-editor/"><u>Top-Ranked Comedic Image Editor</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/updated-the-ultimate-list-of-live-chat-apps-for-shopify-for-2024/"><u>Updated The Ultimate List of Live Chat Apps for Shopify for 2024</u></a></li>
+<li><a href="https://tools.techidaily.com/wysiwygwebbuilder/products/"><u>Wysiwygwebbuilder's Products</u></a></li>
+</ul></div>
 

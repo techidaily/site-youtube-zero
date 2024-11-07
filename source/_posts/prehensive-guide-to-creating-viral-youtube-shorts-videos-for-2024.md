@@ -1,7 +1,7 @@
 ---
 title: "A Comprehensive Guide to Creating Viral YouTube Shorts Videos for 2024"
-date: 2024-10-30T16:06:21.125Z
-updated: 2024-11-01T16:59:25.565Z
+date: 2024-10-31T06:41:28.462Z
+updated: 2024-11-06T22:16:37.587Z
 tags:
   - ai video
   - ai youtube
@@ -44,10 +44,10 @@ That said, in the following sections you will learn everything about the **YouTu
 A short and quick answer to the question is, **YouTube Shorts** is a Tik Tok competitor developed by Google and can be accessed via the YouTube app on an Android or iOS device. In order to use the **YouTube Shorts app**, all you need to do is, sign in to your YouTube account on the YouTube app, and you are good to go.
 
 <!-- affiliate ads begin -->
-<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
-  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1\. YouTube Shorts Release History
@@ -87,13 +87,6 @@ Certain things that you must keep in mind while creating **YouTube Shorts** incl
 
 As mentioned earlier, **YouTube Shorts** can be accessed by launching the YouTube app on your Android or iOS device. You can use **YouTube Shorts** by clicking the **+** (**Add**) icon present at the bottom. Once the **YouTube Shorts app** is initialized, you can easily create and publish short videos by following the simple on-screen instructions.
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398449/3022" target="_top" id="398449">
-  <img src="//a.impactradius-go.com/display-ad/3022-398449" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398449/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Part 2: How to Make and Upload a YouTube Shorts Video with Shorts App?**
 
 You can follow the instructions given below to make and [upload a YouTube Shorts](https://tools.techidaily.com/wondershare/filmora/download/) video using the **YouTube Shorts app**:
@@ -103,10 +96,10 @@ You can follow the instructions given below to make and [upload a YouTube Shorts
 ![ Record YouTube Shorts video](https://images.wondershare.com/filmora/article-images/record-create-youtube-short-video-mobile.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049369/7443" target="_top" id="2049369">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049369" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049369/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Launch the YouTube app on your Android or iOS smart device (Samsung Galaxy Note 10+ is used here for demonstration), make sure that you are signed in to your Google account, tap the **+** (**Add**) button present at the bottom of the screen, tap **Create a Short** on the popup box that appears next, tap the **Record** button on the next window to start the recording. Once you are done, tap the **Stop** button to stop the recording.
@@ -116,13 +109,6 @@ Launch the YouTube app on your Android or iOS smart device (Samsung Galaxy Note 
 Tap **Music** from the bottom of the screen to add background music to the video. The music that you can use in your short videos must be either created by you, or you should have permission to use them. However, the audio files that the Music library contains is made available by Google, is royalty-free, and can be used throughout the platform.
 
 ![ Edit YouTube Shorts video - Add text and music](https://images.wondershare.com/filmora/article-images/edit-youtube-short-video.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Likewise, you can tap **Text** to add captions as well. As for the text type, the app offers various formatting options such as alignment (left, center, and right), text highlighter, font changer, and even color selector. Further, the Speed and Timer icons at the top-right area allow you to manage the playback speed anywhere between 0.3x to 3x, and automatically stop the recording after the set time limit respectively. Once everything is set up, tap **NEXT** from the top-right corner to proceed to the next step.
 
@@ -139,10 +125,16 @@ Enter a title for the video in the **Title** field. Make sure to include **#shor
 ![ Upload YouTube Shorts video ](https://images.wondershare.com/filmora/article-images/upload-youtube-shorts-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975562">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Part 3: How to Create a Vertical YouTube Shorts Video in Filmora?**
@@ -158,6 +150,13 @@ When talking about Wondershare Filmora, it is a production and post-production a
 For Win 7 or later (64-bit)
 
 ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148635/16836" target="_top" id="2148635">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148635" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148635/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -175,13 +174,6 @@ Launch Wondershare Filmora on your Windows or Mac PC (a Windows 10 computer is u
 
 ![ Upload YouTube Shorts video ](https://images.wondershare.com/filmora/article-images/upload-youtube-shorts-video.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Next, hover the mouse over the clip in the **Media** box, click the **+** button that appears at the bottom-right corner of the thumbnail, and in the resolution confirmation box that comes up next, click the button under the **Match to Media** section to add the video in the correct orientation to the Timeline at the bottom.
 
 **Step 2: Edit the Video**
@@ -189,13 +181,6 @@ Next, hover the mouse over the clip in the **Media** box, click the **+** button
 Select the clip in the Timeline, and use the **Split**, **Crop**, **Speed**, etc. buttons above the Timeline itself to remove the unwanted portions from the clip, manage its playback speed, and do other fine-tuning tasks.
 
 ![ Edit YouTube Shorts video in Filmora - split/crop/change speed ](https://images.wondershare.com/filmora/article-images/split-crop-youtube-shorts-video.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 You can even click the **Edit** button, and use the available editing features like **Motion Tracking** and **Stabilization** to add text or objects to a moving body in the video and stabilize the clip if the camera shook during the recording session respectively. Click **OK** to save the changes when done.
 
@@ -207,18 +192,18 @@ You can even click the **Edit** button, and use the available editing features l
 
 ![Add Title to YouTube Shorts video with Filmora](https://images.wondershare.com/filmora/article-images/youtube-shorts-video-add-title.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Click **Titles** from the standard toolbox at the top, choose your preferred text category from the list in the left, hover the mouse over a decent preset in the right window, and click the **+** button at the bottom-right corner of the thumbnail to add the preset on top of the media track in the Timeline. Next, you can double-click the preset track in the Timeline to modify the text and make granular modifications to it as needed. Click **OK** to save the changes.
 
 Similarly, you can select the **Effects** and **Elements** tools to add effects and elements to the video as needed. To add background music, you can go to the **Audio** tool, and pick your preferred preset from the available options. A custom music can be added by going to the **Media** tool, and importing an audio file from your PC using the method explained in **Step 1**.
 
 ![Add effects to YouTube Shorts video with Filmora](https://images.wondershare.com/filmora/article-images/youtube-shorts-video-add-effects.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934188/19272" target="_top" id="1934188">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934188" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934188/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 After this, optionally, you can go to **Split Screen** from the standard toolbar at the top, and use your preferred Split Screen preset to club multiple video clips into one screen. In Filmora, you can add as many as 6 screens in a video.
 
@@ -228,11 +213,25 @@ For Win 7 or later (64-bit)
 
 ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144285/7443" target="_top" id="2144285">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144285" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144285/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
 For macOS 10.12 or later
 
 ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
+
+<!-- affiliate ads begin -->
+<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
+  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 4: Render the Final Output**
 
@@ -268,6 +267,13 @@ Unfortunately, NO. Although you cannot monetize the recordings published as **Yo
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -289,14 +295,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-essential-steps-for-mp3-streams-on-youtube-for-2024/"><u>[New] Essential Steps for MP3 Streams on Youtube for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-banish-youtube-shorts-forever-with-ease/"><u>[Updated] In 2024, Banish YouTube Shorts Forever with Ease</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-rethinking-top-movies-7-swap-selections/"><u>[Updated] In 2024, Rethinking Top Movies - #7 Swap Selections</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ng-a-different-way-to-naming-your-channel-with-filmora-for-2024/"><u>Finding a Different Way to Naming Your Channel with Filmora for 2024</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-a-found-apple-iphone-6s-drfone-by-drfone-ios/"><u>In 2024, How To Unlock A Found Apple iPhone 6s? | Dr.fone</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/play-store-not-working-on-honor-70-lite-5g-8-solutions-inside-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Not Working On Honor 70 Lite 5G? 8 Solutions Inside | Dr.fone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/table-pixels-monetizing-content-across-platforms/"><u>Profitable Pixels Monetizing Content Across Platforms</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/apid-reverse-how-to-flip-your-stream-sides-for-2024/"><u>The Rapid Reverse How to Flip Your Stream-Sides for 2024</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/walkthrough-setting-up-arduino-board-controls-in-windows-using-the-right-drivers/"><u>Walkthrough: Setting up Arduino Board Controls in Windows Using the Right Drivers</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/udio-conversion-made-simple-youtube-to-mp3-mac-edition/"><u>[New] Audio Conversion Made Simple YouTube to MP3, Mac Edition</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-from-obscurity-to-prominence-how-to-thrive-in-youtube-streaming/"><u>[New] From Obscurity to Prominence How to Thrive in Youtube Streaming</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-visual-jokes-on-the-go-no-cost-with-creatememe/"><u>[New] In 2024, Visual Jokes on the Go No Cost with CreateMeme</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/earching-comments-on-youtube/"><u>[New] Searching Comments on YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/kyrocket-engagement-optimizing-videos-for-peak-views-for-2024/"><u>[New] Skyrocket Engagement Optimizing Videos for Peak Views for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-top-tier-vr-engine-software-a-comprehensive-review/"><u>[New] Top-Tier VR Engine Software A Comprehensive Review</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-expressiveness-in-yt-adopting-emojis/"><u>[Updated] 2024 Approved Expressiveness in YT Adopting Emojis</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-first-steps-on-the-path-equipment-for-beginners/"><u>[Updated] 2024 Approved First Steps on the Path Equipment for Beginners</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-get-more-views-with-the-best-youtube-thumbnail-ideas/"><u>[Updated] 2024 Approved Get More Views with the Best YouTube Thumbnail Ideas</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-crucial-top-5-compact-action-recorder-recommendations/"><u>[Updated] Crucial Top 5 Compact Action Recorder Recommendations</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-elevate-your-youtube-presence-with-masterful-editing-skills/"><u>[Updated] Elevate Your YouTube Presence with Masterful Editing Skills</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-compact-obs-setup-for-underpriced-pcs/"><u>[Updated] In 2024, Compact OBS Setup for Underpriced PCs</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-skyrocketing-view-figures-by-sustaining-youtubes-creative-commons-license/"><u>[Updated] In 2024, Skyrocketing View Figures by Sustaining YouTube's Creative Commons License</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-infusing-vitality-into-text-an-animated-adventure/"><u>2024 Approved Infusing Vitality Into Text An Animated Adventure</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/free-winx-dvd-converter-convert-dvds-to-mp4avi-formats-for-ios-and-android-devices/"><u>Free WinX DVD Converter - Convert DVDs to MP4/AVI Formats for iOS & Android Devices</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-apps-from-vivo-v29-pro-to-another-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Apps from Vivo V29 Pro to Another | Dr.fone</u></a></li>
+<li><a href="https://win-dash.techidaily.com/latest-lenovo-driver-packs-free-download-and-installation-guide-for-windows-10/"><u>Latest Lenovo Driver Packs: Free Download & Installation Guide for Windows 10</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/rs-engineering-digital-marvel-realms/"><u>Leaders Engineering Digital Marvel Realms</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/prime-video-sets-for-live-broadcasts-2023-for-2024/"><u>Prime Video Sets for Live Broadcasts 2023 for 2024</u></a></li>
 </ul></div>
 

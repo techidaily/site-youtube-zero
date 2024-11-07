@@ -1,7 +1,7 @@
 ---
 title: Step-by-Step Fixes for Thx Spatial Sound Malfunctions in Modern Windows Operating Systems
-date: 2024-09-06T13:03:44.463Z
-updated: 2024-09-07T13:03:44.463Z
+date: 2024-11-01T01:41:00.398Z
+updated: 2024-11-07T01:24:18.157Z
 tags:
   - win11
   - win10
@@ -62,12 +62,6 @@ Fortnite was launched in 2017\. It is an “old” but popular game which become
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123469/16836" target="_top" id="2123469">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123469" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123469/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Method 2: Use compatibility mode
 
  Run Fortnite in compatibility mode is a way to solve many problems. This Fortnite black screen error may be caused by the incompatibility with the system. So change the compatibility mode may help you solve the issue.
@@ -76,22 +70,17 @@ Fortnite was launched in 2017\. It is an “old” but popular game which become
 2. In the Compatibility tab, click **Run this program in compatibility mode for** . Then choose the system in the drop-down menu.  
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/com.jpg)
 3. Click **OK** then run Fortnite to check.
-<!-- affiliate ads begin -->
-<span id="1374820">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  If this method doesn’t help, don’t worry, move to the next one.
 
 ---
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Method: Update your graphics card
 
@@ -123,14 +112,38 @@ OR
 2. Run Driver Easy and click **Scan Now** button. Driver Easy will then scan your computer and detect any problem drivers.  
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/NVIDIA-18.jpg)
 3. Click the **Update** button next to the driver to automatically download and install the correct version of this driver (you can do this with Free version). Or click **Update All** to automatically download and install the correct version of _all_ the drivers that are missing or out of date on your system (this requires the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  – you’ll be prompted to upgrade when you click Update All).  
+
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115927/19272" target="_top" id="2115927">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115927" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115927/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2019/08/NVIDIA-Geoforce.jpg)
 4. Reboot your computer and run Fortnite to check the black screen issue will appear or not.
+
+---
+
+### Method 4: Use your integrated graphics card
+
+ If you have the latest and corrected drivers and have two graphics cards on your PC, you can try this method to fix the problem. Use your integrated graphics card to run Fortnite has reported as a useful method to deal with the Fortnite black screen problem.
+
+ If everything works fine using the integrated graphics, you might need to check your graphics processor or PSU (computer power supply unit) are faulting. The way to test your GPU is using another graphics card on your PC or try this card in another PC.
+
+---
+
+### Method 5: Change scale and layout limit
+
+ This solution has been proved by some users that help them fix the Fortnite black screen problem. Follow the steps below to change the display settings on your computer.
+
+1. Right-click on your desktop screen.  
+![](https://images.drivereasy.com/wp-content/uploads/2019/09/display.jpg)
+2. In the Display tab, find Scale and layout.
+3. Change the scaling limit.  
+![](https://images.drivereasy.com/wp-content/uploads/2019/09/display1.jpg)
+4. Reboot Fortnite and check whether this problem is resolved.
+
 <!-- affiliate ads begin -->
 <span id="1444782">
 					<video width="1024" height="576" style="cursor:pointer"
@@ -144,37 +157,11 @@ OR
 <img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
----
-
-### Method 4: Use your integrated graphics card
-
- If you have the latest and corrected drivers and have two graphics cards on your PC, you can try this method to fix the problem. Use your integrated graphics card to run Fortnite has reported as a useful method to deal with the Fortnite black screen problem.
-
- If everything works fine using the integrated graphics, you might need to check your graphics processor or PSU (computer power supply unit) are faulting. The way to test your GPU is using another graphics card on your PC or try this card in another PC.
-
----
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-### Method 5: Change scale and layout limit
-
- This solution has been proved by some users that help them fix the Fortnite black screen problem. Follow the steps below to change the display settings on your computer.
-
-1. Right-click on your desktop screen.  
-![](https://images.drivereasy.com/wp-content/uploads/2019/09/display.jpg)
-2. In the Display tab, find Scale and layout.
-3. Change the scaling limit.  
-![](https://images.drivereasy.com/wp-content/uploads/2019/09/display1.jpg)
-4. Reboot Fortnite and check whether this problem is resolved.
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Method 6: Unblock the game from Windows Firewall
@@ -184,28 +171,25 @@ OR
 1. Type “firewall” in the search bar and press**Enter** .  
 ![](https://images.drivereasy.com/wp-content/uploads/2019/09/firewall0.jpg)
 2. Click**Allow an app through firewall** .  
+
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2019/09/firewall.jpg)
 3. Find Fortnite and check whether it has been blocked or not.
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 4. Click**Change Settings** if it does and check all the boxes to enable the app through the firewall.  
 ![](https://images.drivereasy.com/wp-content/uploads/2019/09/firewall-1.jpg)
 5. Reboot Fortnite and check whether this problem is resolved.
+
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/977686/11832" target="_top" id="977686">
+  <img src="//a.impactradius-go.com/display-ad/11832-977686" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/977686/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ---
@@ -222,8 +206,6 @@ OR
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -231,4 +213,22 @@ OR
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-hitting-the-high-notes-of-youtube-editing-audio-addition-secrets-revealed/"><u>[New] In 2024, Hitting the High Notes of YouTube Editing Audio Addition Secrets Revealed</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-imovie-tips-creating-engaging-youtube-video-intros/"><u>[New] In 2024, IMovie Tips Creating Engaging YouTube Video Intros</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/evealing-the-secrets-accessing-forgotten-youtube-vids-for-2024/"><u>[New] Revealing the Secrets Accessing Forgotten YouTube Vids for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-slowing-down-action-iphone-filmmaking-tricks/"><u>[New] Slowing Down Action IPhone Filmmaking Tricks</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-ensuring-visibility-fixing-missing-shorts-thumbnails/"><u>[Updated] 2024 Approved Ensuring Visibility Fixing Missing Shorts Thumbnails</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-your-ultimate-cheat-sheet-for-seamlessly-looping-videos-on-youtube/"><u>[Updated] 2024 Approved Your Ultimate Cheat Sheet for Seamlessly Looping Videos on YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-brief-but-impactful-music-shorts-on-youtube-unveiled/"><u>[Updated] Brief but Impactful Music Shorts on YouTube Unveiled</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-demystifying-the-mechanics-of-youtube-studio-for-2024/"><u>[Updated] Demystifying the Mechanics of YouTube Studio for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-step-by-step-download-and-personalize-whatsapp-ringtones-on-mobile/"><u>[Updated] Step-by-Step Download & Personalize WhatsApp Ringtones on Mobile</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-interactive-display-decode/"><u>In 2024, Interactive Display Decode</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/new-in-2024-how-to-translate-tiktok-videos-top-5-auto-translate-tools/"><u>New In 2024, How to Translate TikTok Videos Top 5 Auto Translate Tools</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ltimate-playbook-to-youtube-hub-mastery-for-2024/"><u>The Ultimate Playbook to YouTube Hub Mastery for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/top-10-fixes-for-phone-keep-disconnecting-from-wi-fi-on-asus-rog-phone-8-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 10 Fixes for Phone Keep Disconnecting from Wi-Fi On Asus ROG Phone 8 | Dr.fone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/ultimate-guide-setting-up-your-psn-profile/"><u>Ultimate Guide: Setting Up Your PSN Profile</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/unleashing-imagination-gpt-dall-e-in-crafting-dandd-characters/"><u>Unleashing Imagination: GPT, DALL-E in Crafting D&D Characters</u></a></li>
+</ul></div>
 

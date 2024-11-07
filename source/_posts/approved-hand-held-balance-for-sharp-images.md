@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Hand-Held Balance for Sharp Images\""
-date: 2024-10-30T16:42:34.442Z
-updated: 2024-11-01T16:11:57.190Z
+date: 2024-10-31T20:28:53.259Z
+updated: 2024-11-06T21:17:11.053Z
 tags:
   - ai video
   - ai youtube
@@ -42,10 +42,10 @@ Wondershare Filmora has the best video stabilization tool is your videos have a 
 Here are 3 of our favorite DIY tripods.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
-  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **DIY smartphone tripod using binder clips or hair clips**
@@ -62,27 +62,33 @@ Here it is with binder clips:
 
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1975636">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111967/7443" target="_top" id="2111967">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111967" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111967/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **DIY adjustable tripod using books and a towel**
 
@@ -101,6 +107,13 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -108,13 +121,6 @@ Gorillapod’s are cool because you can use them like normal tripods, carry them
 Your wire should be fairly stiff and you’ll need three pieces the same length, which should be at least 10 inches. Old clothes hangers work well. This needs to be something strong enough to support the weight of your camera, but soft enough that it’s not impossible for you to bend.
 
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012401/19272" target="_top" id="2012401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012401" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012401/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
 
@@ -159,14 +165,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/ed-decoding-youtube-income-how-much-does-each-1000-viewer-earn-for-2024/"><u>[Updated] Decoding YouTube Income How Much Does Each 1,000 Viewer Earn for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-strategies-to-solve-obs-fullscreen-breakdowns/"><u>[Updated] Strategies to Solve OBS Fullscreen Breakdowns</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-purchasing-options-choosing-premium-vs-standard-fixtures-and-whether-they-are-integrated-or-retrofit-options-can-alter-costs/"><u>2024 Approved __Purchasing Options__ Choosing Premium Vs. Standard Fixtures and Whether They Are Integrated or Retrofit Options Can Alter Costs</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-unlock-your-content-potential-with-youtubes-movie-maker/"><u>2024 Approved Unlock Your Content Potential with YouTube's Movie Maker</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/discover-how-these-7-innovative-apps-harness-the-power-of-gpt-n4-technology/"><u>Discover How These 7 Innovative Apps Harness the Power of GPT-N4 Technology</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/how-to-initiate-a-collaborative-skype-group-discussion/"><u>How to Initiate a Collaborative Skype Group Discussion</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-mastering-youtube-video-edits-with-finalcut-pro/"><u>In 2024, Mastering YouTube Video Edits with FinalCut Pro</u></a></li>
-<li><a href="https://ai-video-editing.techidaily.com/1713962377994-new-do-you-want-to-add-an-adjustment-layer-to-your-video-for-easier-editing-read-this-article-to-find-out-how-to-efficiently-add-an-adjustment-layer-in-afte/"><u>New Do You Want to Add an Adjustment Layer to Your Video for Easier Editing? Read This Article to Find Out How to Efficiently Add an Adjustment Layer in After Effects for 2024</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-lava-agni-2-5g-device-by-drfone-android/"><u>What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Lava Agni 2 5G Device</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ehind-the-numbers-deciphering-how-youtube-measures-popularity-for-2024/"><u>[New] Behind the Numbers Deciphering How YouTube Measures Popularity for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-get-started-with-youtube-video-ad-building-without-spending/"><u>[New] In 2024, Get Started with YouTube Video Ad Building Without Spending</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/tep-by-step-techniques-for-creating-stellar-valorant-thumbnail-images-for-2024/"><u>[New] Step-by-Step Techniques for Creating Stellar Valorant Thumbnail Images for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-duration-decoded-a-guide-to-editing-youtube-videos/"><u>[Updated] 2024 Approved Duration Decoded A Guide to Editing YouTube Videos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-lens-strategy-for-stellar-video-creations/"><u>[Updated] 2024 Approved Lens Strategy for Stellar Video Creations</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-branding-breakthrough-constructing-logos-for-podcasts-for-2024/"><u>[Updated] Branding Breakthrough Constructing Logos for Podcasts for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-first-foray-into-fashionable-mac-made-videos-for-youtube/"><u>[Updated] In 2024, First Foray Into Fashionable Mac-Made Videos for YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-insight-into-top-10-youtube-mp3-downloader-apps/"><u>[Updated] In 2024, Insight Into Top 10 YouTube MP3 Downloader Apps</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-elite-battle-a-compilation-of-superior-fps-games/"><u>2024 Approved Elite Battle A Compilation of Superior FPS Games</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/authentic-licensing-code-for-winx-hd-video-converter-pro-version-secure-your-software-legally/"><u>Authentic Licensing Code for WinX HD Video Converter Pro Version - Secure Your Software Legally!</u></a></li>
+<li><a href="https://howto.techidaily.com/best-methods-for-oneplus-ace-2-pro-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Best Methods for OnePlus Ace 2 Pro Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/elevating-your-vimeo-clips-a-guide-to-musical-additions-for-2024/"><u>Elevating Your Vimeo Clips A Guide to Musical Additions for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-ultimate-guide-to-free-pptp-vpn-for-beginners-on-nokia-c12-plus-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Free PPTP VPN For Beginners On Nokia C12 Plus | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ring-youtubes-visual-flow-five-budget-friendly-methods/"><u>Mastering YouTube's Visual Flow - Five Budget-Friendly Methods</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/premium-extensions-supercharging-chatgpt-in-vs-code/"><u>Premium Extensions: Supercharging ChatGPT in VS Code</u></a></li>
+<li><a href="https://article-files.techidaily.com/resource-hub-free-high-quality-slide-decks-and-ideas-for-2024/"><u>Resource Hub Free, High-Quality Slide Decks and Ideas for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, A Beginner's Tutorial  How to Insert On-Screen Dialogue in Video Formats\""
-date: 2024-09-06T13:03:14.406Z
-updated: 2024-09-07T13:03:14.406Z
+date: 2024-10-31T16:16:36.281Z
+updated: 2024-11-07T08:00:48.292Z
 tags:
   - ai video
   - ai youtube
@@ -20,12 +20,6 @@ thumbnail: https://thmb.techidaily.com/fbaa6ca73b5c5357b713260d15cd44fa4ef0636a4
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Richard Bennett
 
  Mar 27, 2024• Proven solutions
@@ -46,12 +40,6 @@ There are plenty of Text effects built in Filmora, you can apply motions and ani
 
 ![ Add Text to Video ](https://images.wondershare.com/filmora/article-images/filmora-advanced-text-edit-interface.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 * Open up Filmora and drag a clip into your timeline. Then, go to   **Text/Credit.**
 * Find a style that you like and drag it into your timeline where you want your text to appear. Make sure your text is selected in your timeline and click the   **Advanced Text Editing** icon, which looks like a pen and paper.
 * Insert your own words and drag your text to where you want it on the screen. Adjust the size by dragging the blue squares which surround your text.
@@ -60,12 +48,6 @@ There are plenty of Text effects built in Filmora, you can apply motions and ani
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115913/19272" target="_top" id="2115913">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115913" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115913/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [Check the detailed steps of how to add text to video in Filmora.](https://tools.techidaily.com/wondershare/filmora/download/)
 
 #### 2\.  Use Windows Movie Maker
@@ -87,18 +69,6 @@ For the step by step tutorial of adding text to YouTube video, check [How to Add
 
 ![ Add Text to Video ](https://images.wondershare.com/filmora/article-images/add-text-in-vegas-pro-2.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983549">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 * Launch Sony Vegas Movie Studio.
 * Click the View Menu then select Media Generators.
 * Choose the generator that you want to use.
@@ -116,6 +86,13 @@ For professionals who are looking for a professional way to adding text to video
 * You can also edit your text using the commands that are provided in the Title Menu.
 * Save the text that you have made by clicking the file menu then choose Save As.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049390/7443" target="_top" id="2049390">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049390/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to Add Text to video in YouTube after uploading
 
 Sometimes, we have uploaded a video to YouTube and then want to add subtitles/cc to the video later. The good news is that YouTube is not only a site for videos but is also the place where you can edit your videos in an instant. As you have read, adding text and captions to the uploaded YouTube videos is just a breeze.
@@ -129,17 +106,12 @@ Of course, you can only add and edit texts and captions to the video under your 
 ![ Add Text to Video ](https://images.wondershare.com/filmora/article-images/add-text-youtube-video-editor.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1975555">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 While YouTube may have already created the subtitles automatically for your video with its speech recognition technology. If it does, you will see something like Published: English (Automatic) to the right of your video. If the automatically generated subtitles is not correct, you can edit it to improve the accuracy. Select the line that needs modification to make the edits.
 
 If there is no auto-subtitles, you can choose from 3 ways to add subtitles and closed captions to the video: Upload a file, Transcribe and auto-sync and create new subtitles or CC.
@@ -163,11 +135,12 @@ When you make use of this editor, you cannot shorten the clips for music. Moreov
 From 20th September 2017 users will no longer be able to use the complementary editing suite. Check the best [YouTube video editor alternatives](https://tools.techidaily.com/wondershare/filmora/download/) from this complete guide to find out more YouTube video editor alternatives if you want to add text to video with more features and customization.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135473/26400" target="_top" id="2135473">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135473" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135473/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Top 3 Tips for Adding Text to YouTube Videos
 
 #### 1\. Leave Room
@@ -192,20 +165,24 @@ Try to use text to emphasize only the most important things you say.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -214,4 +191,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-videos.techidaily.com/new-2024-approved-discover-the-secret-to-friends-livestream-participation/"><u>[New] 2024 Approved Discover the Secret to Friend's Livestream Participation</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-defining-your-visual-and-stylistic-identity-high-relevance-for-2024/"><u>[New] Defining Your Visual and Stylistic Identity [High Relevance] for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-thieye-t5e-vs-sjcam-sj6-legend-which-one-should-i-buy/"><u>[New] In 2024, Thieye T5e Vs SJCAM SJ6 Legend Which One Should I Buy</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-android-and-iphone-select-top-tier-mobile-multimedia-tools/"><u>[Updated] 2024 Approved Android & iPhone Select Top-Tier Mobile Multimedia Tools</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-youtube-shorts-success-top-10-steps-to-stand-out/"><u>[Updated] 2024 Approved Youtube Shorts Success - Top 10 Steps to Stand Out</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/conceptualizing-shorter-vids-for-instagram-with-mac/"><u>Conceptualizing Shorter Vids for Instagram with Mac</u></a></li>
+<li><a href="https://win11.techidaily.com/confirming-the-health-of-your-windows-11-setup/"><u>Confirming the Health of Your Windows 11 Setup</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/vering-clarity-in-your-craft-our-choice-of-top-12-vlogging-cameras-for-2024/"><u>Discovering Clarity in Your Craft Our Choice of Top 12 Vlogging Cameras for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ting-video-experience-non-youtube-hubs-explained/"><u>Elevating Video Experience Non-Youtube Hubs Explained</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/step-by-step-tutorial-connecting-and-controlling-your-chromecast-remote/"><u>Step-by-Step Tutorial: Connecting and Controlling Your Chromecast Remote</u></a></li>
+<li><a href="https://win11.techidaily.com/strategies-to-prevent-csgo-launch-issues-on-windows-11/"><u>Strategies to Prevent CS:GO Launch Issues on Windows 11</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/shing-creativity-how-to-make-a-hit-music-reaction-video-on-yotube/"><u>Unleashing Creativity How to Make a Hit Music Reaction Video on YoTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/eling-how-tseries-profits-from-its-popularity-and-subscribers-youtube/"><u>Unraveling How TSeries Profits From Its Popularity and Subscribers (YouTube)</u></a></li>
+</ul></div>
 

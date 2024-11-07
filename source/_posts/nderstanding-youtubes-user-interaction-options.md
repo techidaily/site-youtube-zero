@@ -1,7 +1,7 @@
 ---
 title: "[New] Understanding YouTube's User Interaction Options"
-date: 2024-10-28T16:35:47.439Z
-updated: 2024-11-01T16:37:51.936Z
+date: 2024-11-06T10:19:13.146Z
+updated: 2024-11-07T09:59:41.617Z
 tags:
   - ai video
   - ai youtube
@@ -95,6 +95,13 @@ Selecting this option holds all the comments from all the users, and waits for y
 
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037474/7443" target="_top" id="2037474">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037474" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037474/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Turn on or Turn off Comments for Specific Videos
 
 As you might have noticed, any video that is marked as ‘Made for kids’ doesn’t allow users to post comments. You can exploit this feature to enable or disable commenting on specific YouTube videos as well.
@@ -116,19 +123,19 @@ From under the **Audience** section in the right window of the **Video details**
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902324/19272" target="_top" id="1902324">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902324" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902324/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
@@ -147,13 +154,6 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2148129/17093" target="_top" id="2148129">
-  <img src="//a.impactradius-go.com/display-ad/17093-2148129" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148129/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
 Yes. When you turn off the comments, the existing comments disappear. When you turn them back on, all the previous comments reappear, and become visible to the audience.
@@ -169,10 +169,10 @@ It is easy to understand **how to turn on comments on YouTube**. The best thing 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -196,22 +196,19 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/raphic-portrayal-of-future-social-momentum-for-2024/"><u>[New] Graphic Portrayal of Future Social Momentum for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/op-choice-microphones-for-youtube-creators-for-2024/"><u>[New] Top Choice Microphones for YouTube Creators for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/nlocking-income-streams-from-google-adsense-to-money-matters-for-2024/"><u>[New] Unlocking Income Streams From Google AdSense to Money Matters for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-joy-journeys-a-curated-list-of-the-best-humor-vids-online/"><u>[Updated] 2024 Approved Joy Journeys A Curated List of the Best Humor Vids Online</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-charting-updates-youtube-money-standards-for-2024/"><u>[Updated] Charting Updates YouTube Money Standards for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-discovering-the-ins-and-outs-of-youtube-shorts-capital/"><u>[Updated] Discovering the Ins and Outs of YouTube Shorts Capital</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-essential-tips-for-screen-recording-on-lenovo-devices/"><u>[Updated] Essential Tips for Screen Recording on Lenovo Devices</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-guidelines-for-effective-use-of-cc-licenses/"><u>[Updated] In 2024, Guidelines for Effective Use of CC Licenses</u></a></li>
-<li><a href="https://article-helps.techidaily.com/2024-approved-craft-top-notch-episodes-learn-podcast-editing-secrets-with-garageband/"><u>2024 Approved Craft Top-Notch Episodes Learn Podcast Editing Secrets with GarageBand</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ring-free-music-youtube-video-edition/"><u>Acquiring Free Music YouTube Video Edition</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/ergoheads-secret-weapon-unveiled-a-review-of-its-long-lasting-standing-desk-mat/"><u>Ergohead's Secret Weapon Unveiled: A Review of Its Long-Lasting Standing Desk Mat</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-photos-files-from-realme-gt-5-240w-by-fonelab-android-recover-photos/"><u>How To Restore Missing Photos Files from Realme GT 5 (240W).</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/in-2024-amplify-your-social-impact-with-these-innovative-fb-growth-tactics/"><u>In 2024, Amplify Your Social Impact with These Innovative FB Growth Tactics</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/maintain-your-iphone-13s-fresh-look-with-these-essential-accessories-suggested-by-zdnet/"><u>Maintain Your iPhone 13'S Fresh Look with These Essential Accessories, Suggested by ZDNet</u></a></li>
-<li><a href="https://win-excellent.techidaily.com/make-windows-10-portable-mastering-bootable-drives-with-rufus/"><u>Make Windows 10 Portable: Mastering Bootable Drives with Rufus</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/snicker-sphere-top-grade-no-charge-memes/"><u>Snicker Sphere Top-Grade, No-Charge Memes</u></a></li>
-<li><a href="https://fox-that.techidaily.com/unstuck-from-portrait-essential-tips-to-enable-rotating-your-iphone-display/"><u>Unstuck From Portrait: Essential Tips to Enable Rotating Your iPhone Display</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/he-real-deal-behind-asmr-videos-for-2024/"><u>[New] The Real Deal Behind ASMR Videos for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-transforming-youtube-content-for-igtv-success/"><u>[Updated] 2024 Approved Transforming YouTube Content for IGTV Success</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-expanding-your-reach-a-complete-guide-to-popularizing-youtube-shorts/"><u>[Updated] In 2024, Expanding Your Reach A Complete Guide to Popularizing YouTube Shorts</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-principles-of-crafting-compelling-youtube-introduction-vids/"><u>[Updated] In 2024, Principles of Crafting Compelling YouTube Introduction Vids</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-yt-microphone-match-wallet-friendly-finds-and-favorites/"><u>2024 Approved YT Microphone Match Wallet-Friendly Finds & Favorites</u></a></li>
+<li><a href="https://location-social.techidaily.com/edit-and-send-fake-location-on-telegram-for-your-oppo-a78-in-3-ways-drfone-by-drfone-virtual-android/"><u>Edit and Send Fake Location on Telegram For your Oppo A78 in 3 Ways | Dr.fone</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/get-your-hands-on-the-latest-sound-blaster-audigy-fx-driver-updates-now/"><u>Get Your Hands on the Latest Sound Blaster Audigy FX Driver Updates Now!</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/harvest-haven-top-10-sims-like-stardew-valley-for-2024/"><u>Harvest Haven Top 10 Sims Like Stardew Valley for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-remove-itel-p40-pin-by-drfone-android-unlock-android-unlock/"><u>How to remove Itel P40 PIN</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-turning-off-two-factor-authentication-on-apple-iphone-xs-5-tips-you-must-know-by-drfone-ios/"><u>In 2024, Turning Off Two Factor Authentication On Apple iPhone XS? 5 Tips You Must Know</u></a></li>
+<li><a href="https://win-tricks.techidaily.com/mirillis-privacy-standards-and-user-consent-guidelines/"><u>Mirillis Privacy Standards & User Consent Guidelines</u></a></li>
+<li><a href="https://fox-info.techidaily.com/mythos-makers-mecca-prime-pantheon-seven/"><u>Mythos Makers’ Mecca - Prime Pantheon Seven</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/igital-domains-star-clusters-for-2024/"><u>The Digital Domain's Star Clusters for 2024</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-get-back-lost-videos-from-itel-a60-by-fonelab-android-recover-video/"><u>The way to get back lost videos from Itel A60</u></a></li>
 </ul></div>
 

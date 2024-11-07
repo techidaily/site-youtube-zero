@@ -1,7 +1,7 @@
 ---
 title: "\"Smooth Transition of Short Videos to YouTube - Device Guide\""
-date: 2024-10-29T16:13:14.459Z
-updated: 2024-11-01T16:33:33.503Z
+date: 2024-11-03T16:51:07.282Z
+updated: 2024-11-07T04:21:05.486Z
 tags:
   - ai video
   - ai youtube
@@ -81,6 +81,19 @@ For macOS 10.12 or later
 
 ---
 
+<!-- affiliate ads begin -->
+<span id="1328679">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to Upload Short Video on YouTube Mobile App?
 
 The process of **uploading YouTube Shorts** from the mobile app is fairly simple compared to the method used on a computer. While using the app, you can either upload an existing video or shoot a new one from within the program itself then and there, add music and text, and upload it right away. Both these methods are explained below in detail:
@@ -88,10 +101,16 @@ The process of **uploading YouTube Shorts** from the mobile app is fairly simple
 **Note:** The guidelines for creating and uploading short videos to YouTube remain the same, regardless of the platform or device you use.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993651">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Method 1: Upload an Existing Short Video
@@ -107,19 +126,6 @@ On your Android or iOS smartphone, launch the YouTube app, tap the **+** (**Crea
 #### Step 2: Add Details
 
 ![add details to Shorts video](https://images.wondershare.com/filmora/article-images/add-details-to-youtube-shrots-video.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1155462">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 On the next screen, tap **NEXT**, user the **Music** and **Text** icons at the bottom-left corner to add a background music and caption to the video respectively, and tap **NEXT** from the top-right corner. On the next screen, enter a name for the video in the **Title** field along with the **#Shorts** tag, and tap **Select audience** to choose your preferred audience.
 
@@ -153,6 +159,13 @@ On the **Add details** window, enter a name for the video along with the **#Shor
 
 **[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)**
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Conclusion**
 
 Learning the process of **how to post short videos on YouTube** is fairly simple as long as you have the video recorded in the portrait orientation, it is up to 60 seconds long, and contains the ‘#Shorts’ tag (without quotes) in the title or description. The good thing is, if you don’t have access to the YouTube app on your smartphone, the method for **how to upload short video on YouTube** explained in the first section can be followed while using your desktop computer.
@@ -160,20 +173,13 @@ Learning the process of **how to post short videos on YouTube** is fairly simple
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902324/19272" target="_top" id="1902324">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902324" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902324/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -196,21 +202,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/est-yoga-series-online-stay-active-and-healthy/"><u>[New] Best Yoga Series Online - Stay Active & Healthy</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/gnite-audience-interest-with-effective-strategies-in-video-outros-for-2024/"><u>[New] Ignite Audience Interest with Effective Strategies in Video Outros for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-in-2024-comprehensive-techniques-for-movie-recording-across-os-and-devices/"><u>[New] In 2024, Comprehensive Techniques for Movie Recording Across OS and Devices</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-diverse-iptv-platforms-integration/"><u>[New] In 2024, Diverse IPTV Platforms Integration</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/astering-hashtags-for-six-figure-youtube-growth/"><u>[New] Mastering Hashtags for Six-Figure YouTube Growth</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/he-ultimate-guide-to-easy-content-making-10-basic-youtube-videos/"><u>[New] The Ultimate Guide to Easy Content Making 10 Basic YouTube Videos</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/updated-comprehensive-overview-of-google-docs-voice-input-functionality/"><u>[Updated] Comprehensive Overview of Google Docs Voice Input Functionality</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-financial-fortitude-for-youtubers-beyond-basic-earnings/"><u>[Updated] Financial Fortitude for YouTubers Beyond Basic Earnings</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-correcting-obs-darkness-during-live-streams/"><u>[Updated] In 2024, Correcting OBS Darkness During Live Streams</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-streamlining-video-conferencing-combining-skype-and-zoom-effortlessly/"><u>2024 Approved Streamlining Video Conferencing Combining Skype & Zoom Effortlessly</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-call-history-on-honor-play-7t-by-fonelab-android-recover-call-logs/"><u>How to restore wiped call history on Honor Play 7T?</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/in-2024-capturing-tiktok-videos-saving-on-modern-smartphones/"><u>In 2024, Capturing TikTok Videos Saving on Modern Smartphones</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/in-2024-top-11-premium-mobile-apps-for-enhancing-sound-quality/"><u>In 2024, Top 11 Premium Mobile Apps for Enhancing Sound Quality</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-unmatched-convert-experience-premier-online-ytvideo-tools/"><u>In 2024, Unmatched Convert Experience Premier Online YTVideo Tools</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ms-companion-finding-premium-club-vids-for-2024/"><u>Rhythm's Companion Finding Premium Club Vids for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/ultimate-guide-to-kensun-portable-air-compressor-durability-and-mobility-tested/"><u>Ultimate Guide to Kensun Portable Air Compressor: Durability and Mobility Tested!</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-in-depth-analysis-of-excellent-zoom-screen-recorders/"><u>[New] 2024 Approved In-Depth Analysis of Excellent Zoom Screen Recorders</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/mplifying-audio-and-visual-quality-in-your-youtube-videos-for-2024/"><u>[New] Amplifying Audio and Visual Quality in Your YouTube Videos for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-complete-guide-to-ios-snapshots-and-more-for-2024/"><u>[New] Complete Guide to iOS Snapshots and More for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ow-to-craft-standout-videos-mastery-of-youtube-thumbnail-dimensions-for-2024/"><u>[New] How to Craft Standout Videos Mastery of YouTube Thumbnail Dimensions for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nderstanding-online-video-platforms-vimeo-and-youtube/"><u>[New] Understanding Online Video Platforms Vimeo & YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-behind-the-scenes-what-does-an-unlisted-video-mean/"><u>[Updated] 2024 Approved Behind the Scenes What Does an 'Unlisted' Video Mean?</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-cultivating-the-culture-of-creativity-within-youtube-shorts/"><u>[Updated] 2024 Approved Cultivating the Culture of Creativity Within YouTube Shorts</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-a-fresh-take-on-frigidity-crafting-inviting-backdrops-for-2024/"><u>[Updated] A Fresh Take on Frigidity Crafting Inviting Backdrops for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-best-vocal-modification-software-for-content-creators/"><u>[Updated] Best Vocal Modification Software for Content Creators</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-launching-your-sports-network-from-a-mac-desktop/"><u>[Updated] In 2024, Launching Your Sports Network From a Mac Desktop</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-unobstructed-movie-magic-erasing-youtube-borders/"><u>2024 Approved Unobstructed Movie Magic Erasing YouTube Borders</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/bizarre-vertical-reversal-in-insta-videos-a-glitch-in-2024/"><u>Bizarre Vertical Reversal in Insta Videos – A Glitch, In 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2528871-9780811742238-haunted-presidents/"><u>Haunted Presidents | Free Book</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/masterful-presentations-in-google-meet-with-new-backdrops/"><u>Masterful Presentations in Google Meet with New Backdrops</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/mastering-fixes-for-power-state-driver-issues-in-windows-devices/"><u>Mastering Fixes for Power State Driver Issues in Windows Devices</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ing-peak-youtube-potential-through-strategic-creator-studio-usage/"><u>Reaching Peak YouTube Potential Through Strategic Creator Studio Usage</u></a></li>
+<li><a href="https://article-files.techidaily.com/review-how-toolwiz-stacks-up-in-photo-app-landscape/"><u>Review How Toolwiz Stacks Up in Photo App Landscape</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210106914-9781608687138-the-clear-light/"><u>The Clear Light | Free Book</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/unbeatable-deal-alert-hp-victus-15-laptop-price-slashed-to-530-by-best-buy-exclusive/"><u>Unbeatable Deal Alert: HP Victus 15 Laptop Price Slashed to $530 by Best Buy Exclusive!</u></a></li>
 </ul></div>
 

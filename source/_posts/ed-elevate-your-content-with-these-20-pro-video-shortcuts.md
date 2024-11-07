@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Elevate Your Content With These 20 Pro Video Shortcuts"
-date: 2024-10-31T16:49:40.157Z
-updated: 2024-11-01T16:40:09.522Z
+date: 2024-11-05T20:27:34.012Z
+updated: 2024-11-06T16:53:22.504Z
 tags:
   - ai video
   - ai youtube
@@ -86,13 +86,6 @@ This category talks about managing the video captions using the shortcut keys:
 | '-' (Minus Key)    | Reduce the font size of the captions (Minus key on the Numpad isn't supported)                                       |
 | '+' (Plus Key)     | Increase the font size of the captions (Plus key on the Numpad isn't supported)                                      |
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Category 5: Managing the Audio Video
 
 This category shows the shortcut keys to manage audio for a YouTube video:
@@ -102,13 +95,6 @@ This category shows the shortcut keys to manage audio for a YouTube video:
 | 'M'               | Mute YouTube video    |
 | '↑'               | Increase volume by 5% |
 | '↓'               | Decrease volume by 5% |
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037334/7443" target="_top" id="2037334">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037334" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037334/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Category 6: Switching Between Screen Modes
 
@@ -123,6 +109,13 @@ The shortcut keys given in this table enable you to switch between different scr
 Double press F/T/I on the keyboard will exit the full-screen/theater model/independent mode accordingly.
 
 If you are watching video on YouTube mobile app, you can swipe up the video slightly to enter the full screen mode, and swipe down the video slightly to exit the full screen.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087239/19272" target="_top" id="2087239">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087239" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087239/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Category 7: Viewing 360o/VR Videos
 
@@ -149,10 +142,10 @@ So, when you press the Shift+? on YouTube, you will see a full list of shortcuts
 ![YouTube Shortcut List](https://images.wondershare.com/filmora/article-images/youtube-keyboard-shortcuts-list.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151859/7443" target="_top" id="2151859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151859" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151859/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Conclusion**
@@ -163,13 +156,20 @@ As one of the most popular video editing software among YouTubers, Filmora provi
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -193,22 +193,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-tips.techidaily.com/new-birthstones-and-emojis-tailoring-your-whatsapp-profile-by-sign/"><u>[New] Birthstones and Emojis Tailoring Your WhatsApp Profile by Sign</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-going-against-the-tide-of-tradition-innovative-techniques-for-yt-rewinds-for-2024/"><u>[New] Going Against the Tide of Tradition Innovative Techniques for YT Rewinds for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-elevate-your-edits-the-beginners-insider-look-at-editing-techniques/"><u>[Updated] 2024 Approved Elevate Your Edits The Beginner's Insider Look at Editing Techniques</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-unlocking-composite-power-with-blend-mode-knowledge/"><u>[Updated] 2024 Approved Unlocking Composite Power with Blend Mode Knowledge</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-from-idea-to-impact-advanced-editing-techniques-for-youtube-creators-for-2024/"><u>[Updated] From Idea to Impact Advanced Editing Techniques for YouTube Creators for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-echoing-ethos-with-closing-credits/"><u>2024 Approved Echoing Ethos with Closing Credits</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-navigating-youtube-setup-a-newbies-complete-guidebook/"><u>2024 Approved Navigating YouTube Setup A Newbie's Complete Guidebook</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/editing-in-4k-is-it-possible-with-imovie-and-steps-for-importing-high-resolution-footage/"><u>Editing in 4K: Is It Possible with iMovie and Steps for Importing High-Resolution Footage</u></a></li>
-<li><a href="https://techidaily.com/how-to-reset-infinix-smart-7-hd-without-the-home-button-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Infinix Smart 7 HD Without the Home Button | Dr.fone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/c-creativity-unleashed-exploring-6-top-tier-symbol-sources-for-2024/"><u>Iconic Creativity Unleashed Exploring 6 Top-Tier Symbol Sources for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-navigating-youtube-for-ultimate-virtual-reality-adventures/"><u>In 2024, Navigating YouTube for Ultimate Virtual Reality Adventures</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-pc-and-macs-premier-screen-capture-tools-ranked/"><u>In 2024, PC & Mac's Premier Screen Capture Tools Ranked</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-profit-mastery-on-youtube-a-cross-device-guide/"><u>In 2024, Profit Mastery on YouTube A Cross-Device Guide</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/mastering-airborne-photography-an-in-depth-review-of-the-dji-mavic-3/"><u>Mastering Airborne Photography: An In-Depth Review of the DJI Mavic 3</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/sion-cuts-at-a-touch-select-the-best-short-form-editors/"><u>Precision Cuts at a Touch Select the Best Short Form Editors</u></a></li>
-<li><a href="https://common-error.techidaily.com/resolving-current-unavailability-issues-with-microsofts-windows-smartscreen-protection/"><u>Resolving Current Unavailability Issues with Microsoft's Windows SmartScreen Protection</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/ultimate-guide-to-add-srt-to-mp4-2024/"><u>Ultimate Guide to Add SRT to MP4 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-a-journey-beyond-top-10-global-explorer-channels/"><u>[Updated] 2024 Approved A Journey Beyond Top 10 Global Explorer Channels</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-inside-look-analyzing-androids-photoshop-substitute-lightroom/"><u>[Updated] Inside Look Analyzing Android's Photoshop Substitute, Lightroom</u></a></li>
+<li><a href="https://win11.techidaily.com/correcting-error-0x80073cf3-in-win10win11s-marketplace/"><u>Correcting Error 0X80073CF3 in Win10/Win11's Marketplace</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/smanship-in-marvellous-marvel-creation-for-2024/"><u>Craftsmanship in Marvellous Marvel Creation for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/elevate-command-execution-with-advanced-windows-tool/"><u>Elevate Command Execution with Advanced Windows Tool</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-editors-dream-machine-top-portable-video-edits-tools/"><u>In 2024, Editor's Dream Machine Top Portable Video Edits Tools</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-rectified-hidden-status-of-shorts/"><u>In 2024, Rectified Hidden Status of Shorts</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ify-tv-broadcasts-introducing-youtube-content-loops-for-2024/"><u>Simplify TV Broadcasts Introducing YouTube Content Loops for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/step-by-step-guide-repairing-a-nonfunctional-steelseries-arctis-7-mic/"><u>Step-by-Step Guide: Repairing a Nonfunctional SteelSeries Arctis 7 Mic</u></a></li>
 </ul></div>
 
