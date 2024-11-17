@@ -1,7 +1,7 @@
 ---
 title: "[New] YouTube Introduction Design Made Simple and Inexpensive"
-date: 2024-09-02T03:04:18.301Z
-updated: 2024-09-03T03:04:18.301Z
+date: 2024-11-11T16:46:05.083Z
+updated: 2024-11-17T16:50:10.038Z
 tags:
   - ai video
   - ai youtube
@@ -77,6 +77,13 @@ You can create a simple intro card in **Filmora**.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -112,20 +119,24 @@ Some creators will leave their end cards at that and play music overtop, but it 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886019/19272" target="_top" id="1886019">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886019/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -134,8 +145,24 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-complete-critique-gopro-hero4-silver-sensor/"><u>[New] 2024 Approved Complete Critique GoPro HERO4 Silver Sensor</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-explore-the-world-through-ultra-hd-with-leading-mirrorless-cams/"><u>[New] 2024 Approved Explore the World Through Ultra-HD with Leading Mirrorless Cams</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-mastering-facebook-bio-writing-essential-tactics-for-success/"><u>[New] 2024 Approved Mastering Facebook Bio Writing Essential Tactics for Success</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/avigating-through-numbers-a-full-guide-for-measuring-youtube-success-for-2024/"><u>[New] Navigating Through Numbers A Full Guide for Measuring YouTube Success for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/roubleshooting-why-are-your-shorts-thumbnails-hiding/"><u>[New] Troubleshooting Why Are Your Shorts' Thumbnails Hiding?</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-a-symphony-of-selection-assembling-your-best-music-choices-on-youtube/"><u>[Updated] A Symphony of Selection Assembling Your Best Music Choices on YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-best-selection-turn-your-videos-into-text-fast-for-2024/"><u>[Updated] Best Selection Turn Your Videos Into Text Fast for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-covert-content-creation-how-to-invisibly-alter-videos/"><u>[Updated] Covert Content Creation How to Invisibly Alter Videos</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-econo-audio-amps-for-youtubers-with-limited-dough-for-2024/"><u>[Updated] Econo Audio Amps for Youtubers with Limited Dough for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-effortless-repetition-replay-your-youtube-videos-via-tv-connection/"><u>[Updated] In 2024, Effortless Repetition Replay Your YouTube Videos via TV Connection</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/3-ways-to-erase-apple-iphone-se-2020-when-its-locked-within-seconds-by-drfone-ios/"><u>3 Ways to Erase Apple iPhone SE (2020) When Its Locked Within Seconds</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ting-the-flow-of-digital-storytelling-through-youtube-fusion-for-2024/"><u>Directing the Flow of Digital Storytelling Through Youtube Fusion for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-apple-iphone-13-mini-location-on-skout-drfone-by-drfone-virtual-ios/"><u>How to Change Apple iPhone 13 mini Location on Skout | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-climbing-the-youtube-search-rankings-key-seo-strategies-unveiled/"><u>In 2024, Climbing the YouTube Search Rankings Key SEO Strategies Unveiled</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/learn-to-keep-unwanted-suggestions-away-from-ig/"><u>Learn to Keep Unwanted Suggestions Away From IG</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-no-cost-4k-video-conversion-top-picks/"><u>New No-Cost 4K Video Conversion Top Picks</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/form-videos-with-these-premium-free-sound-options/"><u>Transform Videos with These Premium, Free Sound Options</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

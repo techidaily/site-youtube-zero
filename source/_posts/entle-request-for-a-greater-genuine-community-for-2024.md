@@ -1,7 +1,7 @@
 ---
 title: "[New] Gentle Request for a Greater, Genuine Community for 2024"
-date: 2024-10-30T16:40:00.956Z
-updated: 2024-11-07T00:24:58.782Z
+date: 2024-11-12T16:36:29.343Z
+updated: 2024-11-17T16:51:03.882Z
 tags:
   - ai video
   - ai youtube
@@ -50,10 +50,10 @@ It has become the norm for YouTubers to ask viewers to subscribe in their sign-o
 That’s great. At the end of a video is a good place to ask people to subscribe, but is it the best and only place you should be reminding them? If you take a peek at your analytics and you might find that most of your viewers aren’t watching to the ends of your videos (people have short attention spans).
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## A More Effective Way of Asking For Subscribers
@@ -66,19 +66,6 @@ As you can see, the video starts with a ‘flash forward’ to one of the twins 
 
 ![ how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-by-hook.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1702748">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### Step 2: Get to The Point Quickly
 
 Shortly after, while still in the first 30 seconds of the video, Collins gets right to the point and introduces the Twin Telepathy Challenge promised in the title of the video. The hook with the heater catching fire is effective, but it’s not essential. It happens to suit Collins’ style, and it happens to have happened. Getting to the main point of the video quickly – usually in the first 15 seconds, not the first 30 (it’s in the first 15 seconds that most viewers click away) – is vital. People click on videos for a reason, and if they don’t see a sign of that payoff quickly they’ll leave.
@@ -89,14 +76,14 @@ It’s only after hooking the viewer in and reiterating the promise of the title
 
 ![ how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-in-perfect-moment.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Collins Key has been one of the fastest-growing channels on YouTube. He does not implement this strategy in every video, but it’s not a stretch to think it’s had something to do with his success. Instead of simply asking you to subscribe at the end of the video, he creates a part of the video early on – before people who don’t watch until the end will have clicked away – where you feel as if you’re ‘supposed to’ subscribe.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Polish Your YouTube Videos with Filmora
 
@@ -108,15 +95,22 @@ Here is a tutorial video about how to use Filmora to edit your YouTube video. Ch
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 That's how you can get more YouTube subscribers by asking the right way. You may follow the instructions and try it yourself. Do not forget to [track your YouTube subscribers in real time](https://tools.techidaily.com/wondershare/filmora/download/) to make necessary adjustments.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902309/19272" target="_top" id="1902309">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1885928/19272" target="_top" id="1885928">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885928" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902309/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885928/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -140,17 +134,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-free-banner-templates-and-makers-for-youtube/"><u>[New] 2024 Approved Free Banner Templates & Makers for YouTube</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-quick-captioning-method-for-enhanced-youtube-video-quality/"><u>[New] 2024 Approved Quick Captioning Method for Enhanced YouTube Video Quality</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/new-from-good-to-great-transformative-tactics-with-studio/"><u>[New] From Good to Great Transformative Tactics with Studio</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-top-free-editors-androids-ultimate-choice/"><u>[New] Top Free Editors Android's Ultimate Choice</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-influence-unleashed-instas-most-stellar-personalities-ranked/"><u>[Updated] Influence Unleashed Insta’s Most Stellar Personalities Ranked</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/-visibility-with-customized-channel-names/"><u>Boost Visibility with Customized Channel Names!</u></a></li>
-<li><a href="https://discover-cloud.techidaily.com/comprehensive-qanda-on-utilizing-the-aomei-system-backup-and-recovery-software-for-your-needs/"><u>Comprehensive Q&A on Utilizing the AOMEI System Backup & Recovery Software for Your Needs</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-the-metaverse-multiverse-dichotomy-explained/"><u>In 2024, The Metaverse-Multiverse Dichotomy Explained</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/-phone-video-and-image-capturing-best-apps-for-iphones-and-android-for-2024/"><u>Prime Phone Video & Image Capturing Best Apps for iPhones and Android for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/pubg-2024-troubleshooting-a-comprehensive-guide-on-fixing-startup-issues/"><u>PUBG 2024 Troubleshooting: A Comprehensive Guide on Fixing Startup Issues</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/satirical-space-the-ultimate-guide-to-20plus-humorous-metaverse-imagery/"><u>Satirical Space The Ultimate Guide to 20+ Humorous Metaverse Imagery</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/the-insiders-guide-to-watermark-free-images-for-2024/"><u>The Insider's Guide to Watermark-Free Images for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-asus-proarts-pa-329q-a-comprehensive-examination-of-high-end-monitoring-for-2024/"><u>[New] Asus ProArt's PA 329Q A Comprehensive Examination of High-End Monitoring for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-efficient-guide-image-conversion-to-professional-youtube-thumbnails-for-2024/"><u>[New] Efficient Guide Image Conversion to Professional YouTube Thumbnails for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-unleash-your-brands-potential-on-igtv-with-these-top-10-tactics/"><u>[New] In 2024, Unleash Your Brand’s Potential on IGTV with These Top 10 Tactics</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/pen-source-templates-transform-your-youtube-channel/"><u>[New] Open-Source Templates Transform Your YouTube Channel</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ee-the-world-through-different-lenses-3-strategies-for-successful-pov-reactions-on-youtube-for-2024/"><u>[New] See the World Through Different Lenses 3 Strategies for Successful POV Reactions on YouTube for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-the-ultimate-guide-to-6-best-nft-services-for-creative-geniuses-for-2024/"><u>[New] The Ultimate Guide to 6 Best NFT Services for Creative Geniuses for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-the-essential-differences-between-youtube-and-dailymention/"><u>[Updated] 2024 Approved The Essential Differences Between YouTube and DailyMention</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-frameworks-producing-uplifting-life-journey-broadcasts/"><u>[Updated] Frameworks Producing Uplifting Life Journey Broadcasts</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-how-to-turn-on-av1-settings-on-youtube-and-why-you-should-do-it-for-2024/"><u>[Updated] How to Turn on AV1 Settings on YouTube and Why You Should Do It for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-fujitsn-scansnap-ix1600-evaluation-the-ultimate-workstation-document-scanner/"><u>Comprehensive Fujitsn ScanSnap iX1600 Evaluation: The Ultimate Workstation Document Scanner</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-change-your-apple-id-on-apple-iphone-13-with-or-without-password-drfone-by-drfone-ios/"><u>How To Change Your Apple ID on Apple iPhone 13 With or Without Password | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-nokia-g310-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>How to Track Nokia G310 Location without Installing Software? | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/how-to-upgrade-your-hp-scanjet-driver-for-windows-11-8-or-7-download-instructions-inside/"><u>How to Upgrade Your HP Scanjet Driver for Windows 11, 8 or 7 – Download Instructions Inside</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-bite-sized-narrative-notation/"><u>In 2024, Bite-Sized Narrative Notation</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/rt-of-condensation-editing-youtube-video-durations-for-2024/"><u>The Art of Condensation Editing YouTube Video Durations for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/reme-de-la-creme-leading-makeup-personalities-for-2024/"><u>The Crème De La Crème Leading Makeup Personalities for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nail-scaling-techniques-for-youtube-for-2024/"><u>Thumbnail Scaling Techniques for YouTube for 2024</u></a></li>
 </ul></div>
 

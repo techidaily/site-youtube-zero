@@ -1,7 +1,7 @@
 ---
 title: "[New] Filtering Through YouTube Talks"
-date: 2024-10-31T05:04:46.156Z
-updated: 2024-11-06T20:03:19.328Z
+date: 2024-11-12T17:02:26.930Z
+updated: 2024-11-17T16:41:10.980Z
 tags:
   - ai video
   - ai youtube
@@ -67,10 +67,16 @@ Besides the comment search feature, the YouTube Studio also has some in-built se
 You can combine these additional filters to narrow your comments search for YouTube.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982461">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: Using YCS – YouTube Comment Search Extension
@@ -86,16 +92,10 @@ You can use the YouTube Comment Search browser extension supported by Google Chr
 ![ YouTube Comment Search Extension](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="864" height="1296" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: Using Comments Search for YouTube Extension
@@ -143,16 +143,16 @@ You can see all the comments you have posted in the Comment History in a few qui
 You can also access the Comments History page directly from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
 
 <!-- affiliate ads begin -->
-<span id="1374820">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
+<span id="1983549">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 5: How to Find Out Who Posts the Most Comments on Your YouTube Videos?
@@ -179,10 +179,10 @@ Find feedback or questions. Report offensive comments. If you are a regular YouT
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082521/7443" target="_top" id="2082521">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082521" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082521/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -206,14 +206,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-expert-techniques-for-uploading-youtubes-on-dailymotion/"><u>[New] 2024 Approved Expert Techniques for Uploading YouTubes on Dailymotion</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-framefixer-editor/"><u>[New] 2024 Approved FrameFixer Editor</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-journey-of-a-movie-maker-youtube-tutorials-and-more/"><u>[New] 2024 Approved Journey of a Movie Maker YouTube Tutorials & More</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-in-2024-the-ultimate-list-of-coolest-mc-homes-designed/"><u>[New] In 2024, The Ultimate List of Coolest MC Homes Designed</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-transform-your-recordings-expert-tips-for-zoom-changer/"><u>[New] Transform Your Recordings Expert Tips for Zoom Changer</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/enhancing-business-correspondence-skills-through-chatgpt-expertise/"><u>Enhancing Business Correspondence Skills Through ChatGPT Expertise</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/live-methods-for-quieter-track-output-for-2024/"><u>Live Methods for Quieter Track Output for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/-up-your-youtube-audience-by-the-hundredfold-for-2024/"><u>Scale Up Your YouTube Audience by the Hundredfold for 2024</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/success-story-overcoming-graphics-module-failures-easily/"><u>Success Story: Overcoming Graphics Module Failures Easily</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/81188891-new-warranty-and-lifespan-higher-quality-led-systems-may-come-with-a-higher-upfront-price-but-can-offer-longer-lifespans-and-better-performance-which-should/"><u>[New] __Warranty and Lifespan Higher Quality LED Systems May Come with a Higher Upfront Price but Can Offer Longer Lifespans and Better Performance, Which Should Be Considered in the Overall Cost Evaluation.</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/est-sound-transforming-apps-for-youtube-vloggers/"><u>[New] Best Sound Transforming Apps for YouTube Vloggers</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ptimal-video-posting-frequency-for-increased-youtube-popularity/"><u>[New] Optimal Video Posting Frequency for Increased YouTube Popularity</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-dazzle-your-shots-iphone-lighting-advice/"><u>[Updated] 2024 Approved Dazzle Your Shots IPhone Lighting Advice</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-how-to-change-youtube-playback-speed-to-speed-up-or-slow-down-video/"><u>[Updated] 2024 Approved How to Change YouTube Playback Speed to Speed Up or Slow Down Video</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-mastering-audio-transitions-in-premiere-pro/"><u>[Updated] 2024 Approved Mastering Audio Transitions in Premiere Pro</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-vidvault-secrets-how-to-reverse-iphone-media/"><u>[Updated] In 2024, Vidvault Secrets How to Reverse iPhone Media</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-top-ranked-animation-set-for-typography/"><u>[Updated] Top-Ranked Animation Set for Typography</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-ideal-additions-to-maximize-gopro-potential/"><u>2024 Approved Ideal Additions to Maximize GoPro Potential</u></a></li>
+<li><a href="https://games-able.techidaily.com/7-tips-for-preventing-big-picture-crashes/"><u>7 Tips for Preventing Big Picture Crashes</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-enhance-engagement-with-effective-yt-summary-writing/"><u>In 2024, Enhance Engagement with Effective YT Summary Writing</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-full-guide-to-bypass-xiaomi-redmi-12-frp-by-drfone-android/"><u>In 2024, Full Guide to Bypass Xiaomi Redmi 12 FRP</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-instrument-innovations-see-the-top-15-music-tech-tutorials-on-youtube/"><u>In 2024, Instrument Innovations See the Top 15 Music Tech Tutorials on YouTube</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-secrets-to-effective-targeted-tweets/"><u>In 2024, Secrets to Effective Targeted Tweets</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/e-mastery-identifying-the-best-apps-for-youtube-shorts-for-2024/"><u>Mobile Mastery Identifying the Best Apps for Youtube Shorts for 2024</u></a></li>
+<li><a href="https://driver-download.techidaily.com/razer-gaming-drivers-for-all-windows-platforms-windows-10-8-7-xp-and-vista-download-instructions/"><u>Razer Gaming Drivers for All Windows Platforms (Windows 10, 8, 7, XP, and Vista): Download Instructions</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/e-approach-verifying-your-youtube-login-details-for-2024/"><u>Secure Approach Verifying Your YouTube Login Details for 2024</u></a></li>
 </ul></div>
 

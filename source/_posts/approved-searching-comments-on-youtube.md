@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Searching Comments on YouTube\""
-date: 2024-08-28T13:09:35.668Z
-updated: 2024-08-29T13:09:35.668Z
+date: 2024-11-10T16:27:27.885Z
+updated: 2024-11-17T16:28:56.129Z
 tags:
   - ai video
   - ai youtube
@@ -74,8 +74,12 @@ You can use the YouTube Comment Search browser extension supported by Google Chr
 ![ YouTube Comment Search Extension](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
+  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 3: Using Comments Search for YouTube Extension
 
 If you are looking for an easy method to search YouTube comments, you can use the Comments Search for YouTube extension. Google Chrome supports this extension that allows you to search comments on YouTube without leaving the website.
@@ -103,17 +107,18 @@ This mode allows you to enter special commands to carry out an advanced search. 
 3. ‘:creator’ to get comments made by the creator
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 4: How Do You Search Comments You Have Posted on YouTube?
 
 Did you post a comment on your favorite celebrity’s video? Do you think it may be embarrassing and want to delete it now but cannot find it now amidst so many comments? It is where you can make use of YouTube’s Comment History feature.
 
 YouTube has now added this feature which you can see all the comments you ever posted on YouTube in one place.
 
-<!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### How to Use the Comment History feature to Search Comments?
 
 You can see all the comments you have posted in the Comment History in a few quick steps.
@@ -125,13 +130,14 @@ You can see all the comments you have posted in the Comment History in a few qui
 ![ YouTube History Comment](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 You can also access the Comments History page directly from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 5: How to Find Out Who Posts the Most Comments on Your YouTube Videos?
 
 If you are a creator on YouTube, the comments section becomes very important. Subscribers comment words of praise, encouragement, and feedback which help you grow. You may want to keep track of your most loyal followers. The best way to know that is by knowing who comments most on your videos.
@@ -156,23 +162,23 @@ Find feedback or questions. Report offensive comments. If you are a regular YouT
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
-<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
+<a href="https://imp.i357552.net/c/5597632/1030380/11832" target="_top" id="1030380">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030380" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030380/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -181,4 +187,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/rafting-revenue-in-20-second-chunks-youtube-shorts-magic-for-2024/"><u>[New] Crafting Revenue in 20-Second Chunks YouTube Shorts Magic for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-elevate-your-content-with-advanced-vsco-techniques-for-2024/"><u>[New] Elevate Your Content with Advanced VSCO Techniques for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/asterful-multiclip-management-on-youtube-for-2024/"><u>[New] Masterful Multiclip Management on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-restore-true-identity-on-fb-messages/"><u>[Updated] 2024 Approved Restore True Identity on FB Messages</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-digital-warriors-youtubes-top-ten-women-for-2024/"><u>[Updated] Digital Warriors YouTube’s #Top Ten Women for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-enhancing-content-strategy-with-targeted-tagging-for-2024/"><u>[Updated] Enhancing Content Strategy with Targeted Tagging for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-frame-by-frame-building-a-filmmaking-foundation-on-youtube/"><u>[Updated] In 2024, Frame by Frame Building a Filmmaking Foundation on YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-monetizing-with-youtube-avg-revenue-from-an-ad/"><u>[Updated] In 2024, Monetizing with Youtube Avg Revenue From An Ad?</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-symphony-of-sights-picture-plus-sound-videography-for-2024/"><u>[Updated] Symphony of Sights Picture + Sound Videography for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-compre-web-resources-for-effortless-youtube-template-access/"><u>2024 Approved Compre-Web Resources for Effortless YouTube Template Access</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-imgur-meme-generator/"><u>2024 Approved Imgur Meme Generator</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-honor-90-lite-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Honor 90 Lite Phones with/without a PC</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-open-your-apple-iphone-8-plus-without-a-home-button-drfone-by-drfone-ios/"><u>How To Open Your Apple iPhone 8 Plus Without a Home Button | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-13-pro-max-to-others-android-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 13 Pro Max To Others Android Devices? | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/forming-your-film-with-advanced-color-separation-for-2024/"><u>Transforming Your Film with Advanced Color Separation for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/unlocking-youtube-subtitles-srt-3-steps-guide/"><u>Unlocking YouTube Subtitles (SRT) - 3 Steps Guide</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/warehouse-in-the-sky-top-pricing-on-demand-for-2024/"><u>Warehouse in the Sky Top Pricing on Demand for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  The Ultimate Guide to Self-Supported YouTube Earnings Strategies\""
-date: 2024-08-28T13:06:32.783Z
-updated: 2024-08-29T13:06:32.783Z
+date: 2024-11-13T16:09:33.165Z
+updated: 2024-11-17T16:28:43.647Z
 tags:
   - ai video
   - ai youtube
@@ -41,8 +41,12 @@ Over thousands of hours of content are uploaded on YouTube every day and people 
 [YPP enables YouTubers to make money from an advertisement](https://www.filmora.io/community-blog/youtube-monetization---the-ultimate-guide-to-ad-revenue-422.html)that appears before or during their videos.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1934258/19272" target="_top" id="1934258">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934258" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934258/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **How Much Money Can YouTubers Make from Ads?**
 
 The answer to this question varies depending on the channel and the audience, as YouTubers don’t make money for views but rather from how often people engage with the ads. If a viewer watches more than 30 seconds of the ad or clicks it, then the YouTuber will make money.
@@ -71,10 +75,6 @@ For new YouTubers, it is getting harder and harder to get to that point where th
 
 That is why it is essential to have alternative ways to make money on YouTube, and not rely on the ads shown on your videos. So, without further ado, here are 4 other ways to make money on YouTube:
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## **1\. Sell Your Product or Service:**
 
 YouTube is one of the most effective means of marketing and selling your products and services if you are able to use it effectively and drive people to click and buy.
@@ -96,8 +96,12 @@ Here are some examples of products and services you can offer:
  ![YouTuber Jake Paul ](https://images.wondershare.com/filmora/article-images/jack-paul1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 _YouTuber, Jake Paul uses eCommerce platform_ [_Fanjoy_](https://fanjoy.co/collections/)_to sell his merch._
 
 #### **Services:**
@@ -112,9 +116,6 @@ _YouTuber, Jake Paul uses eCommerce platform_ [_Fanjoy_](https://fanjoy.co/colle
 
  ![YouTuber Sunny Lenarduzzi](https://images.wondershare.com/filmora/article-images/sunny-lenarduzzi2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 _YouTuber and entrepreneur, Sunny Lenarduzzi uses YouTube as a platform to get clients for her consulting business._
 
 #### **How to Sell a Product or Service on YouTube**
@@ -152,8 +153,12 @@ The video is over 9 minutes long and not once does he tell his audience to buy a
 ![youtube card details](https://images.wondershare.com/filmora/article-images/youtube-card-details6.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1918679/19272" target="_top" id="1918679">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918679/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 You can add one or multiple cards to direct viewers to your website or to another related video.
 
  **Call to action button:**
@@ -172,9 +177,6 @@ Lilly Singh did not start a YouTube channel to sell her book, [_How to Be a Baws
 
 For example, [Remi Cruz](https://www.youtube.com/watch?v=Uke6eXzgjQQ), a YouTuber with over 2.2 million subscribers. Remi created a beauty brand and DIY face mask, [Honey Pop](https://shophoneypop.com/), which could only have happened after taking the time to understand her supportive audience.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **2\. Affiliate Marketing:**
 
 Businesses know that there are more eyes watching YouTube than ever — behind Google, YouTube is the second most popular place for people researching what to buy — and influencers and reviews are an effective method of getting sales. You can leverage that by participating in affiliate marketing as a YouTuber.
@@ -225,6 +227,13 @@ Here is the list of 4 popular affiliate marketing networks:
 
 You can also partner with brands directly as many of them, such as [Sephora](https://www.sephora.com/affiliates)and [Canon](https://shop.usa.canon.com/shop/en/catalog/affiliate-program), will have their own affiliate program.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2052063/7443" target="_top" id="2052063">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052063" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052063/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **3\. Brand Deal or Sponsorships:**
 
 Selling out, that is often the thought when we hear creators getting brand deals and sponsorships, but that stigma is unfounded if the brand and the content are properly aligned. As your channel grows, you will begin to recognize brands that match your values — and the values of your viewers — and those that don’t.
@@ -246,8 +255,12 @@ If you want to get a brand deal and become an influencer on YouTube, then you wi
 ![famebit brand](https://images.wondershare.com/filmora/article-images/famebit-brand10.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 #### **How Influencer Marketing Platforms Like Famebit Works**
 
 When you sign up for Famebit or other influencer marketing platforms you have an opportunity to get in front of brands who are seeking influencers to share their product or service.
@@ -264,13 +277,14 @@ Steps to getting a brand deal:
  Unlike celebrity marketing, YouTube creators have shown brands over the years that they are inventive and clever with how they can present the brand to the audience to drive the best results. This type of independence is what makes YouTube influencer marketing special.
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ##  
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **4\. Crowdfunding:**
 
 If you are creating valuable content and have a loyal following, you can start thinking about crowdfunding. It doesn’t take stardom to start asking for donations, pledge, or support from your fans. There is a demand for quality content and if you are creating something of value, even on a free service like YouTube, people will happily pay to support it.
@@ -305,6 +319,13 @@ If you have a pie in the sky goal, you aren’t going to fully leverage the mess
 
 When it comes to crowdfunding for YouTubers, [Patreon](https://www.patreon.com/)is the platform of choice. While other platforms such as Kickstarter or GoFundMe are focused on entrepreneurial pursuits, large projects, or charitable causes, Patreon is designed to support creatives and reward and incentivize donors.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **Key Takeaways:**
 
 There are many ways to make money off of YouTube, I encourage you to try a few of these different strategies and see how they perform and which one suits your channel and your audience the best.
@@ -324,14 +345,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -340,4 +358,19 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-swiftrecordingtool-with-narrator-functionality/"><u>[New] SwiftRecordingTool with Narrator Functionality</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/he-art-of-audience-engagement-emulate-your-idols-online-for-2024/"><u>[New] The Art of Audience Engagement Emulate Your Idols Online for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-twisting-the-norm-your-instagram-video-transformation/"><u>[Updated] 2024 Approved Twisting the Norm Your Instagram Video Transformation</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-capturing-excellence-the-best-camera-lenses/"><u>[Updated] Capturing Excellence The Best Camera Lenses</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-mastering-background-replacement-get-cost-free-lessons-in-green-screen-effects-from-youtubes-best/"><u>[Updated] In 2024, Mastering Background Replacement Get Cost-Free Lessons in Green Screen Effects From YouTube's Best</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-crafty-impostors-exposed-spotting-fabricated-followers/"><u>2024 Approved Crafty Impostors Exposed Spotting Fabricated Followers</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-expert-recommendations-on-asmr-and-restful-nights/"><u>In 2024, Expert Recommendations on ASMR & Restful Nights</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/izing-your-videos-impact-with-perfect-post-times/"><u>Maximizing Your Videos' Impact with Perfect Post Times</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/attle-of-broadcads-vimeo-and-youtubes-face-off/"><u>The Battle of Broadcads Vimeo & YouTube's Face-Off</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ltimate-plan-for-building-your-ideal-youtube-playlist-for-2024/"><u>The Ultimate Plan for Building Your Ideal YouTube Playlist for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/troubleshooting-double-errors-in-windows-operating-systems/"><u>Troubleshooting Double Errors in Windows Operating Systems</u></a></li>
+<li><a href="https://discover-exceptional.techidaily.com/1728482622321-windows-11-3/"><u>Windows 11における安全かつシンプルなネットワークドライブの割り振り手順: 3つの方法</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Harnessing Google Trends for Video Concept Generation"
-date: 2024-09-02T03:05:08.027Z
-updated: 2024-09-03T03:05:08.027Z
+date: 2024-11-11T16:23:30.865Z
+updated: 2024-11-17T16:59:22.307Z
 tags:
   - ai video
   - ai youtube
@@ -56,6 +56,13 @@ On top you will see two drop-down menus, one is for the category and one is for 
 
 ![Google Trends Video Ideas](https://images.wondershare.com/filmora/article-images/google-trends-video-ideas.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Under **All categories** select the general theme your channel falls under.
 
 Your options are business, entertainment, health, Sci/Tech, sports, and top stories.
@@ -76,9 +83,6 @@ Having something to say doesn’t have to mean having a strong opinion. If you j
 
 Clicking on these results will give you more specific data including how often the topic has been searched recently and links to recent news articles. These can give you a better idea of why it is trending and help you come up with what you want to say.
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 3: Battle of the Keywords
 
 Once you have a topic in mind for your next video – whether it came from Google Trends or your own noggin – think about what the most important keyword for that topic might be.
@@ -94,15 +98,16 @@ What happens after you click **enter** is pretty much magic. Say I want to make 
 ![Google Trends YouTube Video Keywords](https://images.wondershare.com/filmora/article-images/google-trends-search-term.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2105869/7443" target="_top" id="2105869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105869/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 You can see near the top that this chart represents searches for the topic over the last 5 years, which isn’t necessarily useful (although it is sort of cool that you can see when Filmora was ‘born’). I’m going to narrow that down to results from the U.S in the last week.
 
 ![Google Trends YouTube Video Ideas Filmora](https://images.wondershare.com/filmora/article-images/google-trends-search-term-time-range.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 There, now I can see how the popularity of Filmora as a search term has spiked on specific days and times (if you hover over a spike it tells you the time and day) and plan to post my video at a time that capitalizes on these trends.
 
 Next, what other words do I want to include in my video title? Is this a review, a tutorial, or a how-to? By clicking on my search term Filmora, I can edit it to read ‘filmora review’. Then I can click **\+ Compare** and type in ‘filmora tutorial’ and ‘how to use Filmora’. Google Trends will create a chart comparing the popularity of those 3 terms.
@@ -110,8 +115,12 @@ Next, what other words do I want to include in my video title? Is this a review,
 ![Google Trends Filmora Keywords](https://images.wondershare.com/filmora/article-images/google-trends-search-term-comparison.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1948937/19272" target="_top" id="1948937">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948937/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 _I also ‘zoomed out’ to 90 days – if I’d only looked at how they compared over the last week my results could have been skewed._
 
 It’s pretty clear from the chart that ‘filmora review’ is the strongest of those 3 search terms. The title of my video should definitely start with the words **Filmora Review** because that is what most people are searching for when they want information about Filmora. Putting your most important keyword/search term first in your video titles will help them rank better in the viewer’s search results.
@@ -137,27 +146,31 @@ As one of the most widely used video editing software among YouTubers, Filmora p
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
+<span id="1938136">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -166,4 +179,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-effective-strategies-for-google-voice-call-saves/"><u>[New] Effective Strategies for Google Voice Call Saves</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/rom-shots-to-screens-the-importance-of-camera-lenses-in-vlogs-for-2024/"><u>[New] From Shots to Screens The Importance of Camera Lenses in Vlogs for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-mastering-fb-music-videos-best-performances-listed-for-2024/"><u>[New] Mastering FB Music Videos Best Performances Listed for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-calculating-youtubes-adsense-gains-per-thousand-viewer-income/"><u>[Updated] 2024 Approved Calculating Youtube's AdSense Gains Per Thousand Viewer Income</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-innovate-humorous-gifry-on-giphy-network/"><u>[Updated] 2024 Approved Innovate Humorous Gifry on Giphy Network</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-leveraging-youtubes-cc-for-high-quality-video-creation/"><u>[Updated] 2024 Approved Leveraging YouTube’s CC for High-Quality Video Creation</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-pro-chromebook-record-unmatched-screen-capture-for-2024/"><u>[Updated] Pro Chromebook Record Unmatched Screen Capture for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/in-2024-chirp-with-charisma-producing-text-memes-now/"><u>In 2024, Chirp with Charisma Producing Text Memes Now</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-enhancing-video-content-through-effective-use-of-cardsannotations/"><u>In 2024, Enhancing Video Content Through Effective Use of Cards/Annotations</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-insider-tips-selecting-the-best-ig-video-editors-for-success/"><u>In 2024, Insider Tips Selecting the Best IG Video Editors for Success</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-planning-to-use-a-pokemon-go-joystick-on-infinix-smart-8-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Planning to Use a Pokemon Go Joystick on Infinix Smart 8 Pro? | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-the-earning-equation-on-youtube-daily-average-from-adsense-payouts-per-k-views/"><u>In 2024, The Earning Equation on YouTube Daily Average From AdSense Payouts Per K Views</u></a></li>
+<li><a href="https://win11.techidaily.com/remedy-for-windows-error-image-id-0x80780119/"><u>Remedy for Windows Error: Image ID 0X80780119</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/se-order-effortless-methods-for-list-rearrangement-for-2024/"><u>Reverse Order Effortless Methods for List Rearrangement for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/the-ultimate-path-to-perfecting-adobe-capture-screen-recordings-for-2024/"><u>The Ultimate Path to Perfecting Adobe Capture Screen Recordings for 2024</u></a></li>
+</ul></div>
 

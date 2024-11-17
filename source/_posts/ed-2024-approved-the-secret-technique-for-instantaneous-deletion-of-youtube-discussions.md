@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  The Secret Technique for Instantaneous Deletion of Youtube Discussions\""
-date: 2024-08-28T13:06:17.996Z
-updated: 2024-08-29T13:06:17.996Z
+date: 2024-11-13T16:53:20.651Z
+updated: 2024-11-17T16:20:16.114Z
 tags:
   - ai video
   - ai youtube
@@ -46,6 +46,13 @@ In this section, we will tell you how you can do it from your desktop.
 4. When you locate the comment, click on the three vertical dots on the right-hand side of the comment. From the drop-down list, click on Remove. The process is complete, and YouTube will remove your comment.
 
 You also have the option to report the comment or [hide the user from your channel](https://tools.techidaily.com/wondershare/filmora/download/).
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## How to Delete All YouTube Comments from Mobile?
 
@@ -104,8 +111,12 @@ To find your History from your desktop, you need to click on the three horizonta
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## How to Delete All Your Posted YouTube Comments?
 
 You can also delete all comments you ever posted on any YouTube video by hiding your channel. When you do this, you can hide your video content temporarily. But it will irreversibly erase all your comments throughout YouTube. If you are curious, read on to know how you can do it.
@@ -115,28 +126,29 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
 
 ![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
-<!-- affiliate ads end -->
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982499">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
-<!-- affiliate ads end -->
 ### Final Thoughts
 
 YouTube can be an unsafe place with unwanted comments everywhere. In this blog, we tried to show how you can get rid of comments on your and on others’ YouTube accounts. The next time you see an offensive comment or post something mistakenly, don’t forget to try our tips and make YouTube a safe platform again.
@@ -144,22 +156,23 @@ YouTube can be an unsafe place with unwanted comments everywhere. In this blog, 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
+  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -168,4 +181,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/fficient-techniques-sharing-video-content-from-youtube-fb-for-2024/"><u>[New] Efficient Techniques Sharing Video Content From YouTube FB for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/levate-video-quality-from-youtube-to-crisp-avis-format/"><u>[New] Elevate Video Quality From YouTube to Crisp Avis Format</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ssential-insights-for-youtube-content-protection-for-2024/"><u>[New] Essential Insights for YouTube Content Protection for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/gnite-interest-essential-youtube-video-concepts-for-2024/"><u>[New] Ignite Interest Essential YouTube Video Concepts for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-demystifying-t-series-income-streams-via-youtube-platforms/"><u>[Updated] 2024 Approved Demystifying T-Series Income Streams via YouTube Platforms</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-quickening-your-live-feed-on-periscope-platform/"><u>[Updated] 2024 Approved Quickening Your Live Feed on Periscope Platform</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-the-ultimate-guide-to-polishing-videos-for-youtube-via-windows-pc/"><u>[Updated] 2024 Approved The Ultimate Guide to Polishing Videos for YouTube via Windows PC</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-carryminatis-income-blueprint-journey-through-2023/"><u>[Updated] CarryMinati's Income Blueprint Journey Through 2023</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-professional-insights-io-screen-capturing-demystified-for-2024/"><u>[Updated] Professional Insights IO Screen Capturing Demystified for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-determining-film-production-price-points/"><u>2024 Approved Determining Film Production Price Points</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-from-play-to-replay-capturing-switch-games/"><u>2024 Approved From Play to Replay Capturing Switch Games</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-god-of-thunder-returns-epic-dawn/"><u>2024 Approved God of Thunder Returns Epic Dawn</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-premium-zero-cost-switch-gaming-experience/"><u>2024 Approved Premium Zero Cost Switch Gaming Experience</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-share-location-in-messenger-on-zte-nubia-z60-ultra-drfone-by-drfone-virtual-android/"><u>How to Share Location in Messenger On ZTE Nubia Z60 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-samsung-galaxy-s23-ultra-drfone-by-drfone-virtual/"><u>In 2024, 9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Samsung Galaxy S23 Ultra | Dr.fone</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-2024-approved-crop-like-a-pro-mastering-video-editing-with-avidemux/"><u>New 2024 Approved Crop Like a Pro Mastering Video Editing with Avidemux</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/e-orbiters-youtube-personalities-at-the-zenith/"><u>Online Orbiters YouTube Personalities at the Zenith</u></a></li>
+</ul></div>
 

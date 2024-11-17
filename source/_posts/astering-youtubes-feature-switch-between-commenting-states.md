@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Mastering YouTube's Feature  Switch Between Commenting States\""
-date: 2024-08-28T13:05:57.595Z
-updated: 2024-08-29T13:05:57.595Z
+date: 2024-11-16T17:10:14.608Z
+updated: 2024-11-17T16:52:05.457Z
 tags:
   - ai video
   - ai youtube
@@ -90,6 +90,13 @@ Selecting this option holds all the comments from all the users, and waits for y
 
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068417/7443" target="_top" id="2068417">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068417" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068417/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Turn on or Turn off Comments for Specific Videos
 
 As you might have noticed, any video that is marked as ‘Made for kids’ doesn’t allow users to post comments. You can exploit this feature to enable or disable commenting on specific YouTube videos as well.
@@ -113,8 +120,18 @@ From under the **Audience** section in the right window of the **Video details**
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<span id="1834906">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## FAQs About YouTube Comments
 
 #### 1\. Why can’t I comment on the YouTube video?
@@ -132,9 +149,12 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
 Yes. When you turn off the comments, the existing comments disappear. When you turn them back on, all the previous comments reappear, and become visible to the audience.
@@ -150,22 +170,23 @@ It is easy to understand **how to turn on comments on YouTube**. The best thing 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1885943/19272" target="_top" id="1885943">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885943" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885943/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -174,4 +195,26 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-screen-recording-pros-bandicam-or-camtasia-for-2024/"><u>[New] Screen Recording Pros Bandicam or Camtasia for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-cut-cost-unlock-creativity-step-by-step-guide-to-professional-green-screen-effects-from-top-4-channels-for-2024/"><u>[Updated] Cut Cost, Unlock Creativity Step-by-Step Guide to Professional Green Screen Effects From Top 4 Channels for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-efficiently-implementing-youtube-end-screens-for-2024/"><u>[Updated] Efficiently Implementing Youtube End Screens for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-how-does-youtube-pay-you-in-2024/"><u>[Updated] How Does YouTube Pay You, In 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-audience-engagement-and-its-impact-on-youtube-performance/"><u>[Updated] In 2024, Audience Engagement and Its Impact on YouTube Performance</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-directly-sending-youtube-videos-to-facebook-networks/"><u>[Updated] In 2024, Directly Sending YouTube Videos to Facebook Networks</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-quick-and-easy-audio-extraction-top-6-free-apps-to-convert-youtube-videos-to-mp3/"><u>[Updated] In 2024, Quick & Easy Audio Extraction Top 6 Free Apps to Convert YouTube Videos to MP3</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-charting-your-path-strategies-that-lead-to-1m-audience/"><u>2024 Approved Charting Your Path Strategies That Lead to 1M Audience</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-novel-vlog-talk-points-everyday/"><u>2024 Approved Novel Vlog Talk Points Everyday</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ing-conversation-starter-ideas-for-2024/"><u>Exciting Conversation Starter Ideas for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/find-and-update-lenovo-docking-station-drivers-effortlessly-a-comprehensive-guide/"><u>Find and Update Lenovo Docking Station Drivers Effortlessly: A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-dailymotion-vs-youtubes-revenue-battle-analysis/"><u>In 2024, Dailymotion vs YouTubes Revenue Battle Analysis</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-effective-ways-to-fix-checkra1n-error-31-from-apple-iphone-6s-by-drfone-ios/"><u>In 2024, Effective Ways To Fix Checkra1n Error 31 From Apple iPhone 6s</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/in-2024-how-to-make-a-memorable-honeymoon-video/"><u>In 2024, How to Make a Memorable Honeymoon Video</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-nubia-red-magic-9-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Nubia Red Magic 9 Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/izing-youtube-exposure-with-ongoing-creative-commons-compliance/"><u>Maximizing YouTube Exposure with Ongoing Creative Commons Compliance</u></a></li>
+<li><a href="https://fake-location.techidaily.com/methods-to-change-gps-location-on-vivo-s18-pro-drfone-by-drfone-virtual-android/"><u>Methods to Change GPS Location On Vivo S18 Pro | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/overcoming-yahoo-mail-hurdles-a-comprehensive-guide-for-missing-emails-fixes/"><u>Overcoming Yahoo Mail Hurdles: A Comprehensive Guide for Missing Emails Fixes</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nalize-your-pixelated-world-the-ultimate-guide-to-discovering-creator-types-via-6-tests/"><u>Personalize Your Pixelated World The Ultimate Guide to Discovering Creator Types via 6 Tests</u></a></li>
+</ul></div>
 

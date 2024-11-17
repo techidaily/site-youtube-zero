@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Daily Vlogging Ideas  What to Talk About While Vlogging, In 2024\""
-date: 2024-08-28T13:06:42.809Z
-updated: 2024-08-29T13:06:42.809Z
+date: 2024-11-15T16:53:30.598Z
+updated: 2024-11-17T16:37:21.737Z
 tags:
   - ai video
   - ai youtube
@@ -52,8 +52,18 @@ Here are 4 things to talk about in your daily vlog:
 By commenting on what you’re watching/reading you have a better chance of capitalizing on a trending topic people are searching for. You could also find yourself an audience by becoming involved in fan communities.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982462">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Snapshots of Your Day
 
  Casey Neistat is the master of this. He is always ready with a camera on hand so that, when something interesting happens, he can capture it and build his daily vlog around it.
@@ -61,8 +71,18 @@ By commenting on what you’re watching/reading you have a better chance of capi
 Carrying a camera around like Casey may or may not suit your lifestyle, but you can still pick out one story from your day to tell. It doesn’t have to be a major event, and you shouldn’t worry that it won’t be interesting to other people. It’s your personality they’re tuning in for, so even if you’re just talking about a funny thing your cat did it will keep your audience interested because a) it’s you talking about it and b) it gives them a bit of insight into your life.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1484963">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Whatever You Need to Get Out
 
 _Flula is frequently puzzled by English expressions, like 'Party Pooper', and needs to get his confusion off his chest at odd hours of the day._
@@ -74,8 +94,18 @@ It does not matter what it is that is making you have this strong reaction (unle
 Alternatively: you could do a vlog about how happy you are to have gotten engaged or a vlog about how happy you are that it was sunny today, and your enthusiasm will carry your audience through either video with you.
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<span id="1993645">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## What did you learn today?
 
  _Fun fact: The original lyrics Paul McCartney imagined for 'Yesterday' were 'Scrambled eggs, oh my baby how I love your legs'._
@@ -92,9 +122,6 @@ The puya chilensis is a plant that ‘eats’ sheep (sheep get stuck to it, star
 
 Sea monkeys can survive in space.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## EVERYTHING
 
 You could also just flick the camera on and tell the full story of your day like you’d do in a traditional daily blog. What did you have for breakfast, how was school/work, did you talk to any friends, how was the weather – anything and everything. Generally, these videos can run a bit long and don’t have a lot of snappy editing. They’re faster to make, which is good if you’re doing them every day, but the unpolished nature of them won’t appeal to everyone. It will be exactly what appeals to some people, though.
@@ -103,9 +130,6 @@ You could also just flick the camera on and tell the full story of your day like
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 **We’ve got a new eBook out!**
 
 It’s got strategies that have worked for other YouTubers, boiled down to simple action steps.
@@ -113,22 +137,23 @@ It’s got strategies that have worked for other YouTubers, boiled down to simpl
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -137,4 +162,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/lite-recording-devices-for-livestream-producers-for-2024/"><u>[New] Elite Recording Devices for Livestream Producers for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/lavorful-follows-top-food-vloggers-to-track-for-2024/"><u>[New] Flavorful Follows Top Food Vloggers to Track for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/he-modern-way-to-start-a-youtube-businesspersonal-channel-on-the-go-for-2024/"><u>[New] The Modern Way to Start a YouTube Business/Personal Channel on the Go for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/hats-the-take-home-from-each-youtube-sponsored-play-for-2024/"><u>[New] What's the Take-Home From Each YouTube Sponsored Play for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-transform-your-content-essential-youtube-studio-editing-skills/"><u>[Updated] In 2024, Transform Your Content Essential YouTube Studio Editing Skills</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-insta-followers-footprints-trail-blazing-techniques-for-2024/"><u>[Updated] Insta Followers Footprints Trail-Blazing Techniques for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-boost-your-earnings-on-youtube-shorts-a-guide/"><u>2024 Approved Boost Your Earnings on YouTube Shorts A Guide</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-unveiling-hidden-gems-top-purchasers-of-youtube-creators/"><u>2024 Approved Unveiling Hidden Gems Top Purchasers of YouTube Creators</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/discover-our-favorite-pickup-imessage-games-of-2024-to-stay-connected/"><u>Discover Our Favorite Pickup iMessage Games of 2024 to Stay Connected</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/95783119-9781620552070-el-calendario-maya-y-la-transformacion-de-la-consciencia/"><u>El Calendario Maya y la Transformación de la Consciencia | Free Book</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/how-to-rectify-lack-of-audio-output-from-your-chromecast/"><u>How to Rectify Lack of Audio Output From Your Chromecast</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-android-to-apple-how-to-transfer-photos-from-gionee-f3-pro-to-ipad-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Android to Apple How To Transfer Photos From Gionee F3 Pro to iPad Easily | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-the-ultimate-blueprint-for-seamless-eco-screen-integration/"><u>In 2024, The Ultimate Blueprint for Seamless Eco-Screen Integration</u></a></li>
+<li><a href="https://facebook.techidaily.com/inspecting-past-connections-with-facebook/"><u>Inspecting Past Connections with Facebook</u></a></li>
+</ul></div>
 

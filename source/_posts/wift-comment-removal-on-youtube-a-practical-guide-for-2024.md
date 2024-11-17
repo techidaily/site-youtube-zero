@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Swift Comment Removal on YouTube  A Practical Guide for 2024\""
-date: 2024-08-28T13:04:36.475Z
-updated: 2024-08-29T13:04:36.475Z
+date: 2024-11-11T16:35:16.925Z
+updated: 2024-11-17T16:24:54.961Z
 tags:
   - ai video
   - ai youtube
@@ -83,9 +83,6 @@ If it is your video where the comment to be removed is, you can go to My Channel
 1. Once you locate the video, you need to find the comment you want to delete. On the YouTube app, you may need to scroll down for a while to do this.
 2. When you reach it, click on the three vertical dots at the bottom corner of your comment. You should see an option called Delete. Click on that. You need to confirm once more that you want to delete it, and the process will be complete.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Delete Other People’s Comments on Others’ Channels
 
 Did you see a hate comment on your favorite creator’s video? Sadly, you cannot delete the comment. But, you can report it, and YouTube will hide or take it down.
@@ -107,8 +104,25 @@ To find your History from your desktop, you need to click on the three horizonta
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<span id="1936838">
+					<video width="374" height="48" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918684/19272" target="_top" id="1918684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Delete All Your Posted YouTube Comments?
 
 You can also delete all comments you ever posted on any YouTube video by hiding your channel. When you do this, you can hide your video content temporarily. But it will irreversibly erase all your comments throughout YouTube. If you are curious, read on to know how you can do it.
@@ -118,35 +132,35 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
 
 ![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
-<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
-<!-- affiliate ads end -->
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Final Thoughts
 
 YouTube can be an unsafe place with unwanted comments everywhere. In this blog, we tried to show how you can get rid of comments on your and on others’ YouTube accounts. The next time you see an offensive comment or post something mistakenly, don’t forget to try our tips and make YouTube a safe platform again.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037474/7443" target="_top" id="2037474">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037474" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037474/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -154,14 +168,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -170,4 +181,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-capture-clarity-selecting-best-gimbals-for-your-camera-for-2024/"><u>[New] Capture Clarity Selecting Best Gimbals for Your Camera for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-from-clicks-to-cash-the-systematic-triple-pathway-for-youtube-revenue-tracking/"><u>[Updated] 2024 Approved From Clicks to Cash The Systematic Triple Pathway for YouTube Revenue Tracking</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-boost-your-views-with-premium-youtube-rank-watchers/"><u>[Updated] Boost Your Views with Premium YouTube Rank Watchers</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-choosing-the-right-microphone-for-mac-devices-a-compreenas/"><u>[Updated] Choosing the Right Microphone for Mac Devices (A Compreenas)</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-fresh-footage-frequent-flows-dos-and-donts-for-streamlining-video-content-for-2024/"><u>[Updated] Fresh Footage, Frequent Flows Do's & Don'ts for Streamlining Video Content for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-3-must-know-methods-to-record-on-your-ipad/"><u>2024 Approved 3 Must-Know Methods to Record on Your iPad</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-captivating-content-with-a-click-phones-and-youtube/"><u>2024 Approved Captivating Content with a Click Phones & YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-making-fx-magic-a-novices-step-into-animated-worlds/"><u>2024 Approved Making FX Magic A Novice's Step Into Animated Worlds</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-the-artisans-approach-to-crafting-channel-identities/"><u>2024 Approved The Artisan's Approach to Crafting Channel Identities</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-urgent-top-ten-todays-rapid-video-views/"><u>2024 Approved Urgent Top Ten Today's Rapid Video Views</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ting-your-youtube-presence-through-famebit-inspired-sponsorships/"><u>Elevating Your YouTube Presence Through FameBit-Inspired Sponsorships</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-iphone-se-by-drfone-ios/"><u>How to Unlock iPhone SE?</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-spy-on-text-messages-from-computer-and-lava-yuva-3-drfone-by-drfone-virtual-android/"><u>In 2024, How to Spy on Text Messages from Computer & Lava Yuva 3 | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/movavis-no-cost-web-service-for-changing-w64-audio-to-wav-file-type/"><u>Movavi's No-Cost Web Service for Changing W64 Audio to WAV File Type</u></a></li>
+<li><a href="https://win-studio.techidaily.com/r2-to-modern-machinery/"><u>R2 to Modern Machinery</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Essential Tactics for YouTube Success in 25 Ways\""
-date: 2024-08-28T13:06:15.280Z
-updated: 2024-08-29T13:06:15.280Z
+date: 2024-11-10T16:52:00.408Z
+updated: 2024-11-17T16:24:49.358Z
 tags:
   - ai video
   - ai youtube
@@ -65,8 +65,12 @@ In order to consistently draw viewers back your page and get the most out of you
 Before you turn your camera on and start making a new video, ask yourself what value you want your viewers to take away from it. Will they come away from your video with knowledge, a new skill, or a feeling of amusement? Be sure to have a clear objective in mind with every video.
 
 <!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 3\. Ask Viewers to Subscribe with a 'CTA'
 
 Asking viewers to do anything (like, subscribe, etc.) is called a CTA, or ‘[call to action](https://tools.techidaily.com/wondershare/filmora/download/)’. Asking for subscribers is a call to action that needs to be included in every video.
@@ -74,8 +78,12 @@ Asking viewers to do anything (like, subscribe, etc.) is called a CTA, or ‘[ca
 One of the objectives of every video you produce should be to try and appeal to [brand-new viewers](https://www.filmora.io/community-blog/how-to-convert-viewers-into-subscribers-%28the-easy-way%29-287.html) for your page. Something as simple as asking the viewer to subscribe if they liked your video can really help you grow faster. Sometimes people who really love your content still need to be reminded to subscribe. It is important to attract subscribers – not just viewers – in order to make sure that you have reliable, ongoing, support for your videos.
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
+  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 4\. Spend Time Building your YouTube Community
 
 YouTube is a large community and consistently interacting with other creators will help you to [gain support for your videos](https://www.filmora.io/community-blog/how-to-grow-your-audience-on-youtube-%E2%80%93-one-proven-282.html). It helps a lot if the people in your genre know you. You can watch each other’s videos, give each other constructive feedback, and there may even be opportunities for collaboration.
@@ -90,6 +98,13 @@ Sharing your goals helps your community feel more engaged and like they are a bi
 
  _Contest now closed._
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 6\. Find a Niche for Your Videos
 
 Many creators on YouTube have found success by carving out very specific video types and [niches](https://www.filmora.io/community-blog/how-to-find-your-niche-on-youtube-%E2%80%93-what%E2%80%99s-the-280.html) for themselves. When you are hoping to grow your subscribers on YouTube you really need to find your niche. When you can start to create videos that have predictable subject matter (predictable in the sense of ‘reliable’, not boring), this will attract more regular viewers because people will know what they can expect from your content. Having a niche can also help you find brand deals because you’ll grow a very specific audience that might be interested in very specific products. A smaller, targeted, the audience can be more valuable to an advertiser than a larger, more general, audience.
@@ -97,13 +112,30 @@ Many creators on YouTube have found success by carving out very specific video t
 Your niche will generally be a combination of your larger genre (i.e. gaming, comedy, beauty, food) and something else you are passionate about. For example, reviewing vintage video games or creating desserts based on movies are both potential niches.
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
+<span id="1983473">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 7\. Build a Strong Personal Brand
 
 [Building a brand on YouTube](https://www.filmora.io/community-blog/how-to-build-a-brand-on-youtube-%E2%80%93-what-makes-279.html) is one of the best ways to generate a devoted following. Building a brand is very important because it makes you more memorable and familiar to viewers. In order to successfully build a brand, you need to think about the image you are trying to create and the culture you want to create for your community. The values you express, the types of videos you do, the clothes you wear, and your [channel art](https://www.filmora.io/community-blog/top-5-youtube-channel-art-makers-299.html) are all parts of your brand. The grand total of all of these elements will form your brand and the way you are perceived.
 
 Having a strong, unique, the brand will make viewers feel more attached to you and make your content more recognizable.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 8\. Create Custom Channel Art
 
@@ -131,9 +163,6 @@ Using simple color effects, like filters, can help each of your videos look much
 
 It can take some time to [add these kinds of effects to your videos](https://www.filmora.io/community-blog/how-to-edit-a-youtube-video-and-get-more-subscribers-281.html), but it isn’t really very difficult (many editors, including Filmora, let you drag and drop these effects into your timeline) and it will help your videos hold viewers’ attention for longer. It can also garner much more engagement and many more subscriptions for your YouTube channel.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## 12\. Make Eye-Catching Thumbnails
 
 A thumbnail that grabs a viewer’s attention will get more clicks. Take a photo of yourself making an expression relevant to your video and edit the image in Photoshop or using a free service like Canva ([or one of these other YouTube thumbnail makers](https://www.filmora.io/community-blog/top-10-youtube-thumbnail-makers---easy-to-use%21-312.html)). Add graphics, like emojis, to give your thumbnail a pop of color and include large, simple, text if you feel like your thumbnail needs to be given context (i.e. ‘fall makeup look’, as opposed to just another makeup video).
@@ -143,6 +172,13 @@ A thumbnail that grabs a viewer’s attention will get more clicks. Take a photo
 Tags are essential to helping people actually find your videos on YouTube. [Tags should include keywords/search terms](https://www.filmora.io/community-blog/4-steps-to-rank-higher-in-youtube%E2%80%99s-search-results-277.html) people might be looking up in order to find videos like yours. Looking at the tags of some of your past videos and seeing how well they performed will give you an idea of what kinds of tags you should target in the future. Looking at the tags of some of your competitors will give you an idea of what tags you should be using for your own videos.
 
 Services like the Google Keyword Planner can also help you with finding new keywords/tags. Making your tags with search engine optimization in mind will help ensure that people can find your video when searching for those specific keywords. YouTube has an algorithm very similar to the Google search engine for helping people locate videos they may be interested in.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144271/7443" target="_top" id="2144271">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144271" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144271/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 14\. Use YouTube Playlists to Increase Watch Time
 
@@ -156,6 +192,19 @@ Improving engagement as well as the notoriety of your brand often means branchin
 
  _Contest now closed._
 
+<!-- affiliate ads begin -->
+<span id="1975503">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 16\. Interact with your Viewers
 
 Spending time [interacting with your viewers](https://www.filmora.io/community-blog/how-to-build-a-youtube-audience-283.html) via comments and social media is important. Taking suggestions and paying attention to what your viewers like most about your videos will make your viewers feel more included in the process of creating your videos. This will make them much more loyal to your channel. A great way to interact with your viewers is by doing shout outs or Q&A videos.
@@ -164,26 +213,16 @@ Spending time [interacting with your viewers](https://www.filmora.io/community-b
 
 Spending time [examining your competition](https://www.filmora.io/community-blog/your-youtube-rivals---how-to-get-more-views-by-checking-out-the-competition-62.html) is very important. By looking at the popular channels in your genre you can learn what kinds of videos are popular and what types of video titles and tags you should be using.
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 18\. Do Collaboration Videos
 
 When you [collaborate with other YouTube creators](https://www.filmora.io/community-blog/how-to-make-a-collaboration-video-on-youtube-285.html) it leads to mutual success. You can cross-promote some of their content and they can promote some of your content in the process. It's amazing how much your channel can grow when you’re exposed to other people’s audiences. Even if you might view another content creator is your competition, sometimes uniting together on a project can help you to mutually prosper.
 
 Make sure your potential partner makes the kinds of videos your own audience would like. Then you’ll know that your videos are something your partner’s audience will like.
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 19\. Write a Detailed Description for Every Video
 
 The description box is one of the most commonly underutilized tools on YouTube. Make sure that you use the space to write a full description of each video. In the first three lines of every video description, use the keywords most relevant to your content, provide links to your other social media accounts, and ask viewers to subscribe. Lower down in your description, under the ‘read more’ tab, write a detailed summary of your video. This will improve your SEO/search engine optimization.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
-</a>
-<!-- affiliate ads end -->
 ## 20\. Use Keywords That Are Searchable
 
 In your titles, descriptions, and tags you need to use the words or phrases that viewers are most likely to type into YouTube’s search bar when looking for content like yours. Doing a bit of keyword research will help you gain more subscribers on YouTube and more viewers on almost every video.
@@ -193,15 +232,22 @@ For example, if you do a product review of a new smartphone, you will get a lot 
  _Contest now closed._
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<span id="1424527">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## 21\. Make your Thumbnails Consistent
 
 The thumbnails that you choose for your videos can be an extension of your brand. By using similar layouts, colors, and fonts for every thumbnail you will [create a familiar look](https://www.filmora.io/community-blog/how-to-make-video-thumbnails-for-youtube-288.html) and viewers will recognize your videos when they see them. If someone can instantly recognize your video thumbnails it will strengthen your brand and encourage repeat viewership.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ## 22\. Always Have a Plan for Your Videos
 
 If you can plan out a script or outline (whichever you’re comfortable with) for your video, or even plan out a series of videos that you could shoot over time, it can lead to far better content. Taking the time to create a plan for every single video will lead to much more polished results that will generate far better responses from your viewers. Planning takes time, but not as much time as trying to edit the content that had no clear plan.
@@ -210,18 +256,12 @@ If you can plan out a script or outline (whichever you’re comfortable with) fo
 
 Writing great titles that are optimized for search engines is one of the best ways to see some huge improvements in your channel’s growth rate. Your titles need to be able to draw in an audience and get them interested in your content. They also have to set expectations for your videos and contain the right keywords to make them searchable. Big channels can get good results with titles that build suspense or ask questions, but while you’re small it’s better to avoid clickbait and make your titles as direct and literal as possible.
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 24\. Create a YouTube Channel Trailer
 
 Your channel page on YouTube might be where a viewer makes the decision to subscribe, or not to subscribe. YouTube allows you to set a featured video that will autoplay in this space, and a lot of the most successful creators use this as an opportunity to post a [channel trailer](https://tools.techidaily.com/wondershare/filmora/download/). Your channel trailer welcomes new viewers and tells them what to expect from your content.
 
 You can create a trailer quickly by filming a quick introduction and combining it with clips from your previous videos.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
-<!-- affiliate ads end -->
 ## 25\. Give Each of Your Videos a Memorable Ending
 
 Ending every video on a high note – with some kind of joke or surprise – will leave viewers with a good feeling, which will make them more likely to keep watching more of your videos.
@@ -236,14 +276,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -252,4 +289,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/iy-gif-making-transforming-youtube-videos-into-animated-forms-for-2024/"><u>[New] DIY GIF Making Transforming YouTube Videos Into Animated Forms for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/iltering-through-youtube-talks/"><u>[New] Filtering Through YouTube Talks</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-elevate-your-brand-with-these-biz-channel-standouts/"><u>[New] In 2024, Elevate Your Brand with These Biz Channel Standouts</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-discovering-eastern-architectural-wonders-in-minecraft-for-2024/"><u>[Updated] Discovering Eastern Architectural Wonders in Minecraft for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-effortless-youtube-file-extraction-for-2024/"><u>[Updated] Effortless YouTube File Extraction for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-from-pixels-to-perfection-the-advantages-of-srgb-over-rgb-for-2024/"><u>[Updated] From Pixels to Perfection The Advantages of Srgb over Rgb for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-gif-magic-on-mac-leading-tools-of-10/"><u>[Updated] GIF Magic on Mac Leading Tools of 10</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-professional-recordings-at-home-10-key-strategies-for-excellence/"><u>[Updated] In 2024, Professional Recordings at Home 10 Key Strategies for Excellence</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-sky-high-selfies-and-beyond-an-insightful-analysis-of-dji-spark/"><u>2024 Approved Sky High Selfies and Beyond An Insightful Analysis of DJI Spark</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-swift-and-secure-video-shipment-sending-oversized-content-from-ios/"><u>2024 Approved Swift & Secure Video Shipment Sending Oversized Content From iOS</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-unleashing-video-potential-the-imovie-blueprint-for-youtube-editors/"><u>2024 Approved Unleashing Video Potential The iMovie Blueprint for YouTube Editors</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-factory-reset-ipad-or-apple-iphone-x-without-icloud-password-or-apple-id-by-drfone-ios/"><u>How to Factory Reset iPad or Apple iPhone X without iCloud Password or Apple ID?</u></a></li>
+<li><a href="https://win-trending.techidaily.com/how-to-fix-windows-error-1-the-12002-a-comprehensive-troubleshooting-tutorial/"><u>How to Fix Windows Error 1 The '''12002''': A Comprehensive Troubleshooting Tutorial</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-game-modders-and-tutorial-content-leaders/"><u>In 2024, Game Modders & Tutorial Content Leaders</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ring-slides-with-youtube-content/"><u>Mastering Slides with YouTube Content</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/by-step-process-to-craft-memorable-gifs-from-any-youtube-video-on-devices-for-2024/"><u>Step-by-Step Process to Craft Memorable GIFs From Any YouTube Video on Devices for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/taking-aerial-imaging-to-new-heights-an-insider-look-at-the-dji-mavic-3/"><u>Taking Aerial Imaging to New Heights: An Insider Look at the DJI Mavic 3</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/g-control-of-income-the-youtube-partner-program-2024-guide/"><u>Taking Control of Income The YouTube Partner Program 2024 Guide</u></a></li>
+<li><a href="https://fake-location.techidaily.com/will-ispoofer-update-on-tecno-camon-30-pro-5g-drfone-by-drfone-virtual-android/"><u>Will iSpoofer update On Tecno Camon 30 Pro 5G | Dr.fone</u></a></li>
+</ul></div>
 

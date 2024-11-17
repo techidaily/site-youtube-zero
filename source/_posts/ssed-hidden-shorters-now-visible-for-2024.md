@@ -1,7 +1,7 @@
 ---
 title: "\"Addressed  Hidden Shorters, Now Visible for 2024\""
-date: 2024-08-28T13:05:07.255Z
-updated: 2024-08-29T13:05:07.255Z
+date: 2024-11-15T16:57:21.561Z
+updated: 2024-11-17T16:17:12.983Z
 tags:
   - ai video
   - ai youtube
@@ -65,6 +65,13 @@ And, you must note that a YouTube Shorts video consists of two criteria as follo
 
 Here’s the section covering fixes on YouTube Shorts not showing. Please give it a read and resolve your issue happily!
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Fix 1: Update the YouTube App
 
 As we've already discussed above, check if your YouTube mobile app has the latest version. The newest version of the YouTube mobile app (Version: 16.17.36) has a dedicated Shorts button at the bottom. And, it replaces the Trending button from the YouTube app.
@@ -73,12 +80,6 @@ Moreover, the option to upload Shorts is now hidden behind the **+** icon. Tap o
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-not-showing-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Fix 2: Check If Shorts Is Available in Your Country
 
 Now, YouTube Shorts is available globally, but there was a phase when YouTube Shorts was a beta feature. It was only available in India and the US, which could be why you could not view Shorts in the YouTube app.
@@ -89,9 +90,6 @@ As of now, YouTube Shorts is only available on a smartphone because it's still i
 
 You can upload Shorts videos from your laptop. The entire process is similar to uploading a regular video. However, you have to mention #Shorts in the title and description to differentiate it as a Shorts video.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Common Fixes to YouTube Shorts Not Working
 
 1. Update the YouTube App to the latest version.
@@ -127,8 +125,12 @@ Once uploaded, the YouTube Shorts will be displayed in a vertical thumbnail on Y
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-not-showing-2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Bonus Tip: How to Easily Create Vertical Videos for YouTube Shorts on PC
 
 The YouTube Shorts app is pretty convenient to use nowadays. However, it doesn't allow you to fine-edit the videos if you've explored the app or specifically when you want your videos to look more professional. The app doesn't even have many filtering options, such as Effects, Elements, etc., to make your videos more interactive.
@@ -139,13 +141,6 @@ We recommend Wondershare Filmora because it is a production and post-production 
 
 [![Download Filmora Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
-<!-- affiliate ads end -->
 Moreover, a YouTube Shorts video can be made through Wondershare Filmora using the below-mentioned guide.
 
 **Note:** We are assuming that you have already recorded a vertical video using your smartphone and that it has been transferred to your PC.
@@ -166,13 +161,34 @@ You can choose among three ways to open the Auto Reframe feature in Filmora.
 
 ![filmora](https://images.wondershare.com/filmora/guide/1-auto-reframe-option.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * **Way 2:** Import media as **File** \> **Import Media Files** and select the file. After you import the media, right-click and choose the **Auto Reframe**.
 
 ![filmora](https://images.wondershare.com/filmora/guide/2-auto-reframe-timeline.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * **Way 3:** Lastly, you can choose the **Tools** option on the top menu bar and hit the **Auto Reframe**.
 
 ![filmora](https://images.wondershare.com/filmora/guide/3-auto-reframe-tools.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148771/18498" target="_top" id="2148771">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148771" border="0" alt="https://techidaily.com" width="350" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148771/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 2\. Adjust the Aspect Ratio and Motion Speed**
 
@@ -182,16 +198,10 @@ There are multiple aspect ratio templates available such as square (1:1), vertic
 
 ![filmora](https://images.wondershare.com/filmora/guide/4-select-reframing-aspect-ratio.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 You can adjust the speed of your video in multiple options: keep it at **Auto** or make it **Slow** or **Fast** as per your requirements.
 
 ![filmora](https://images.wondershare.com/filmora/guide/5-select-motion-speed.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Step 3\. Analyze, and Auto Reframe the Video**
 
 Once you finish the above adjustments, hit the **Analysis** tab. Filmora will take a few seconds to finish analyzing your video project.
@@ -201,8 +211,12 @@ Then the video will be automatically and quickly reframed to your specified spee
 ![filmora](https://images.wondershare.com/filmora/guide/7-restart-reframing.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 **Step 4\. Preview the Reframed Video and Check**
 
 Lastly, you can preview your final video. If the video needs more work, you can also play and pause it at the point you want to adjust the frame. You can use **Next Edit Point**, **Undo**, **Redo**, and **Previous Edit Point** at the bottom panel.
@@ -254,23 +268,23 @@ However, we've mainly defined the editing part of Wondershare Filmora except cre
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<a href="https://aligracehair.sjv.io/c/5597632/1938677/19272" target="_top" id="1938677">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938677" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938677/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -279,4 +293,24 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/hriving-on-both-sides-work-and-youtubing-tips-for-2024/"><u>[New] Thriving on Both Sides Work and YouTubing Tips for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-6-free-youtube-outros-for-aspiring-filmmakers/"><u>[Updated] 2024 Approved 6 FREE YouTube Outros for Aspiring Filmmakers</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-decoding-youtubes-mystery-a-sequential-exploration-guide/"><u>[Updated] 2024 Approved Decoding YouTube's Mystery A Sequential Exploration Guide</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-how-to-rip-audio-from-youtube-in-3-ways-free-and-safe/"><u>[Updated] 2024 Approved How to Rip Audio From YouTube in 3 Ways [Free and Safe]</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-top-gamers-tools-premium-gear-lists-on-youtube/"><u>[Updated] 2024 Approved Top Gamers' Tools Premium Gear Lists on YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-diy-unleashing-creative-power-in-animation-effects/"><u>[Updated] In 2024, DIY Unleashing Creative Power in Animation Effects</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-navigating-youtubes-tagging-system-tips-for-finding-prime-video-labels/"><u>[Updated] In 2024, Navigating YouTube's Tagging System Tips for Finding Prime Video Labels</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-leveraging-windows-media-player-your-cd-conversion-companion/"><u>[Updated] Leveraging Windows Media Player Your CD Conversion Companion</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-chortle-to-text-funniest-tone-websites-guide/"><u>2024 Approved Chortle to Text Funniest Tone Websites Guide</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-life360-notify-when-you-log-out-on-samsung-galaxy-a14-5g-drfone-by-drfone-virtual-android/"><u>Does Life360 Notify When You Log Out On Samsung Galaxy A14 5G? | Dr.fone</u></a></li>
+<li><a href="https://windows11.techidaily.com/guide-to-conquering-unexplained-obs-recordings-glitches/"><u>Guide to Conquering Unexplained OBS Recordings Glitches</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-card-on-oppo-reno-8t-online-without-jailbreak-by-drfone-android/"><u>How to Unlock SIM Card on Oppo Reno 8T online without jailbreak</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-the-ultimate-list-of-5-youtube-competitor-editors/"><u>In 2024, The Ultimate List of 5 YouTube Competitor Editors</u></a></li>
+<li><a href="https://media-tips.techidaily.com/leverage-top-seller-deals-on-amazon-prime-day-set-up-your-personalized-plex-media-hub/"><u>Leverage Top-Seller Deals on Amazon Prime Day: Set Up Your Personalized Plex Media Hub</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ating-youtubes-revenue-tools-for-mobile-creators-for-2024/"><u>Navigating YouTube's Revenue Tools for Mobile Creators for 2024</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-iphone-video-editing-showdown-top-5-apps-compared/"><u>New 2024 Approved IPhone Video Editing Showdown Top 5 Apps Compared</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/the-blueprint-to-buzz-generating-posts/"><u>The Blueprint to Buzz-Generating Posts</u></a></li>
+</ul></div>
 

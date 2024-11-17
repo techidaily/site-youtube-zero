@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, How to Effortlessly Eradicate Unwanted Youtube Post-Comments\""
-date: 2024-11-01T09:03:31.681Z
-updated: 2024-11-07T08:27:56.669Z
+date: 2024-11-10T16:02:44.451Z
+updated: 2024-11-17T16:18:19.356Z
 tags:
   - ai video
   - ai youtube
@@ -52,13 +52,6 @@ In this section, we will tell you how you can do it from your desktop.
 
 You also have the option to report the comment or [hide the user from your channel](https://tools.techidaily.com/wondershare/filmora/download/).
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880940/19272" target="_top" id="1880940">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880940" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880940/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How to Delete All YouTube Comments from Mobile?
 
 The steps to deleting someone else’s YouTube comments from your mobile are similar to those from your desktop.
@@ -68,13 +61,6 @@ The steps to deleting someone else’s YouTube comments from your mobile are sim
 3. Select the video from where you want to delete a comment. Scroll down to reach the desired comment.
 4. Once you reach the target comment, click on the three vertical dots at the bottom corner. There should be an option called Remove. Tap on it.
 5. This will create another dialog box on the mobile app where you have to click on Remove again to delete the comment.
-
-<!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## How Do You Delete Your Comments from YouTube?
 
@@ -102,6 +88,13 @@ If it is your video where the comment to be removed is, you can go to My Channel
 1. Once you locate the video, you need to find the comment you want to delete. On the YouTube app, you may need to scroll down for a while to do this.
 2. When you reach it, click on the three vertical dots at the bottom corner of your comment. You should see an option called Delete. Click on that. You need to confirm once more that you want to delete it, and the process will be complete.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006928/19272" target="_top" id="2006928">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Delete Other People’s Comments on Others’ Channels
 
 Did you see a hate comment on your favorite creator’s video? Sadly, you cannot delete the comment. But, you can report it, and YouTube will hide or take it down.
@@ -123,10 +116,10 @@ To find your History from your desktop, you need to click on the three horizonta
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Delete All Your Posted YouTube Comments?
@@ -139,10 +132,16 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484910/16446" target="_top" id="1484910">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484910" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484910/16446" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982459">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
@@ -160,6 +159,13 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 YouTube can be an unsafe place with unwanted comments everywhere. In this blog, we tried to show how you can get rid of comments on your and on others’ YouTube accounts. The next time you see an offensive comment or post something mistakenly, don’t forget to try our tips and make YouTube a safe platform again.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -182,24 +188,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-5-tools-for-cutting-edge-video-title-and-tag-generation/"><u>[New] 2024 Approved 5 Tools for Cutting Edge Video Title & Tag Generation</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-calculating-your-digital-footprint-understanding-views-and-income-from-youtube/"><u>[New] 2024 Approved Calculating Your Digital Footprint Understanding Views & Income From YouTube</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-download-youtube-snippets-with-perfection/"><u>[New] 2024 Approved Download YouTube Snippets with Perfection</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-elevate-your-youtube-presence-strategic-tagging-and-titling-techniques/"><u>[New] 2024 Approved Elevate Your YouTube Presence Strategic Tagging and Titling Techniques</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-inviolable-tactic-to-eliminate-youtube-shorts/"><u>[New] 2024 Approved Inviolable Tactic to Eliminate YouTube Shorts</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-no-more-buffering-choose-from-our-top-15-youtube-playlist-downloads/"><u>[New] 2024 Approved No More Buffering? Choose From Our Top 15 YouTube Playlist Downloads</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-the-artisans-guide-to-backdrop-free-image-perfection-with-photopea/"><u>[New] In 2024, The Artisan's Guide to Backdrop-Free Image Perfection with Photopea</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-professional-recorder-capture-studio-win10-edition-for-2024/"><u>[New] Professional Recorder Capture Studio Win10 Edition for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-quick-ways-to-retain-live-chat-transcripts-for-2024/"><u>[New] Quick Ways to Retain Live Chat Transcripts for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-5-facebook-video-grabbers/"><u>[Updated] 2024 Approved 5 Facebook Video Grabbers</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-wanderlust-wonders-crafting-engaging-travel-content-for-your-audience/"><u>[Updated] 2024 Approved Wanderlust Wonders Crafting Engaging Travel Content for Your Audience</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-discover-strength-in-cinema-our-list-of-motivational-flicks-for-2024/"><u>[Updated] Discover Strength in Cinema Our List of Motivational Flicks for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-pioneering-strategies-in-instavid-world-design-an-optimal-marketing-approach-for-2024/"><u>[Updated] Pioneering Strategies in InstaVid World Design an Optimal Marketing Approach for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/-the-code-of-content-top-6-youtuber-personality-tests-revealed/"><u>Crack the Code of Content Top 6 YouTuber Personality Tests Revealed</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-can-you-transfer-files-from-motorola-edge-40-neo-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How Can You Transfer Files From Motorola Edge 40 Neo To iPhone 15/14/13? | Dr.fone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/-to-create-stunning-thumbnails-in-minutes-for-2024/"><u>Learn to Create Stunning Thumbnails in Minutes for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/olympic-short-track-glory-the-pinnacle-of-2022-speed-skating-for-2024/"><u>Olympic Short Track Glory The Pinnacle of 2022 Speed Skating for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/-start-to-clear-background-filming-for-2024/"><u>Quick Start to Clear Background Filming for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-essential-guide-to-buying-the-best-budget-philips-hf3520-alarm-clock/"><u>The Essential Guide to Buying the Best Budget Philips HF3520 Alarm Clock</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/deal-winter-settings-for-warmer-yt-videos-for-2024/"><u>[New] Ideal Winter Settings for Warmer YT Videos for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/usical-mosaics-15-video-tutorials-on-collaborative-projects/"><u>[New] Musical Mosaics 15 Video Tutorials on Collaborative Projects</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-effective-visual-brand-strategies-for-your-youtube-logo/"><u>[Updated] 2024 Approved Effective Visual Brand Strategies for Your YouTube Logo</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-splitcams-journey-to-video-excellence-an-overview/"><u>[Updated] 2024 Approved SplitCam's Journey to Video Excellence An Overview</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-cut-cost-unlock-creativity-step-by-step-guide-to-professional-green-screen-effects-from-top-4-channels-for-2024/"><u>[Updated] Cut Cost, Unlock Creativity Step-by-Step Guide to Professional Green Screen Effects From Top 4 Channels for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-efficiently-implementing-youtube-end-screens-for-2024/"><u>[Updated] Efficiently Implementing Youtube End Screens for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-how-does-youtube-pay-you-in-2024/"><u>[Updated] How Does YouTube Pay You, In 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-quick-and-easy-audio-extraction-top-6-free-apps-to-convert-youtube-videos-to-mp3/"><u>[Updated] In 2024, Quick & Easy Audio Extraction Top 6 Free Apps to Convert YouTube Videos to MP3</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-best-resources-to-explore-for-personalized-text-enhancements-online/"><u>2024 Approved Best Resources to Explore for Personalized Text Enhancements Online</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-revised-discussion-prompts-for-enhanced-auditory-experience/"><u>2024 Approved Revised Discussion Prompts for Enhanced Auditory Experience</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/2024-approved-troubleshoot-tweets-on-chrome-not-loading/"><u>2024 Approved Troubleshoot Tweets on Chrome Not Loading</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/battling-fraudgpt-threats-essential-protection-tactics/"><u>Battling FraudGPT Threats: Essential Protection Tactics</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ing-conversation-starter-ideas-for-2024/"><u>Exciting Conversation Starter Ideas for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-oppo-find-x7-ultra-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Oppo Find X7 Ultra to Other Android Devices? | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-diving-into-twitter-starting-fresh/"><u>In 2024, Diving Into Twitter Starting Fresh</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-unveiling-the-power-of-free-countdown-tools-for-time-management/"><u>In 2024, Unveiling the Power of Free Countdown Tools for Time Management</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/izing-youtube-exposure-with-ongoing-creative-commons-compliance/"><u>Maximizing YouTube Exposure with Ongoing Creative Commons Compliance</u></a></li>
+<li><a href="https://facebook.techidaily.com/securing-your-pages-with-strategic-admins/"><u>Securing Your Pages with Strategic Admins</u></a></li>
+<li><a href="https://article-posts.techidaily.com/unbeatable-free-livestream-solutions-reviewed-across-all-platforms/"><u>Unbeatable Free Livestream Solutions Reviewed Across All Platforms</u></a></li>
 </ul></div>
 

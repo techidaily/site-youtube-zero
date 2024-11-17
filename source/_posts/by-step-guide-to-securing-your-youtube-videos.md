@@ -1,7 +1,7 @@
 ---
 title: "\"Step-by-Step Guide to Securing Your YouTube Videos\""
-date: 2024-09-02T03:05:32.813Z
-updated: 2024-09-03T03:05:32.813Z
+date: 2024-11-10T16:21:11.968Z
+updated: 2024-11-17T16:33:09.097Z
 tags:
   - ai video
   - ai youtube
@@ -60,6 +60,13 @@ thumbnail: https://thmb.techidaily.com/41de1135ff58d32185caafd7a16e179b6c3f3f0f5
 
 ![youtube privacy setting](https://images.wondershare.com/filmora/article-images/youtube-privacy-setting.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094476/7443" target="_top" id="2094476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094476" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094476/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to Change Privacy Settings
 
  There are two ways to change the privacy settings: firstly, when you upload the video, and secondly through Creator Studio.
@@ -70,6 +77,13 @@ thumbnail: https://thmb.techidaily.com/41de1135ff58d32185caafd7a16e179b6c3f3f0f5
 
 ![upload youtube video privacy](https://images.wondershare.com/filmora/article-images/upload-youtube-video-privacy.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Method 2:**
 
  To change the privacy setting later, go to Creator Studio, then Video Manager. On the right-hand side you’ll see one of three icons: a world, a chain, and a lock. The world means **"public"**, the chain means **"unlisted"**, and the lock is for **"private"**.
@@ -79,8 +93,12 @@ thumbnail: https://thmb.techidaily.com/41de1135ff58d32185caafd7a16e179b6c3f3f0f5
  To change the privacy, click the icon. You’ll be taken to the video's info and settings page. Down below where you see the thumbnails you'll see the selected privacy setting. Click this to open a drop down menu, and select your desired privacy level.
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2049363/7443" target="_top" id="2049363">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049363" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049363/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 3: Sharing Private Videos
 
  If a video is set to "private', you'll have the option to share it with specific people. Below where it says "private" on the info and settings page you'll see a button labeled "share". Click this and type in the email addresses of the people you want to be able to watch the video. You’ll also have the option of notifying the people via email that you’ve shared the video with them.
@@ -88,41 +106,31 @@ thumbnail: https://thmb.techidaily.com/41de1135ff58d32185caafd7a16e179b6c3f3f0f5
 ![share youtube privacy video](https://images.wondershare.com/filmora/article-images/share-private-video.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
+
 ## Conclusion
 
  And that's all there is to it! Changing the privacy setting on YouTube videos is a simple, helpful tool to allow you to control the audience of you work. Enjoy!
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -131,4 +139,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/du-odyssey-journey-through-top-learning-sites/"><u>[New] Edu-Odyssey Journey Through Top Learning Sites</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/lite-filmmakers-merging-sounds-images/"><u>[New] Elite Filmmakers Merging Sounds, Images</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ind-rich-ambiance-for-video-content-in-2024/"><u>[New] Find Rich Ambiance for Video Content, In 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-building-a-bountiful-beauty-channel-fortune/"><u>[Updated] In 2024, Building a Bountiful Beauty Channel Fortune</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-mastering-the-art-of-viral-video-marketing/"><u>[Updated] In 2024, Mastering the Art of Viral Video Marketing</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-superior-third-ranked-ipad-recording-apps/"><u>[Updated] In 2024, Superior Third-Ranked iPad Recording Apps</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-income-growth-in-gaming-videos/"><u>2024 Approved Income Growth in Gaming Videos</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-memetic-flesh-eater-artist/"><u>2024 Approved Memetic Flesh Eater Artist</u></a></li>
+<li><a href="https://article-helps.techidaily.com/conquer-youtube-photos-an-experts-step-by-step-guide-for-2024/"><u>Conquer YouTube Photos An Expert's Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-the-distinctions-of-ipad-and-ipad-air-models/"><u>Exploring the Distinctions of iPad and iPad Air Models</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-the-ultimate-checklist-for-achieving-high-quality-vocal-recordings/"><u>In 2024, The Ultimate Checklist for Achieving High-Quality Vocal Recordings</u></a></li>
+<li><a href="https://win-superb.techidaily.com/seamless-migration-upgrading-from-windows-7-8-or-81-to-windows/"><u>Seamless Migration: Upgrading From Windows 7, 8, or 8.1 to Windows</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/transform-sluggish-to-speedy-on-android-vids/"><u>Transform Sluggish to Speedy on Android Vids</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/unveiling-electronic-secrets-with-toms-hardware-analysis/"><u>Unveiling Electronic Secrets with Tom's Hardware Analysis</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-nubia-red-magic-8s-pro-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On Nubia Red Magic 8S Pro? | Dr.fone</u></a></li>
+</ul></div>
 

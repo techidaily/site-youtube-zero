@@ -1,7 +1,7 @@
 ---
 title: "[New] Top 8 Pitfalls for Novice YouTube Creators"
-date: 2024-08-28T13:06:06.578Z
-updated: 2024-08-29T13:06:06.578Z
+date: 2024-11-15T16:33:08.751Z
+updated: 2024-11-17T16:50:54.203Z
 tags:
   - ai video
   - ai youtube
@@ -38,15 +38,18 @@ One common mistake that a lot of new YouTubers make is failing to have a long-te
 
 If you can think of the kind of content you’ll love to consistently create and share in the long-run, you’ll not only be able to narrow down your brand and effectively communicate to your audience who you are and what your channel is all about, but you’ll also have a better idea on what to put out next.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ### 2\. Choosing an ineffective custom URL
 
 Another mistake I made with my first YouTube channel was choosing an ineffective custom URL. Because my last name is Kim, I wanted to make my custom URL “YouTube.com/kimagination.” But it wasn’t available. So, I took “kimaginati0n” with a zero where the “o” should be. I thought it was a good idea back then but it was a terrible idea.
 
 Choose a custom URL with words that can’t be confused with other similar-sounding words. For consistency across all your different social media accounts, try to choose a custom URL that matches the usernames of all your other social media channels. If the username you want isn’t available, then keep on trying to come up with a good name that is available. When you’ve secured the same username across all your different social media channels, you can then very simply promote yourself and all your social media channels by displaying just the social media icons followed by your one username.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997675/19272" target="_top" id="1997675">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997675" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997675/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Coming up with titles that won't get searched
 
@@ -57,17 +60,18 @@ Big YouTubers can take advantage of non-searched, curiosity evoking titles like 
 As an example, let's suppose you vlogged your time backpacking around Europe last summer. Don't title your YouTube video "My Summer Backpacking Trip." Instead, title it "Going Up The Eiffel Tower | Beautiful View of Paris!" This way, all the people who are curious about visiting Paris, the Eiffel Tower, and seeing what the view is like from the top of the Eiffel Tower might find your video.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 4\. Failing to have a thumbnail strategy
 
 New YouTubers tend to think about their thumbnail images after they’ve finished editing their videos together. This is way too late in the process for something that is so incredibly important in getting views.
 
 Even before filming, you should think about how you’re going to title your video to get the most views. After that, you should then try to picture, in your head, a thumbnail image that matches your title and creates curiosity and excitement. When you go into filming, you can then make sure to include some footage of you recreating that image.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ### 5\. Making weak intros
 
 After you’ve managed to get someone to click on your video through your effective title and thumbnail image strategy, the next challenge is to keep that person watching your video without closing it too early. A typical viewer on YouTube decides within the first ten to fifteen seconds of landing on a video whether or not he or she will stay or leave. This short window of time is so important to set the tone of the rest of your video and build excitement and curiosity in your viewer with an effective, high-energy intro.
@@ -77,8 +81,12 @@ New YouTubers often make the mistake of having weak intros. Starting at the begi
 To read more on how some of the most successful YouTubers effectively do their intros, check out my blogpost on “[How To Edit YouTube Videos Like a YouTuber](https://tools.techidaily.com/wondershare/filmora/download/).”
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<a href="https://appsumo.8odi.net/c/5597632/2049382/7443" target="_top" id="2049382">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049382" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049382/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 6\. Forgetting to engage with subscribers
 
 An important thing to do as a new YouTuber is engaging with your subscribers. Some new YouTubers, though, are so focused and busy with the production side of things that they forget to do the community side of things, including responding to comments. By not responding to comments as a new YouTuber, you hurt your potential to get more comments consistently from your subscribers. If your video’s comments section is very active, YouTube ranks your video higher in the videos it recommends to viewers.
@@ -91,9 +99,6 @@ YouTube isn’t the only social media platform that people are spending their ti
 
 New YouTubers sometimes forget to promote their videos and channel using other social media platforms. Consequently, they miss out on the opportunity to get views from multiple sources of social media.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 8\. Spamming comments
 
 Commenting on other YouTube videos is another way to get your channel discovered from people reading over comments. If your profile picture and comment appears interesting enough, out of curiosity, people just might click your username to have a look at your channel.
@@ -105,22 +110,23 @@ Spam comments annoy YouTubers. It would be much more beneficial to your channel 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -129,4 +135,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/n-in-depth-look-at-video-apps-for-iphone-and-android-users-for-2024/"><u>[New] An In-Depth Look at Video Apps for iPhone & Android Users for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/utting-edge-creativity-top-editors-for-online-sharing-for-2024/"><u>[New] Cutting-Edge Creativity Top Editors for Online Sharing for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-unlocking-the-power-of-hashtags-in-youtube-gaming-culture/"><u>[New] In 2024, Unlocking the Power of Hashtags in YouTube Gaming Culture</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-inside-sharex-assessments-and-counterparts/"><u>[New] Inside ShareX Assessments & Counterparts</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nique-channel-branding-how-to-personalize-your-youtube-url/"><u>[New] Unique Channel Branding How to Personalize Your YouTube Url</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-ensuring-your-tweets-meet-aspect-ratio-norms/"><u>[Updated] 2024 Approved Ensuring Your Tweets Meet Aspect Ratio Norms</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-step-by-step-guide-to-crafting-exciting-mobile-intros/"><u>[Updated] 2024 Approved Step-By Step Guide to Crafting Exciting Mobile Intros</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-large-display-medium-network-selection-tips/"><u>[Updated] In 2024, Large Display Medium Network Selection Tips</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-leading-edge-innovations-for-your-daily-life/"><u>[Updated] Leading Edge Innovations for Your Daily Life</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/apples-major-launch-event-highlights-the-new-era-of-tablets-begins-with-m4-ipad-pro-upgraded-13-inch-ipad-air-and-enhanced-apple-pencil-insights-from-cnet.m144/"><u>Apple's Major Launch Event Highlights: The New Era of Tablets Begins with M4 iPad Pro, Upgraded 13-Inch iPad Air & Enhanced Apple Pencil - Insights From CNET</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-remove-the-activation-lock-on-your-ipad-and-iphone-14-without-apple-account-by-drfone-ios/"><u>In 2024, How to Remove the Activation Lock On your iPad and iPhone 14 without Apple Account</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ating-multi-platform-engagement-for-content-creators/"><u>Navigating Multi-Platform Engagement for Content Creators</u></a></li>
+<li><a href="https://program-issues.techidaily.com/overcome-hitman-3-crashing-problems-on-your-pc-latest-solutions/"><u>Overcome Hitman 3 Crashing Problems on Your PC - Latest Solutions</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/quick-fix-guide-overcoming-steam-game-installation-errors/"><u>Quick Fix Guide: Overcoming Steam Game Installation Errors</u></a></li>
+</ul></div>
 

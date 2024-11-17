@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Top 9 Complimentary Christmas Films on YouTube\""
-date: 2024-08-28T13:08:47.416Z
-updated: 2024-08-29T13:08:47.416Z
+date: 2024-11-11T16:16:03.054Z
+updated: 2024-11-17T16:03:24.849Z
 tags:
   - ai video
   - ai youtube
@@ -35,52 +35,62 @@ The Nutcracker is a holiday classic that many people seek out every year on the 
 A Smoky Mountain Christmas is a film from 1986 directed by Harry Winkler and starring Lee Majors and Dolly Parton. The full musical fairy tale can be found online on YouTube and it's about a country singer who is trying to spend a quiet Christmas holiday at home. She suddenly becomes involved with a mysterious mountain man, an evil witch and is forced to protect seven orphans over the holidays. This film can be found at:
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 3. Ernest saves Christmas
 
 This film from 1989 features Jim Varney and his most famous character Ernest in a holiday Christmas movie that is an instant classic. This film is very funny and a favorite amongst some of the Ernest films for many. This Christmas movie from 1989 can be found at:
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
-<!-- affiliate ads end -->
 ### 4. A Christmas story
 
 A Christmas story has long been one of the favorite Christmas movies for many families. In this film from 1983 we travel back in time to a traditional 1940s Christmas. In this film we follow the nine-year-old Ralphie who is looking for the famous red Ryder BB gun for Christmas and will stop at absolutely nothing to get it. A Christmas story can be found at:
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
-<!-- affiliate ads end -->
 ### 5. Richie Rich's Christmas wish
 
 In this film from 1998 we hear the story of the richest kid in the world on Christmas. In this film we see the richest in the world wishing that he had never been born with the wish coming true. Richie needs to find himself a new wishing machine and a way out of the parallel universe he gets stuck in to get back to his family. You can find this film at:
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 6. On the second day of Christmas
 
 This film stars the hulk Mark Ruffalo in one of his earlier roles as a store employee who catches a con woman trying to steal from a department store on Christmas. His character agrees to be responsible for the con woman and her niece over the holidays to prevent them from staying with social services. A romance develops! This 1997 film can be found at:
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ### 7. Santa Who?
 
 Santa who is a film from the year 2000 starring Leslie Nielsen. In this holiday classic Santa suffers a severe case of amnesia on Christmas Eve and needs to recover for Christmas day in order to make it through and deliver presents to all of the good children of the world. See if Santa gets his Christmas memories back by watching Santa Who here:
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144289/7443" target="_top" id="2144289">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144289" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144289/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 8. A Christmas Carol
 
 In this film from 1984 George C Scott brings to life the role of Ebenezer Scrooge from the perspective of the Charles Dickens novel. This is heavily been regarded as one of the most accurate versions to the Charles Dickens story. Although it may not have all of the special effects of some of the other versions of a Christmas carol this is still one of the favored versions of the story out there. You can watch this 1984 film here:
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### 9. Miracle on 34th street
 
 In this recreation of the original film from 1947 this shortened full-length version from 1955 per trade is the classic story of santa on trial. A department store Santa suggests that he's the real santa and goes on trial to prove it. In this version of miracle on 34th Street starring Thomas Mitchell and Macdonald Carey we learn who really believes in Santa Claus. You can find this classic film here:
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -88,14 +98,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -104,4 +111,24 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/nalyzing-youtube-adrevenue-average-payments-by-thousands-of-views/"><u>[New] Analyzing Youtube AdRevenue Average Payments by Thousands of Views</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/arn-wisely-the-simple-triad-method-for-scrutinizing-youtube-profits/"><u>[New] Earn Wisely The Simple Triad Method for Scrutinizing YouTube Profits</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-mastering-acoustic-transitions-in-audacity-pro-suite/"><u>[New] Mastering Acoustic Transitions in Audacity Pro Suite</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/he-smartphones-role-in-video-content-making-youtube-thumbnails-stand-out-for-2024/"><u>[New] The Smartphone's Role in Video Content Making YouTube Thumbnails Stand Out for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-content-creator-acclaim-through-subscriber-recognition/"><u>[Updated] 2024 Approved Content Creator Acclaim Through Subscriber Recognition</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-mastering-video-success-a-list-of-20-pro-shortcuts/"><u>[Updated] 2024 Approved Mastering Video Success A List of 20 Pro Shortcuts</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-breaking-down-the-barriers-to-knowing-your-fans-for-2024/"><u>[Updated] Breaking Down the Barriers to Knowing Your Fans for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-brighten-up-your-gameplay-tips-to-fix-a-black-screen-on-obs-for-2024/"><u>[Updated] Brighten Up Your Gameplay Tips to Fix a Black Screen on OBS for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/essential-knowledge-on-openais-ethos/"><u>Essential Knowledge on OpenAI's Ethos</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-life360-notify-when-you-log-out-on-vivo-y200-drfone-by-drfone-virtual-android/"><u>In 2024, Does Life360 Notify When You Log Out On Vivo Y200? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-vivo-t2x-5g-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Vivo T2x 5G Location without Installing Software? | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-navigating-the-world-of-live-video-sharing-with-ease/"><u>In 2024, Navigating the World of Live Video Sharing with Ease</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ative-strategies-for-amplifying-subscriber-numbers-via-channel-branding/"><u>Innovative Strategies for Amplifying Subscriber Numbers via Channel Branding</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/ipogo-will-be-the-new-ispoofer-on-samsung-galaxy-a23-5g-drfone-by-drfone-virtual-android/"><u>iPogo will be the new iSpoofer On Samsung Galaxy A23 5G? | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/making-the-most-of-microsoft-project-keys/"><u>Making the Most of Microsoft Project Keys</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/inematographers-journey-shooting-top-notch-youtube-content-for-2024/"><u>The Cinematographer's Journey Shooting Top-Notch YouTube Content for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/windows-11-without-wi-fi-a-complete-guidebook/"><u>Windows 11 Without Wi-Fi: A Complete Guidebook</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Mastering Video Lighting Techniques\""
-date: 2024-08-28T13:05:04.696Z
-updated: 2024-08-29T13:05:04.696Z
+date: 2024-11-13T16:47:04.493Z
+updated: 2024-11-17T16:16:40.695Z
 tags:
   - ai video
   - ai youtube
@@ -44,12 +44,22 @@ The **fill light** is less bright than the primary source of light and it is pla
 
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Watch Video! Top Lighting Tips for Vlogging
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<a href="https://bluetties.sjv.io/c/5597632/2141688/17094" target="_top" id="2141688">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141688" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141688/17094" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Lightning Tips for Aspiring YouTube Videographers
 
 Becoming the master of light will take some time and practice, so it is crucial to remain curious and anxious to learn new tricks throughout that process if you want to continually become better. These tips will help you make the first steps on that journey.
@@ -77,17 +87,18 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<a href="https://aligracehair.sjv.io/c/5597632/1972665/19272" target="_top" id="1972665">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972665" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972665/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
 
 If you are hosting a **beauty vlog** then you might consider a slightly different set up. Instead of having your main light off to one side set it up directly in front of you so your entire face is lit evenly. It is still a good idea to use fill lights in this set up to give you some dimension, and a backlight is even more essential for helping you stand out from the background. The even light hitting your face will also make you look flat if you do not use a backlight.
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
-<!-- affiliate ads end -->
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
 
 If you are stuck shooting in **low light conditions** it is best to use a lens with a wider aperture/lower f-stop. This will make the best of the light you do have.
@@ -95,22 +106,23 @@ If you are stuck shooting in **low light conditions** it is best to use a lens w
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1934188/19272" target="_top" id="1934188">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934188" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934188/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -119,4 +131,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/xplore-the-best-8-mirrorless-cameras-for-youtube-vloggers/"><u>[New] Explore the Best 8 Mirrorless Cameras for YouTube Vloggers</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/trategic-play-tips-by-top-game-masters/"><u>[New] Strategic Play Tips by Top Game Masters</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-perfect-your-asmr-recordings-with-these-mic-choices/"><u>[Updated] 2024 Approved Perfect Your ASMR Recordings with These Mic Choices</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-does-recording-your-viewed-youtube-content-violate-laws/"><u>[Updated] Does Recording Your Viewed YouTube Content Violate Laws?</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-enhance-visibility-youtube-thumbnails-made-simple/"><u>[Updated] In 2024, Enhance Visibility YouTube Thumbnails Made Simple</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-premiere-masterclass-making-your-videos-shine-on-youtube/"><u>[Updated] In 2024, Premiere Masterclass Making Your Videos Shine on YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-digital-detective-finding-and-watching-yt-archives/"><u>2024 Approved Digital Detective Finding and Watching YT Archives</u></a></li>
+<li><a href="https://common-error.techidaily.com/banishing-shadows-proven-fixes-for-google-chromes-unwanted-blackout/"><u>Banishing Shadows: Proven Fixes for Google Chrome's Unwanted Blackout</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/bringing-favorite-manga-characters-to-life-in-tiktok-for-2024/"><u>Bringing Favorite Manga Characters to Life in TikTok for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/how-to-prevent-your-android-from-unwanted-bluetooth-connections-a-simple-guide/"><u>How to Prevent Your Android From Unwanted Bluetooth Connections – A Simple Guide</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-breakneck-broadcast-channel-your-youtube-list/"><u>In 2024, Breakneck Broadcast Channel Your YouTube List</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-lava-blaze-2-drfone-by-drfone-virtual-android/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Lava Blaze 2? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-pause-life360-location-sharing-for-realme-c67-4g-drfone-by-drfone-virtual-android/"><u>In 2024, How To Pause Life360 Location Sharing For Realme C67 4G | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-mastering-video-visibility-settings-on-youtube/"><u>In 2024, Mastering Video Visibility Settings on YouTube</u></a></li>
+<li><a href="https://driver-download.techidaily.com/update-your-sound-card-drivers-with-the-newest-m-audio-fast-track-for-win11win7win8and81-free-downloads-available/"><u>Update Your Sound Card Drivers with the Newest M-Audio Fast Track for Win11/Win7/Win8&8.1 – Free Downloads Available!</u></a></li>
+<li><a href="https://discover-able.techidaily.com/1728494041388-windows-11/"><u>Windows 11対応の「ファイル移動ツール」選び方：失わないでください、最新情報</u></a></li>
+</ul></div>
 

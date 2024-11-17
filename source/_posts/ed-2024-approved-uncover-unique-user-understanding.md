@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Uncover Unique User Understanding\""
-date: 2024-08-28T13:05:35.543Z
-updated: 2024-08-29T13:05:35.543Z
+date: 2024-11-10T16:36:00.489Z
+updated: 2024-11-17T16:06:54.114Z
 tags:
   - ai video
   - ai youtube
@@ -70,13 +70,30 @@ It is one of the most user-friendly and ad-free random comment pickers available
 
 ![Hadzy YouTube comment   search feature](https://images.wondershare.com/filmora/article-images/hadzy-youtube-comment-finder.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * In the next step, you will be redirected to another pop-up with two buttons- 'View Comments' and 'View Statistics.' Click on View Comments to check the first, second and all the other comments in ascending order.
 * **Unique feature 1:** By clicking the View Statistics button, you can get a track of the popular words used in the comment section and the top questions asked by your followers.
 * **Unique feature 2:** Along with the comment, details of the user, time of commenting, and many more things can be extracted from Hadzy.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975555">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## **Part 2:** **How to Find the First Comments You Have Posted on YouTube?**
 
 There are times when you regret what you've commented on in the past or wish to go back and look up your first message on YouTube. However, it is not always possible to recall the channel or video where you left the comment.
@@ -90,16 +107,10 @@ Everything you have to do now follows the steps below. For the following methods
 
 ![  YouTube comment  history search ](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 By these basic steps, enjoy editing or deleting your comments and replies directly on YouTube!
 
 However, you will have to scroll down a long way before you hit the end to see your first comment posted on YouTube.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 3: How to Find the Latest Comments you have received on YouTube?
 
 You do not get notifications about comments left on your YouTube videos at times. Mostly, it's due to your notification preferences. When you enable comment notifications, you'll be informed of all the latest comments on your videos. And this, in turn, allows you to keep track of your followers and engage with them more easily.
@@ -118,8 +129,18 @@ These steps are convenient both for pc as well as a mobile app. Just follow thre
 * Click on the bell icon at the top right corner and there you would receive notifications regarding all the comment activities. Click on the particular notification to go to that comment.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<span id="1983475">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Bonus: How to Change the Comments View Order?
 
 Did you know you can also customize your comment section as per your need? On the watch page for your video, you can rearrange the order of the comments. You may sort the comments by top comments or by date added. It's just simple steps ahead.
@@ -130,8 +151,12 @@ Did you know you can also customize your comment section as per your need? On th
 ![  YouTube comment  and rating settings ](https://images.wondershare.com/filmora/article-images/set-up-comment-ratings.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<a href="https://arkmc.pxf.io/c/5597632/352557/5172" target="_top" id="352557">
+  <img src="//a.impactradius-go.com/display-ad/5172-352557" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352557/5172" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 * Under 'Comments and ratings,' select Sort by, and then choose between "Top" and "Newest."
 * Save the changes, and you are done!
 
@@ -145,23 +170,17 @@ YouTube Comments Finder helps you keep track of the good and bad comments in you
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -170,4 +189,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-unseen-horizons-hot-list-of-vr-peripherals-top-10/"><u>[New] 2024 Approved Unseen Horizons Hot List of VR Peripherals (Top 10)</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/slrs-place-among-mirrorless-cameras-for-videos/"><u>[New] DSLR's Place Among Mirrorless Cameras for Videos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-conquer-the-crowd-initiating-your-top-ranked-gaming-channel/"><u>[New] In 2024, Conquer the Crowd Initiating Your Top-Ranked Gaming Channel</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-mirthful-stream-retriever-review/"><u>[New] In 2024, Mirthful Stream Retriever Review</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/rofit-making-techniques-for-beauty-vloggers-for-2024/"><u>[New] Profit-Making Techniques for Beauty Vloggers for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-the-perfect-path-from-srt-to-multiple-subtitle-standards/"><u>[New] The Perfect Path From SRT to Multiple Subtitle Standards</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/op-28-youtube-music-splitters-for-easy-audio-extraction/"><u>[New] Top 28 YouTube Music Splitters for Easy Audio Extraction</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-webcammastery-practicalrecordingsteps-for-2024/"><u>[New] WebCamMastery PracticalRecordingSteps for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-financial-forecasts-in-focus-select-stock-youtube-channels/"><u>[Updated] 2024 Approved Financial Forecasts in Focus Select Stock YouTube Channels</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-the-mobile-filmmakers-blueprint-crafting-viral-thumbnails-for-youtubes/"><u>[Updated] 2024 Approved The Mobile Filmmaker's Blueprint Crafting Viral Thumbnails for YouTubes</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-channel-personality-complimentary-youtube-graphics-for-2024/"><u>[Updated] Channel Personality Complimentary YouTube Graphics for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-reach-audience-zenith-peak-watch-timings-uncovered/"><u>[Updated] In 2024, Reach Audience Zenith - Peak Watch Timings Uncovered</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-the-performers-playbook-avoiding-common-mistakes-in-ppt-voiceovers/"><u>[Updated] In 2024, The Performer's Playbook Avoiding Common Mistakes in PPT Voiceovers</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-unlock-content-revenue-accessing-youtubes-partner-benefits/"><u>2024 Approved Unlock Content Revenue Accessing YouTube's Partner Benefits</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/get-your-channels-for-free-with-amazonbasics-flat-antenna-the-budget-solution/"><u>Get Your Channels for Free with AmazonBasics Flat Antenna - The Budget Solution</u></a></li>
+<li><a href="https://techidaily.com/how-to-get-out-of-recovery-or-dfu-mode-on-apple-iphone-7-plus-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Get Out of Recovery or DFU Mode on Apple iPhone 7 Plus? | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-the-ultimate-guide-to-bypassing-icloud-activation-lock-from-iphone-14-plus-by-drfone-ios/"><u>In 2024, The Ultimate Guide to Bypassing iCloud Activation Lock from iPhone 14 Plus</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/inception-filming-review-examination-for-2024/"><u>Inception Filming Review Examination for 2024</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-get-rid-of-filmora-watermark-with-or-without-subscription-for-2024/"><u>Updated Get Rid of Filmora Watermark With or Without Subscription for 2024</u></a></li>
+</ul></div>
 

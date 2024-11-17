@@ -1,7 +1,7 @@
 ---
 title: "\"Beyond the Basics  Advanced Techniques for Improved Recordings\""
-date: 2024-11-04T20:37:34.044Z
-updated: 2024-11-07T03:32:13.742Z
+date: 2024-11-14T16:20:13.451Z
+updated: 2024-11-17T16:05:03.502Z
 tags:
   - ai video
   - ai youtube
@@ -50,35 +50,55 @@ Wondershare Filmora has great recording features that enable you to [record scre
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880940/19272" target="_top" id="1880940">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880940" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880940/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **1\. Silence everything you don’t want your microphone to record**
 
 When you’re recording audio, you have to be more aware of the subtle sounds that drone on in your background. These sounds may include humming from machines with fans, buzzing from lights, and jingling from your pet’s collar. Observe your recording space and find ways to silence everything that you don’t want in your audio recording.
 
 <!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
-  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
+  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **2\. Put your mobile phone in airplane mode**
 
 Although it may be quite obvious to turn your phone’s ring tone off when you’re recording, it may not be as obvious to put your phone in airplane mode. When phones receive calls or perform searches as part of their background processes, they emit signals that can get picked up by your recording system. Avoid ruining good takes with unwanted sounds of phone signals by putting your phones in airplane mode.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **3\. Minimize echo**
 
 If you are recording yourself talk or sing, make sure to set up your recording space in a way where the sound projected from your voice bounces minimally off the walls and back to your microphone. Bare walls and hardwood floors will cause a lot of bouncing. Make use of materials that will absorb your sound rather than bounce it, like a thick rug or a comforter. If you want your voice to echo, that’s something you should do in post-production.
 
+<!-- affiliate ads begin -->
+<span id="1975658">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **4\. Block wind from reaching your microphone**
 
 Although it might not sound so loud and distracting to the naked ear, wind sounds terribly loud through a microphone recording and can cause your audio to clip (distortion of waveform due to output of sound exceeding maximum capacity or 0 dB point). This includes the “wind” that comes out of your mouth when you pronounce words starting with the letter “p.” Use pop filters, windscreens, and deadcats to block wind from reaching your microphone.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915805/19272" target="_top" id="1915805">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915805" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915805/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **5\. Upgrade your microphone**
 
@@ -98,19 +118,6 @@ If you’re recording separate audio that you plan to sync to your video later i
 
 Unless you’re aiming to record ambient sound, bring your microphone close to the source of sound you are wanting to record. The closer your microphone is to the source of sound, the lower your sensitivity setting can be on your microphone. As a result of lowering your levels, sounds you are not meaning to record will also sound fainter.
 
-<!-- affiliate ads begin -->
-<span id="1938136">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **9\. ADR**
 
 When you need to record a scene in a loud setting where you have very little control over the noise, record additional vocals later and replace the original vocals through a process called automated dialogue replacement.
@@ -120,13 +127,6 @@ When you need to record a scene in a loud setting where you have very little con
 Remember to record ambient sound or “room tone.” You can use these recordings to fill in the blanks if you run out of audio and also smooth out parts of your audio where you hear pops, clicks, and other unwanted noise.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052063/7443" target="_top" id="2052063">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052063" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052063/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -149,21 +149,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-direct-transmission-of-google-meet-into-your-youtube-playlist/"><u>[New] 2024 Approved Direct Transmission of Google Meet Into Your YouTube Playlist</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-discovering-the-best-youtube-mp3-transformers/"><u>[New] 2024 Approved Discovering the Best YouTube MP3 Transformers</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-navigating-the-best-mobile-asmr-worldwide/"><u>[New] 2024 Approved Navigating the Best Mobile ASMR Worldwide</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-navigating-youtubes-revenue-tools-for-mobile-creators/"><u>[New] 2024 Approved Navigating YouTube's Revenue Tools for Mobile Creators</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-prime-selection-of-7-top-rated-android-adblocking-apps/"><u>[New] 2024 Approved Prime Selection of 7 Top-Rated Android AdBlocking Apps</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-filmoras-competitors-the-ultimate-list-of-top-notch-free-template-collections/"><u>[New] Filmora's Competitors The Ultimate List of Top-Notch, Free Template Collections</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-in-2024-top-10-hidden-strategies-in-canvas-image-design-toolkit/"><u>[New] In 2024, Top 10 Hidden Strategies in Canva's Image Design Toolkit</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/new-securely-distributing-exclusive-youtube-videos-through-gmail/"><u>[New] Securely Distributing Exclusive YouTube Videos Through Gmail</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-top-15-must-try-iphone-vr-apps-for-everyday-gamers/"><u>[New] Top 15 Must-Try IPhone VR Apps for Everyday Gamers</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-streamline-audio-podcasts-made-easy-for-iphones/"><u>2024 Approved Streamline Audio Podcasts Made Easy for iPhones</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/-piracy-safe-youtube-to-mp4-conversion-tips/"><u>Avoid Piracy Safe YouTube to MP4 Conversion Tips</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/best-mac-screen-capture-tools/"><u>Best Mac Screen Capture Tools</u></a></li>
-<li><a href="https://techtrends.techidaily.com/discovering-your-hidden-reel-collection-a-guide-to-finding-saved-instagram-stories/"><u>Discovering Your Hidden Reel Collection: A Guide to Finding Saved Instagram Stories</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/-to-profiting-from-youtube-shorts-key-requirements-and-potential-income-for-2024/"><u>Guide to Profiting From YouTube Shorts Key Requirements & Potential Income for 2024</u></a></li>
-<li><a href="https://article-helps.techidaily.com/mastering-photo-text-edits-online-and-app-guide/"><u>Mastering Photo Text Edits Online & App Guide</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/shadow-of-a-vulkan-compatible-gpu/"><u>Shadow of a Vulkan-Compatible GPU</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-enabling-effortless-speech-translation-to-text-within-powerpoint-slides/"><u>[New] 2024 Approved Enabling Effortless Speech Translation to Text Within PowerPoint Slides</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-visual-victory-apple-and-android-highlight-covers/"><u>[New] 2024 Approved Visual Victory Apple & Android Highlight Covers</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-elevate-your-youtube-presence-with-audio/"><u>[New] In 2024, Elevate Your Youtube Presence with Audio</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/hat-to-expect-from-an-investment-in-youtube-premium-for-2024/"><u>[New] What to Expect From an Investment in YouTube Premium for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-visual-flow-control-simple-fade-strategies/"><u>[Updated] 2024 Approved Visual Flow Control Simple Fade Strategies</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-historical-knowledge-at-your-fingertips-best-yt-history-channels-for-2024/"><u>[Updated] Historical Knowledge at Your Fingertips Best YT History Channels for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-the-youtube-studio-masterclass-elevating-your-edits/"><u>[Updated] In 2024, The YouTube Studio Masterclass Elevating Your Edits</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-uncompromised-quality-activate-av1-for-youtube-streams/"><u>[Updated] In 2024, Uncompromised Quality Activate AV1 for YouTube Streams</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-interactive-av-media-collective/"><u>2024 Approved Interactive AV Media Collective</u></a></li>
+<li><a href="https://extra-information.techidaily.com/expert-tips-building-meme-foundations/"><u>Expert Tips Building Meme Foundations</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/how-to-get-the-voice-chat-function-back-on-in-discord-solutions-here/"><u>How To Get The Voice Chat Function Back On In Discord - Solutions Here</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-simulate-gps-movement-with-location-spoofer-on-realme-c51-drfone-by-drfone-virtual-android/"><u>How To Simulate GPS Movement With Location Spoofer On Realme C51? | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-revolutionary-techniques-mastering-visual-arts-with-the-top-10-free-youtube-tutorials/"><u>In 2024, Revolutionary Techniques Mastering Visual Arts with the Top 10 Free YouTube Tutorials</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-2024-approved-s-top-music-video-makers-elevate-your-sound-with-style/"><u>New 2024 Approved S Top Music Video Makers Elevate Your Sound with Style</u></a></li>
 </ul></div>
 

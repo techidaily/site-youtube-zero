@@ -1,7 +1,7 @@
 ---
 title: "[New] Searching Comments on YouTube for 2024"
-date: 2024-09-02T03:05:01.229Z
-updated: 2024-09-03T03:05:01.229Z
+date: 2024-11-12T17:01:23.791Z
+updated: 2024-11-17T17:05:45.540Z
 tags:
   - ai video
   - ai youtube
@@ -61,6 +61,13 @@ Besides the comment search feature, the YouTube Studio also has some in-built se
 
 You can combine these additional filters to narrow your comments search for YouTube.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Using YCS – YouTube Comment Search Extension
 
 You can use the YouTube Comment Search browser extension supported by Google Chrome to help you search YouTube comments effortlessly. To use it, follow these steps below.
@@ -74,8 +81,12 @@ You can use the YouTube Comment Search browser extension supported by Google Chr
 ![ YouTube Comment Search Extension](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 3: Using Comments Search for YouTube Extension
 
 If you are looking for an easy method to search YouTube comments, you can use the Comments Search for YouTube extension. Google Chrome supports this extension that allows you to search comments on YouTube without leaving the website.
@@ -103,8 +114,12 @@ This mode allows you to enter special commands to carry out an advanced search. 
 3. ‘:creator’ to get comments made by the creator
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 4: How Do You Search Comments You Have Posted on YouTube?
 
 Did you post a comment on your favorite celebrity’s video? Do you think it may be embarrassing and want to delete it now but cannot find it now amidst so many comments? It is where you can make use of YouTube’s Comment History feature.
@@ -112,8 +127,12 @@ Did you post a comment on your favorite celebrity’s video? Do you think it may
 YouTube has now added this feature which you can see all the comments you ever posted on YouTube in one place.
 
 <!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### How to Use the Comment History feature to Search Comments?
 
 You can see all the comments you have posted in the Comment History in a few quick steps.
@@ -124,14 +143,8 @@ You can see all the comments you have posted in the Comment History in a few qui
 
 ![ YouTube History Comment](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 You can also access the Comments History page directly from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 5: How to Find Out Who Posts the Most Comments on Your YouTube Videos?
 
 If you are a creator on YouTube, the comments section becomes very important. Subscribers comment words of praise, encouragement, and feedback which help you grow. You may want to keep track of your most loyal followers. The best way to know that is by knowing who comments most on your videos.
@@ -155,23 +168,17 @@ Find feedback or questions. Report offensive comments. If you are a regular YouT
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -180,4 +187,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-get-the-most-out-of-your-content-facebooks-full-screen-tutorial-2023/"><u>[New] 2024 Approved Get the Most Out of Your Content Facebook's Full-Screen Tutorial 2023</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-harness-social-blade-for-profound-youtube-stats-analysis/"><u>[New] In 2024, Harness Social Blade for Profound YouTube Stats Analysis</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/everaging-technology-for-flawless-youtube-cc-and-subtitled-videos-for-2024/"><u>[New] Leveraging Technology for Flawless YouTube CC & Subtitled Videos for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-instant-video-post-how-to-turn-mp3s-into-youtube-playables/"><u>[Updated] 2024 Approved Instant Video Post How to Turn MP3s Into YouTube Playables</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-tactics-for-transforming-youtube-list-layouts/"><u>[Updated] 2024 Approved Tactics for Transforming YouTube List Layouts</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-architecting-authoritative-adjuncts-for-2024/"><u>[Updated] Architecting Authoritative Adjuncts for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-elevate-your-visual-storytelling-mastering-pixizs-video-capabilities-for-2024/"><u>[Updated] Elevate Your Visual Storytelling Mastering Pixiz's Video Capabilities for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-free-safe-steps-to-extract-audio-from-youtube-videos/"><u>[Updated] Free, Safe Steps to Extract Audio From YouTube Videos</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-review-of-syma-x5c-the-ultimate-drone-guide-for-new-users-for-2024/"><u>[Updated] Review of Syma X5C – The Ultimate Drone Guide for New Users for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-excellent-replacements-to-top-rated-fbx-recorder-apps/"><u>2024 Approved Excellent Replacements to Top-Rated FBX Recorder Apps</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ing-unwanted-youtube-channels-pc-and-mobile-edition/"><u>Blocking Unwanted Youtube Channels PC & Mobile Edition</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-xiaomi-redmi-a2plus-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>How to Track Xiaomi Redmi A2+ Location without Installing Software? | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/in-2024-how-to-teleport-your-gps-location-on-vivo-y55s-5g-2023-drfone-by-drfone-virtual-android/"><u>In 2024, How To Teleport Your GPS Location On Vivo Y55s 5G (2023)? | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/learn-how-to-lock-stolen-your-apple-iphone-7-plus-properly-drfone-by-drfone-ios/"><u>Learn How To Lock Stolen Your Apple iPhone 7 Plus Properly | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/k-audience-potential-with-curated-video-shorts-for-2024/"><u>Unlock Audience Potential with Curated Video Shorts for 2024</u></a></li>
+</ul></div>
 
