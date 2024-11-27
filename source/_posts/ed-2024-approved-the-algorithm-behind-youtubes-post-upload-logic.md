@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  The Algorithm Behind YouTube's Post-Upload Logic\""
-date: 2024-08-23T08:33:20.235Z
-updated: 2024-08-24T08:33:20.235Z
+date: 2024-11-21T06:42:26.432Z
+updated: 2024-11-27T01:13:38.462Z
 tags:
   - ai video
   - ai youtube
@@ -28,6 +28,10 @@ You use YouTube to watch videos, post your own content, and build up a following
 
 This article will explain what goes on behind the scenes when you upload a video, where that video really goes, and what happens when somebody clicks play.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Does YouTube Work
 
 #### 1\. What Happens When You Upload?
@@ -40,9 +44,17 @@ If uploading takes a long time for you it probably has nothing to do with YouTub
 
 ![how youtube works](https://images.wondershare.com/filmora/article-images/how-youtube-works.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 As it is owned by Google YouTube uses Google's 'Bigtable', a compressed data storage system which allows it to store the 500+ hours of video uploaded to its servers every minute. Bigtable is software, though, not hardware. YouTube and Google both have massive amounts of data and it needs to be physically housed somewhere.
 
 ![videos uploaded to youtube](https://images.wondershare.com/filmora/article-images/videos-uploaded-to-youtube.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Google has Modular Data Centers all over the world where it keeps its servers. These centers could cost as much as $600 million dollars each and consume huge amounts of electricity. There are six of them in the United States, three in Europe, two in Asia, and one is South America.
 
@@ -54,20 +66,21 @@ If videos take a long time to load for you then there are a few things you can d
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -76,8 +89,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-examining-youtubes-noteworthy-chats/"><u>[New] 2024 Approved Examining YouTube's Noteworthy Chats</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-gigglesgateway-leading-online-portals-for-chuckling-calls/"><u>[New] 2024 Approved GigglesGateway Leading Online Portals for Chuckling Calls</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/everaging-your-google-id-for-private-yt-video-distribution-for-2024/"><u>[New] Leveraging Your Google ID for Private YT Video Distribution for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nlocking-youtube-success-mastering-the-art-of-shorts-thumbnails/"><u>[New] Unlocking YouTube Success Mastering the Art of Shorts Thumbnails</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ear-end-visualizations-mind-bending-youtube-figures-and-trends/"><u>[New] Year-End Visualizations Mind Bending Youtube Figures and Trends</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-how-to-extract-audio-from-tweets-and-save-as-mp3s/"><u>[Updated] 2024 Approved How to Extract Audio From Tweets and Save as MP3s</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-your-go-to-list-of-international-adventure-vids/"><u>[Updated] 2024 Approved Your Go-To List of International Adventure Vids</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-digital-destinations-where-to-direct-your-videos/"><u>[Updated] Digital Destinations Where to Direct Your Videos</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-how-to-use-filters-on-instagram-2023/"><u>[Updated] How to Use Filters on Instagram 2023?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-efficient-fortnite-imagery-design-quickly/"><u>[Updated] In 2024, Efficient Fortnite Imagery Design Quickly</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-endless-viewing-with-iphone-writes-of-video/"><u>[Updated] In 2024, Endless Viewing with iPhone' Writes of Video</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/explore-the-power-of-durability-and-high-quality-hd-sunbritetvs-55-4k-hdr-veranda-tv-for-outdoor-enthusiasts/"><u>Explore the Power of Durability and High-Quality HD: SunBriteTV's 55 4K HDR Veranda TV for Outdoor Enthusiasts</u></a></li>
+<li><a href="https://common-error.techidaily.com/gaming-gridlock-frequent-freezes-on-os/"><u>Gaming Gridlock: Frequent Freezes on OS</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-erased-videos-from-nokia-by-fonelab-android-recover-video/"><u>How to retrieve erased videos from Nokia</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-capturing-your-screenplay-free-software-insights/"><u>In 2024, Capturing Your Screenplay Free Software Insights</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-how-to-edit-youtube-videos-in-finalcut-pro/"><u>In 2024, How to Edit YouTube Videos in Finalcut Pro</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ize-your-youtube-channels-using-google-analytics-for-2024/"><u>Maximize Your YouTube Channels Using Google Analytics for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/roblox-hiccup-solve-error-code-277-quickly-new-techniques-for-your-computer/"><u>Roblox Hiccup? Solve Error Code 277 Quickly - New Techniques for Your Computer</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ng-views-into-revenue-mastering-youtubes-financial-landscape/"><u>Turning Views Into Revenue Mastering YouTube's Financial Landscape</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
-<!-- affiliate ads end -->

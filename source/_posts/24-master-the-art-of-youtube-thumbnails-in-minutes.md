@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Master the Art of YouTube Thumbnails in Minutes"
-date: 2024-08-23T08:33:28.350Z
-updated: 2024-08-24T08:33:28.350Z
+date: 2024-11-25T07:28:37.460Z
+updated: 2024-11-27T02:20:59.184Z
 tags:
   - ai video
   - ai youtube
@@ -63,6 +63,10 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step6](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step6.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 07:** Select your footage, go to the Effects tab and click on AI Portraits. It will open up all the effects related to AI Portraits. These AI Portrait features help you separate the human from a background without using a green screen or anything else.
 
 ![ai-portrait-thumbnail-step7](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step11.png)
@@ -70,6 +74,10 @@ With time, Filmora brings new and advanced features for its users to equip them 
 **Step 08:** Double click on any of these effects to see how they will look like on your footage.
 
 ![ai-portrait-thumbnail-step8](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step8.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 09:** To make a thumbnail for your Youtube, we have to remove the background of your footage first. To do that we have to apply Human Segmentation to the footage first. It will separate the human from the footage. Drag and drop the Human Segmentation effect into the footage in the timeline. Once you drop it into the footage, it will ask you to purchase this feature to export the footage. Since we are not trying to export the footage, we are only creating a thumbnail, click on "Try It". Once the background is removed, you can add other effects as well. Drag and drop the "Human Border" into the footage. It creates an outline around the human in your footage.
 
@@ -83,9 +91,17 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step11](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step11.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 12:** Once you are satisfied with the final results, click on the Camera icon below the preview screen or press "Ctrl+Alt+S" to take the screenshot.
 
 ![ai-portrait-thumbnail-step12](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step12.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### Conclusion
 
@@ -97,20 +113,21 @@ This article on making a thumbnail for your Youtube is just an idea for you, and
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -119,9 +136,24 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/rom-ftp-to-feed-the-complete-guide-to-uploading-to-youtube-for-2024/"><u>[New] From FTP to Feed The Complete Guide to Uploading to YouTube for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-layering-youtube-songs-onto-video-plays/"><u>[New] Layering YouTube Songs Onto Video Plays</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-investigating-the-top-10-cost-effective-video-collaboration-tools-in-corporateedu-settings/"><u>[Updated] 2024 Approved Investigating the Top 10 Cost-Effective Video Collaboration Tools in Corporate/Edu Settings</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-how-to-promote-videos-cross-platform-youtube-meets-facebook/"><u>[Updated] How to Promote Videos Cross-Platform YouTube Meets Facebook</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/91569290-updated-in-2024-transform-spaceships-into-trees-youtubes-green-secrets-revealed/"><u>[Updated] In 2024, Transform Spaceships Into Trees – Youtube’s Green Secrets Revealed!</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-unite-your-photos-cross-platform-instagram-collage/"><u>[Updated] In 2024, Unite Your Photos Cross-Platform Instagram Collage</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-juxtaposing-flight-with-flair-a-bebop-parrot-analysis/"><u>[Updated] Juxtaposing Flight with Flair – A Bebop Parrot Analysis</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-simplified-techniques-for-high-quality-webcam-videos/"><u>[Updated] Simplified Techniques for High-Quality Webcam Videos</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-top-strategies-maximizing-efficiency-in-windows-10-for-2024/"><u>[Updated] Top Strategies Maximizing Efficiency in Windows 10 for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/utube-starter-templates-a-guide-to-popularity-for-2024/"><u>15 YouTube Starter Templates A Guide to Popularity for 2024</u></a></li>
+<li><a href="https://win-reviews.techidaily.com/easy-methods-for-data-restoration-on-external-drives/"><u>Easy Methods for Data Restoration on External Drives</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/creen-design-made-easy-with-our-templates-and-tutorials-for-2024/"><u>End-Screen Design Made Easy with Our Templates & Tutorials for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/t-director-sound-and-picture-synthesis/"><u>Expert Director Sound & Picture Synthesis</u></a></li>
+<li><a href="https://android-location.techidaily.com/fake-android-location-without-rooting-for-your-xiaomi-redmi-k70e-drfone-by-drfone-virtual/"><u>Fake Android Location without Rooting For Your Xiaomi Redmi K70E | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-elevating-your-watch-experience-youtube-list-shuffle/"><u>In 2024, Elevating Your Watch Experience YouTube List Shuffle</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/g-darkness-for-a-bright-youtube-experience/"><u>Taming Darkness for a Bright YouTube Experience</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/the-mobility-of-art-filming-and-thumbnail-design-for-youtubes-for-2024/"><u>The Mobility of Art Filming and Thumbnail Design for YouTubes for 2024</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->

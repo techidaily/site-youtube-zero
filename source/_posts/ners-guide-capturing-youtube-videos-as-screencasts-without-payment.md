@@ -1,7 +1,7 @@
 ---
 title: "\"Beginner's Guide  Capturing YouTube Videos as Screencasts Without Payment\""
-date: 2024-08-23T08:34:13.445Z
-updated: 2024-08-24T08:34:13.445Z
+date: 2024-11-22T08:30:33.170Z
+updated: 2024-11-26T16:39:48.757Z
 tags:
   - ai video
   - ai youtube
@@ -49,6 +49,10 @@ For macOS 10.12 or later
 
 ![secure download](https://static.wondershare.com/images-filmora/images/common/securety.svg)Secure Download
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Recording Screencast Video with YouTube
 
 Step 1: Open YouTube on your computer and sign by using your Google Account. On the top left corner, you will find the Upload button, press it and go to live streaming section and choose events from the drop-down menu. When you are doing this for the very first time, YouTube will ask your phone number to verify the streaming process. You can also click [here to get to the Livestreaming page directly.](https://www.youtube.com/live%5Fdashboard)
@@ -57,35 +61,32 @@ Step 2: On the create an event page, add a title for your screencast video; set 
 
 ![YouTube ScreenCast ](https://images.wondershare.com/filmora/article-images/youtube-screencast-events.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step 3: The Hangout on Air page will get opened. It will allow you to select-deselect webcam recording as well as mic recording.
 
 Step 4: Hit the screen share button from the left toolbox and choose the desktop window that you wish to record. Now press start the Broadcast button to start screen recording. Note that it is a private session that cannot be watched by anyone else.
 
 ![YouTube ScreenCast ](https://images.wondershare.com/filmora/article-images/youtube-screencast-hangouts.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step 5: When your video is ready to go to YouTube video dashboard and choose your recent screencast video. Download it to Google Drive and share it with the world.
 
 <!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## A better way to record Screencast and Upload to YouTube
 
 For those who are interested in capturing screencast with high-quality videos and need an easy to use the built-in editor to customize these videos; it is good to look for some dedicated screencast tools. Experts recommend using Wondershare [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) due to its advanced features and interactive software platform.
 
 [![Download Filmora X Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora X Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 #### Top Features
 
 * Filmora is one of the most interactive software tools that works perfectly on Windows and Mac platforms.
@@ -101,10 +102,6 @@ Let's watch the video below to check how to record your screen with Filmora and 
 
 [![Download Filmora X Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora X Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
-<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
-<!-- affiliate ads end -->
 #### Conclusion
 
 With all impressive features, there is no doubt to say that Filmora can serve your screencasting needs in the best possible manner. Whether you are a crazy gamer interested to share your adventure videos with the world or want to create useful tutorials for your audience, Filmora is your best companion for all your needs.
@@ -112,22 +109,20 @@ With all impressive features, there is no doubt to say that Filmora can serve yo
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Max Wales
 
 Max Wales is a writer and a lover of all things video.
 
 Follow @Max Wales
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -136,4 +131,23 @@ Follow @Max Wales
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://network-issues.techidaily.com/fixed-advanced-display-settings-windows-10-missing/"><u>[Fixed] Advanced Display Settings Windows 10 Missing</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/rom-viewers-to-vips-ajays-strategy-for-sustainable-income-streams-for-2024/"><u>[New] From Viewers to VIPs Ajay's Strategy for Sustainable Income Streams for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-cutting-edge-editing-storyremix-for-windows-11-a-video-editors-ally/"><u>[New] In 2024, Cutting-Edge Editing StoryRemix for Windows 11 - A Video Editor's Ally</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/asterful-guide-to-professional-online-etiquette-on-youtube-for-2024/"><u>[New] Masterful Guide to Professional Online Etiquette on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-branding-with-visuals-inserting-watermarks-into-youtube-vids/"><u>[Updated] Branding with Visuals Inserting Watermarks Into YouTube Vids</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-the-professionals-guide-adding-youtube-to-google-slides/"><u>[Updated] In 2024, The Professional's Guide Adding YouTube to Google Slides</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-unleash-retro-game-delights-with-the-leading-android-tools-for-ps2-titles/"><u>[Updated] In 2024, Unleash Retro Game Delights with the Leading Android Tools for PS2 Titles</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-rhythmic-resonance-top-10-yogis-on-the-web/"><u>2024 Approved Rhythmic Resonance Top 10 Yogis on the Web</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/comprehensive-examination-of-the-samsung-cf591-for-competitive-gamers/"><u>Comprehensive Examination of the Samsung CF591 for Competitive Gamers</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/t-insights-for-youtube-end-credits-top-makers-advice-for-2024/"><u>Expert Insights for YouTube End Credits - Top Makers' Advice for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/from-fixed-frame-to-fluid-motion-live-photo-transformation/"><u>From Fixed Frame to Fluid Motion Live Photo Transformation</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-successfully-bypass-icloud-activation-lock-from-apple-iphone-6s-by-drfone-ios/"><u>How to Successfully Bypass iCloud Activation Lock from Apple iPhone 6s</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-capture-live-camera-feed-in-vlc-media-player/"><u>In 2024, Capture Live Camera Feed in VLC Media Player</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-quick-guide-extracting-specific-segments-from-youtube/"><u>In 2024, Quick Guide Extracting Specific Segments From YouTube</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/mondlys-joint-venture-with-pearson-redefines-buttons/"><u>Mondly's Joint Venture with Pearson Redefines Buttons</u></a></li>
+<li><a href="https://some-skills.techidaily.com/the-ultimate-guide-to-voice-changes-without-financial-investment-for-2024/"><u>The Ultimate Guide to Voice Changes Without Financial Investment for 2024</u></a></li>
+</ul></div>
 

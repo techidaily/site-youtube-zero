@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Leading Minds in Online Creation"
-date: 2024-08-23T08:33:39.932Z
-updated: 2024-08-24T08:33:39.932Z
+date: 2024-11-19T20:37:24.642Z
+updated: 2024-11-27T02:59:23.092Z
 tags:
   - ai video
   - ai youtube
@@ -63,9 +63,17 @@ Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators
 
 One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3\. S’well bottle
 
 S’well bottles are stainless steel beverage containers that keep drinks hot or cold. They retail for around $45\. YouTubers invited to the Creator Summit received ones with YouTube branding on them. A good water bottle is a convention/conference essential, so this was a very practical gift.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4\. Branded slippers
 
@@ -74,31 +82,25 @@ To help them relax after long days at the summit, YouTube provided creators with
 ![Branded slippers - 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-branded-slippers.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 _thinknoodles wearing his YouTube slippers._
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 5\. Pins, pins, pins
 
 There were numerous custom pins available at different events at the summit. Aside from a complementary Brooklyn and 1 Hotel Brooklyn Bridge (the hotel the creators were staying at) pins, the creators did not receive these in their swag boxes – they had to collect them.
 
 <!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 6\. Denim jacket
 
 A denim jacket with a play button on it was also in the box. The idea was that creators would collect pins and display them on their new jackets. At the end of the week, they would have a great souvenir reminding them of every event they attended at the summit.
 
 _![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
-<!-- affiliate ads end -->
 _Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
 
 Most creators here on Filmora are still trying to grow their channels, but one day I hope you’ll be able to attend an event like the YouTube Creator Summit and tell us all about it!
@@ -107,28 +109,23 @@ Want to join the YouTube Creator Summit in the future? We all know that there is
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -137,4 +134,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/ffective-call-to-actions-boosting-video-engagement/"><u>[New] Effective Call-to-Actions Boosting Video Engagement</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-dont-overlook-tags-in-video-description/"><u>[New] In 2024, Don't Overlook Tags in Video Description</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-strategies-for-personalizing-your-youtube-shorts-templates/"><u>[Updated] 2024 Approved Strategies for Personalizing Your YouTube Shorts Templates</u></a></li>
+<li><a href="https://solve-lab.techidaily.com/1-seamlessly-transform-ebooks-using-calibre-the-ultimate-guide/"><u>1. Seamlessly Transform eBooks Using Calibre: The Ultimate Guide</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-elevate-your-youtube-presence-with-expert-idevice-screen-techniques/"><u>2024 Approved Elevate Your YouTube Presence with Expert iDevice Screen Techniques</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-international-ranks-youtube-stars-with-the-most-loyal-viewers/"><u>2024 Approved International Ranks YouTube Stars With the Most Loyal Viewers</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/5-ways-to-record-streaming-audio-online/"><u>5 Ways to Record Streaming Audio Online</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ing-an-economic-force-a-guide-to-earning-on-youtube/"><u>Becoming an Economic Force A Guide to Earning on YouTube</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/consistent-nutrition-with-the-petsafe-six-serving-auto-feeder-ideal-for-regular-pet-meals/"><u>Consistent Nutrition with the PetSafe Six-Serving Auto Feeder: Ideal for Regular Pet Meals</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebooks-reel-response-to-tiktoks-growth-spurt/"><u>Facebook's Reel Response to TikTok's Growth Spurt</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/and-legal-youtube-downloader-tools-recommendations-for-2024/"><u>Free & Legal YouTube Downloader Tools - Recommendations for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-spotify-location-after-moving-to-another-country-on-samsung-galaxy-m14-5g-drfone-by-drfone-virtual-android/"><u>How to Change Spotify Location After Moving to Another Country On Samsung Galaxy M14 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/o-make-a-playlist-on-youtube/"><u>How to Make a Playlist on YouTube</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-samsung-galaxy-a05s-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Samsung Galaxy A05s</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-examining-youtubes-copyright-stance-versus-cc-approach/"><u>In 2024, Examining Youtube's Copyright Stance Versus CC Approach</u></a></li>
+<li><a href="https://techtrends.techidaily.com/reverse-your-snaps-with-ease-an-ultimate-guide-for-snapchat-users/"><u>Reverse Your Snaps with Ease: An Ultimate Guide for Snapchat Users</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/seven-pioneering-gpt-applications-in-fitness-tech/"><u>Seven Pioneering GPT Applications in Fitness Tech</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/step-by-step-tutorial-using-snapchat-via-pc-browser/"><u>Step-by-Step Tutorial: Using Snapchat via PC Browser</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-guide-to-the-samsung-galaxy-tab-s6-unveiling-s-pen-and-dex-capabilities/"><u>Ultimate Guide to the Samsung Galaxy Tab S6: Unveiling S Pen & Dex Capabilities</u></a></li>
+</ul></div>
 

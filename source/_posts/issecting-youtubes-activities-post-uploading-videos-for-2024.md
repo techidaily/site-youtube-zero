@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Dissecting YouTube's Activities Post-Uploading Videos for 2024\""
-date: 2024-08-23T08:30:11.647Z
-updated: 2024-08-24T08:30:11.647Z
+date: 2024-11-20T18:28:29.768Z
+updated: 2024-11-26T17:33:30.674Z
 tags:
   - ai video
   - ai youtube
@@ -28,6 +28,10 @@ You use YouTube to watch videos, post your own content, and build up a following
 
 This article will explain what goes on behind the scenes when you upload a video, where that video really goes, and what happens when somebody clicks play.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Does YouTube Work
 
 #### 1\. What Happens When You Upload?
@@ -40,9 +44,17 @@ If uploading takes a long time for you it probably has nothing to do with YouTub
 
 ![how youtube works](https://images.wondershare.com/filmora/article-images/how-youtube-works.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 As it is owned by Google YouTube uses Google's 'Bigtable', a compressed data storage system which allows it to store the 500+ hours of video uploaded to its servers every minute. Bigtable is software, though, not hardware. YouTube and Google both have massive amounts of data and it needs to be physically housed somewhere.
 
 ![videos uploaded to youtube](https://images.wondershare.com/filmora/article-images/videos-uploaded-to-youtube.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Google has Modular Data Centers all over the world where it keeps its servers. These centers could cost as much as $600 million dollars each and consume huge amounts of electricity. There are six of them in the United States, three in Europe, two in Asia, and one is South America.
 
@@ -54,20 +66,21 @@ If videos take a long time to load for you then there are a few things you can d
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -76,8 +89,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-macos-2023-update-from-youtube-to-high-quality-mp3s/"><u>[New] 2024 Approved MacOS 2023 Update From YouTube to High-Quality MP3s</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/armonious-histories-exploring-musical-legends-with-these-15-video-documentaries/"><u>[New] Harmonious Histories Exploring Musical Legends with These 15 Video Documentaries</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-patching-the-full-screen-problem-in-obs/"><u>[New] Patching the Full-Screen Problem in OBS</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ocial-star-search-leading-view-counts-on-youtube/"><u>[New] Social Star Search Leading View Counts on YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/he-future-of-advertising-on-youtube-shorts/"><u>[New] The Future of Advertising on YouTube Shorts</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/easily-unlock-your-oneplus-12r-device-sim-by-drfone-android/"><u>Easily Unlock Your OnePlus 12R Device SIM</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/41272535-get-your-hand-on-the-latest-50-youtube-promo-banners/"><u>Get Your Hand on the Latest 50 YouTube Promo Banners</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-leave-a-life360-group-on-vivo-g2-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How To Leave a Life360 Group On Vivo G2 Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-reset-a-realme-narzo-n53-phone-that-is-locked-by-drfone-android/"><u>In 2024, How to Reset a Realme Narzo N53 Phone that is Locked?</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-the-essential-toolkit-3d-video-entrances-ranked/"><u>In 2024, The Essential Toolkit 3D Video Entrances Ranked</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/noise-coming-from-your-ps4-find-out-why-and-how-you-can-repair-it/"><u>Noise Coming From Your PS4? Find Out Why and How You Can Repair It</u></a></li>
+<li><a href="https://dvd-bd.techidaily.com/resolved-imovies-export-incompatibility-issue-with-quicktime-solutions-and-tips/"><u>Resolved: IMovie's Export Incompatibility Issue With QuickTime - Solutions & Tips</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-get-back-lost-call-history-from-vivo-by-fonelab-android-recover-call-logs/"><u>The way to get back lost call history from Vivo</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ultimate-guide-to-free-pptp-vpn-for-beginners-on-poco-m6-pro-5g-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Free PPTP VPN For Beginners On Poco M6 Pro 5G | Dr.fone</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
-<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: "Maintaining Morale Amidst Online Adversity"
-date: 2024-08-23T08:34:29.540Z
-updated: 2024-08-24T08:34:29.540Z
+date: 2024-11-25T17:15:33.163Z
+updated: 2024-11-27T01:28:46.686Z
 tags:
   - ai video
   - ai youtube
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/81c104f653fc6628652d6140a521e94570f22aa24
  Mar 27, 2024• Proven solutions
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
 
@@ -54,20 +58,21 @@ thumbnail: https://thmb.techidaily.com/81c104f653fc6628652d6140a521e94570f22aa24
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -76,8 +81,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-stream.techidaily.com/new-free-online-editors-the-essential-guide/"><u>[New] Free Online Editors The Essential Guide</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-boosting-your-channels-viewer-loyalty-essential-tactics-unveiled/"><u>[New] In 2024, Boosting Your Channels' Viewer Loyalty Essential Tactics Unveiled</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/pening-doors-creating-an-account-on-youtube/"><u>[New] Opening Doors Creating an Account on YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/trategies-for-deleting-watch-later-items-on-youtube-for-2024/"><u>[New] Strategies for Deleting Watch Later Items on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-a-step-by-step-journey-through-high-impact-youtube-banner-designs/"><u>[Updated] 2024 Approved A Step-by-Step Journey Through High-Impact YouTube Banner Designs</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-geniusedit-ai-precision-in-photo-mastery/"><u>[Updated] GeniusEdit AI Precision in Photo Mastery</u></a></li>
+<li><a href="https://techtrends.techidaily.com/exploring-the-world-of-internet-searches-with-bing-by-microsoft/"><u>Exploring the World of Internet Searches with Bing by Microsoft</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/g9-x-ii-review-embracing-vintage-aesthetics-in-modern-photography-for-the-wandering-soul/"><u>G9 X II Review: Embracing Vintage Aesthetics in Modern Photography for the Wandering Soul</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/testers-and-beta-gamers-online/"><u>Game Testers & Beta Gamers Online</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/groundbreaking-release-openai-unveils-revolutionary-gpt-4-ai/"><u>Groundbreaking Release: OpenAI Unveils Revolutionary GPT-4 AI</u></a></li>
+<li><a href="https://techidaily.com/hard-reset-realme-11-pro-in-3-efficient-ways-drfone-by-drfone-reset-android-reset-android/"><u>Hard Reset Realme 11 Pro in 3 Efficient Ways | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-can-you-transfer-files-from-oppo-find-n3-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How Can You Transfer Files From Oppo Find N3 To iPhone 15/14/13? | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-picture-perfect-presentations-posting-on-youtube/"><u>In 2024, Picture-Perfect Presentations Posting on YouTube</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
-<!-- affiliate ads end -->

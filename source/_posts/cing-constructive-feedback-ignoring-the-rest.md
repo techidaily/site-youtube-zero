@@ -1,7 +1,7 @@
 ---
 title: "Embracing Constructive Feedback, Ignoring the Rest"
-date: 2024-08-23T08:30:17.433Z
-updated: 2024-08-24T08:30:17.433Z
+date: 2024-11-22T04:12:47.600Z
+updated: 2024-11-26T17:49:17.243Z
 tags:
   - ai video
   - ai youtube
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/baabb0210a0e9d1dfef8f1a18fa201bad1a8f950b
  Mar 27, 2024• Proven solutions
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
 
@@ -54,20 +58,21 @@ thumbnail: https://thmb.techidaily.com/baabb0210a0e9d1dfef8f1a18fa201bad1a8f950b
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -76,8 +81,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/new-democracy-dynamics-leading-electoral-simulators/"><u>[New] Democracy Dynamics Leading Electoral Simulators</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-ensure-flawless-playback-how-to-set-youtube-video-size-right/"><u>[New] In 2024, Ensure Flawless Playback How to Set YouTube Video Size Right</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-examining-social-media-comment-standouts/"><u>[New] In 2024, Examining Social Media Comment Standouts</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-incorporating-live-streaming-your-ultimate-website-guide-for-2024/"><u>[New] Incorporating Live Streaming Your Ultimate Website Guide for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-15-youtube-financial-experts-you-can-trust/"><u>[Updated] 2024 Approved 15 YouTube Financial Experts You Can Trust</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-3-effective-methods-to-archive-itunes-videos-for-2024/"><u>[Updated] 3 Effective Methods to Archive iTunes Videos for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-innovating-engagement-integrate-thoughtful-chapters-into-your-youtube-videos/"><u>[Updated] In 2024, Innovating Engagement Integrate Thoughtful Chapters Into Your YouTube Videos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-youtube-revenue-the-unfavorable-guidelines/"><u>2024 Approved YouTube Revenue The Unfavorable Guidelines</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/best-value-picks-raspberry-pi-bargains-for-this-year/"><u>Best Value Picks: Raspberry Pi Bargains for This Year</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/evaluating-the-need-for-jailbreaking-chatgpt/"><u>Evaluating the Need for Jailbreaking ChatGPT</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/experience-global-cultures-mondly-vr-revolutionizes-language-studies/"><u>Experience Global Cultures: Mondly VR Revolutionizes Language Studies</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/cting-content-aesthetics-crafting-personalized-thumbnails/"><u>Perfecting Content Aesthetics Crafting Personalized Thumbnails</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/resolved-troubleshooting-steps-for-new-worlds-anti-cheat-error/"><u>Resolved! Troubleshooting Steps for New World's Anti-Cheat Error</u></a></li>
+<li><a href="https://fox-http.techidaily.com/the-ultimate-guide-of-how-to-use-animoji-on-iphone-x/"><u>The Ultimate Guide of How to Use Animoji on iPhone X</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/top-16-from-realme-v30-to-other-android-devices-data-transfer-apps-to-switch-phone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Top 16 from Realme V30 to Other Android Devices Data Transfer Apps to Switch Phone Easily | Dr.fone</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
-<!-- affiliate ads end -->

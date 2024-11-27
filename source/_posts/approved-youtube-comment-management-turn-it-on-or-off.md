@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  YouTube Comment Management  Turn It On or Off\""
-date: 2024-08-23T08:30:30.958Z
-updated: 2024-08-24T08:30:30.958Z
+date: 2024-11-22T22:41:54.138Z
+updated: 2024-11-26T20:27:08.718Z
 tags:
   - ai video
   - ai youtube
@@ -29,6 +29,10 @@ YouTube comments are enabled by default, and if they aren’t, learning **how to
 As a brand, it is imperative to thoroughly read all the comments that your YouTube videos receive. This not only helps you do sentimental analysis; it also enables you to understand what the viewers expect from you, and where should you focus more while recording and editing your footage.
 
 Keeping all these points in mind, the following sections explain **how to enable comments on YouTube** and **how to turn off comments on YouTube**. Here you will also get to know what other types of security and privacy options are there that you can use to filter the comments posted by the disturbing elements.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: How to Turn on or Turn off Comments for YouTube Channel
 
@@ -58,11 +62,19 @@ Use the method explained above to get to the channel’s **Advanced settings** b
 
 ![  Turn on YouTube Channel Comments](https://images.wondershare.com/filmora/article-images/turn-on-channel-comments-advanced-settings.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 2\. Define Acceptable Comment Types
 
 Click the **Settings** icon from the bottom of the left pane one more time. On the **Settings** box, go to the **Upload defaults** category from the left pane, and go to **Advanced settings** from the right. From the **Comment visibility** drop-down list under the **Comments** section in the right, choose your preferred comment allowance type, and click **SAVE** to allow the comments on the videos the channel has.
 
 ![ Set up YouTube video  Comments visibility](https://images.wondershare.com/filmora/article-images/set-up-youtube-comments-visibilities.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 3\. Set Comment Allowance for Videos
 
@@ -110,11 +122,16 @@ From under the **Audience** section in the right window of the **Video details**
 
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## FAQs About YouTube Comments
 
 #### 1\. Why can’t I comment on the YouTube video?
@@ -131,9 +148,6 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
 Yes. When you turn off the comments, the existing comments disappear. When you turn them back on, all the previous comments reappear, and become visible to the audience.
@@ -148,23 +162,17 @@ It is easy to understand **how to turn on comments on YouTube**. The best thing 
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -173,4 +181,17 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/ed-3-techniques-to-retrieve-and-save-youtubes-iconic-images/"><u>[Updated] 3 Techniques to Retrieve & Save YouTube's Iconic Images</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-how-to-play-youtube-in-background-on-iphone-and-android-for-2024/"><u>[Updated] How to Play YouTube in Background on iPhone and Android for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-harnessing-the-power-of-visual-appeal-in-your-youtube-advertising/"><u>[Updated] In 2024, Harnessing the Power of Visual Appeal in Your YouTube Advertising</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-tailoring-your-content-youtube-video-length-reduction-guide/"><u>[Updated] In 2024, Tailoring Your Content YouTube Video Length Reduction Guide</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/gratuito-conversor-de-milhas-por-galao-para-video-em-formato-wma-online-e-facil-de-usar-com-o-moviemaker-da-movavi/"><u>Gratuito Conversor De Milhas Por Galão Para Vídeo Em Formato WMA - Online E Fácil De Usar Com O MovieMaker Da Movavi</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-itel-a70-if-i-forgot-security-code-or-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Itel A70 If I Forgot Security Code or Password? | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-the-ultimate-checklist-12-must-have-cameras-for-vlogging-professionals/"><u>In 2024, The Ultimate Checklist 12 Must-Have Cameras for Vlogging Professionals</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-2024-approved-chromebook-linux-installation-tutorial-the-ultimate-guide/"><u>New 2024 Approved Chromebook Linux Installation Tutorial The Ultimate Guide</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/personalizing-the-macos-sonoma-menu-bar-a-step-by-step-guide-to-customization-and-organization/"><u>Personalizing the MacOS Sonoma Menu Bar: A Step-by-Step Guide to Customization & Organization</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshoot-and-tackle-stop-the-buzz-with-these-quick-speaker-repairs/"><u>Troubleshoot & Tackle: Stop the Buzz with These Quick Speaker Repairs</u></a></li>
+</ul></div>
 

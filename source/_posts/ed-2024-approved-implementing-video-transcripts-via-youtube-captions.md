@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Implementing Video Transcripts via YouTube Captions\""
-date: 2024-08-23T08:31:12.255Z
-updated: 2024-08-24T08:31:12.255Z
+date: 2024-11-25T11:55:58.731Z
+updated: 2024-11-27T04:06:50.118Z
 tags:
   - ai video
   - ai youtube
@@ -28,17 +28,29 @@ By captioning your YouTube videos you help to make them accessible to more poten
 
 This article will first explain how you can turn on subtitles for the videos you watch and then walk you through adding captions to your own videos.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How To Turn On Captions on YouTube
 
 In order for you to be able to view subtitles for a YouTube video the uploader of the video will need to have added them, unless you change your account settings to display automatic captions.
 
 ![captions](https://images.wondershare.com/filmora/article-images/captions-how-to-turn-on.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 To toggle subtitles on and off click on the Closed Captioning icon in the bottom right of your video player.
 
 If the creator of the video has not added captions then you can enable automatic captions by going into your **Account Settings** and selecting **Playback**. Check the box next to **Always Show Captions**, and then check   **Show Automatic Captions by Speech Recognition**. These captions may be flawed, but you will still be able to see the more accurate user submitted captions on videos that have them. The **Always Show Captions** feature may be useful not only to the hearing impaired, but to users who do not speak the same language as the video producer.
 
 If you want to change the language of the subtitles click on the settings icon (the one that looks like a gear) next to the closed captioning icon and choose your language next to   **Subtitles/CC** . If the language you want is not there select **Auto-Translate**  and then pick a language. Google Translate will be used to generate subtitles in your chosen language.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Adding YouTube Captions in 4 Steps
 
@@ -64,20 +76,21 @@ The easiest way to add subtitles to your videos is to use **Automatic Captioning
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -86,8 +99,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-friendly.techidaily.com/new-fast-forward-to-forgotten-reddit-threads-for-2024/"><u>[New] Fast Forward to Forgotten Reddit Threads for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/mplementing-video-transcripts-via-youtube-captions-for-2024/"><u>[New] Implementing Video Transcripts via YouTube Captions for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-discover-times-tales-top-10-historical-channels-to-study-with/"><u>[New] In 2024, Discover Time's Tales Top 10 Historical Channels to Study With</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-mastering-google-voice-call-recording-essential-steps/"><u>[New] In 2024, Mastering Google Voice Call Recording Essential Steps</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-the-online-monetization-mission-youtube-to-your-bank/"><u>[New] In 2024, The Online Monetization Mission YouTube to Your Bank</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-ace-your-edits-youtube-studios-time-saving-secrets-revealed/"><u>[Updated] Ace Your Edits YouTube Studio's Time-Saving Secrets Revealed</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-assessing-the-value-of-4-second-rapid-subscriptions-on-youtube-for-2024/"><u>[Updated] Assessing the Value of 4-Second Rapid Subscriptions on Youtube for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-dive-deep-into-video-creation-with-these-top-12-vlogger-friendly-cameras-for-2024/"><u>[Updated] Dive Deep Into Video Creation with These Top 12 Vlogger-Friendly Cameras for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-elite-livestream-tools-and-solutions/"><u>[Updated] Elite Livestream Tools & Solutions</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-dial-in-on-quality-a-step-by-step-zoom-setup-guide/"><u>[Updated] In 2024, Dial in on Quality A Step-by-Step Zoom Setup Guide</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-demystifying-the-mechanics-of-youtube-studio/"><u>2024 Approved Demystifying the Mechanics of YouTube Studio</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-essential-tips-for-effective-fb-live-split-screens/"><u>2024 Approved Essential Tips for Effective FB Live Split Screens</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-from-novice-to-viewer-keeper-top-10-basic-yet-captivating-video-ideas/"><u>2024 Approved From Novice to Viewer-Keeper Top 10 Basic Yet Captivating Video Ideas</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-troubleshooting-techniques-for-optimized-video-shorts/"><u>2024 Approved Troubleshooting Techniques for Optimized Video Shorts</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-xiaomi-redmi-13cwithwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Xiaomi Redmi 13Cwith/without a PC</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-detect-and-stop-mspy-from-spying-on-your-vivo-y27-5g-drfone-by-drfone-virtual-android/"><u>How to Detect and Stop mSpy from Spying on Your Vivo Y27 5G | Dr.fone</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-fix-video-input-errors-on-monitors-easily-detailed-steps/"><u>How to Fix Video Input Errors on Monitors Easily (Detailed Steps)</u></a></li>
+<li><a href="https://common-error.techidaily.com/tackling-missing-opencl-dynamic-libraries/"><u>Tackling Missing OpenCL Dynamic Libraries</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ltimate-ad-free-high-quality-video-experience-awaits-you/"><u>The Ultimate Ad-Free, High Quality Video Experience Awaits You</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

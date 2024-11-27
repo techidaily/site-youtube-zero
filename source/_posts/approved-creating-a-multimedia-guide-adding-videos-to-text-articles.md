@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Creating a Multimedia Guide  Adding Videos to Text Articles\""
-date: 2024-11-13T17:31:55.753Z
-updated: 2024-11-17T17:02:51.186Z
+date: 2024-11-25T20:49:15.379Z
+updated: 2024-11-27T00:32:48.263Z
 tags:
   - ai video
   - ai youtube
@@ -33,6 +33,10 @@ Luckily, video editing and presentation software products offer the tools you wi
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to Add Video to Text for Free with PowerPoint?
 
 An effective PowerPoint presentation should contain proportionate amounts of textual and visual elements. Using too many images, videos or animations can make following a presentation difficult, just as too much text can render a presentation too static.
@@ -51,16 +55,13 @@ Find the Insert Shape option and choose Subtract from the Merge Shapes drop-down
 
 ![Add video to text - Powerpoint- substract](https://images.wondershare.com/filmora/article-images/subtract-from-merge-shapes.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Click on the Insert tab, and then choose the Video option from the Media menu. You can [insert a video](https://tools.techidaily.com/wondershare/filmora/download/) that is stored on a local hard drive or the Internet to PowerPoint. The video will cover the entire slide, so you must right-click on it and select the Send to Back option.
 
 You can then fine-tune the video playback settings from the Playback tab. Preview the results before you move on to the next slide in your presentation, and make necessary adjustments if you don’t like how the video merged with the text.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068439/7443" target="_top" id="2068439">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068439" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068439/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2: Adding Video to Text in Filmora
 
@@ -68,27 +69,21 @@ Besides presentation software, you can also use video editing software products 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 You should start by creating a new project in Filmora and importing the video you want to add to the text into the project. Click on the Titles tab, and choose the title that matches the visual style of your project.
 
 ![Add video to text - Filmora9](https://images.wondershare.com/filmora/article-images/add-title-effects.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Set the preferred duration of the title by dragging one of its ends to the left or right after you place it on the timeline, and then double-click on it to customize it. Click on the Advanced button once the Text tab opens and insert the text into the Input Text box.
 
 ![Add video to text - Filmora9 Advanced Editing](https://images.wondershare.com/filmora/article-images/make-text-video-advanced-text-edit.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Proceed to select a font and adjust the text size before deciding if you want to [animate the text](https://tools.techidaily.com/wondershare/filmora/download/). When done, you should export the title as a video file, and then import it back into your project.
 
@@ -109,10 +104,7 @@ Merging text with video is equally easy in PowerPoint and Filmora, so you just h
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868499/19272" target="_top" id="1868499">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868499" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868499/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -136,17 +128,24 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-explore-sony-vegas-for-high-impact-video-editing-on-youtube/"><u>[New] In 2024, Explore Sony Vegas for High-Impact Video Editing on YouTube</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/n-2024-how-to-convert-youtube-videos-seamlessly-into-avi/"><u>[New] In 2024, How to Convert YouTube Videos Seamlessly Into AVI</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/nderstanding-legality-in-screenshots-from-youtube-for-2024/"><u>[New] Understanding Legality in Screenshots From YouTube for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-the-economics-of-t-series-a-deep-dive-into-youtube-earnings/"><u>[Updated] 2024 Approved The Economics of T-Series A Deep Dive Into YouTube Earnings</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-harnessing-the-power-of-stories-in-fb-networks-for-2024/"><u>[Updated] Harnessing the Power of Stories in FB Networks for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-breathtaking-lyric-videos-made-easy-by-lyric-video-maker/"><u>[Updated] In 2024, Breathtaking Lyric Videos Made Easy by Lyric Video Maker</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/apple-discontinues-finewoven-collection-in-favor-of-new-beat-series-compatible-cases-report/"><u>Apple Discontinues FineWoven Collection in Favor of New Beat Series Compatible Cases Report</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/essential-zoom-transcription-apps-finding-value-in-freepaid/"><u>Essential Zoom Transcription Apps Finding Value in Free/Paid</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/o-embed-youtube-in-your-gslides-presentation/"><u>How to Embed YouTube in Your GSlides Presentation</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/in-2024-9-solutions-to-facebook-video-black-screen-issues-on-chromesafarifirefox/"><u>In 2024, 9 Solutions to Facebook Video Black Screen Issues on Chrome/Safari/Firefox</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/95686860-9781507203644-the-modern-witchcraft-book-of-love-spells/"><u>The Modern Witchcraft Book of Love Spells | Free Book</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ling-profit-potential-the-systematic-triad-technique-for-youtube-earning-analysis-for-2024/"><u>Unveiling Profit Potential The Systematic Triad Technique for YouTube Earning Analysis for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/xpanding-your-audience-stream-successfully-across-30plus-outlets-for-2024/"><u>[New] Expanding Your Audience Stream Successfully Across 30+ Outlets for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/illy-screens-top-youtube-humorists-worth-your-time/"><u>[New] Silly Screens Top YouTube Humorists Worth Your Time</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-boost-your-channels-subscribers-on-a-shoestring-budget/"><u>[Updated] 2024 Approved Boost Your Channel's Subscribers on a Shoestring Budget</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-channel-success-strategy-standard-studio-or-beta-edge/"><u>[Updated] 2024 Approved Channel Success Strategy Standard Studio or Beta Edge</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-masterclass-in-length-management-youtube-vids/"><u>[Updated] 2024 Approved Masterclass in Length Management YouTube Vids</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-beautys-buzz-youtube-gurus-predicted-for-2024/"><u>[Updated] Beauty's Buzz YouTube Gurus Predicted for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-constructing-captivating-conclusions/"><u>[Updated] Constructing Captivating Conclusions</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-unlocking-the-secrets-behind-youtube-shorts-success/"><u>[Updated] In 2024, Unlocking the Secrets Behind YouTube Shorts Success</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-scripting-striking-film-epilogues/"><u>[Updated] Scripting Striking Film Epilogues</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-ai-powered-vr-retail-navigation/"><u>2024 Approved AI-Powered VR Retail Navigation</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-deciphering-youtubes-profit-for-a-mil-of-viewers/"><u>2024 Approved Deciphering YouTube’s Profit for A Mil of Viewers</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-sculpting-images-selecting-the-right-aspect-ratio/"><u>2024 Approved Sculpting Images Selecting the Right Aspect Ratio</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/5luk5pya44kc5rwb6kgm44gj44gm44ge44kl5paw5z6l44kz44ot44ok5pmc5luj44gu44gk5yun44kb5pig55s76zug57s55lul/"><u>今最も流行っている新型コロナ時代のお勧め映画集紹介</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/choosing-your-tablet-wisely-in-depth-analysis-of-ipad-vs-ipad-air-features/"><u>Choosing Your Tablet Wisely: In-Depth Analysis of iPad Vs. IPad Air Features</u></a></li>
+<li><a href="https://discover-help.techidaily.com/compreendendo-a-copia-de-sombra-em-windows-11-todas-as-informacoes-essenciais-necessarias-saber/"><u>Compreendendo a Cópia De Sombra Em Windows 11: Todas as Informações Essenciais Necessárias Saber</u></a></li>
+<li><a href="https://windows11.techidaily.com/dissecting-windows-build-numbers-and-updates/"><u>Dissecting Windows Build Numbers & Updates</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-dose-life360-notify-me-when-someone-checks-my-location-on-poco-m6-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Dose Life360 Notify Me When Someone Checks My Location On Poco M6 5G? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-itel-a60-drfone-by-drfone-virtual-android/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Itel A60 | Dr.fone</u></a></li>
+<li><a href="https://win-answers.techidaily.com/is-xbox-live-down-right-now-find-real-time-updates-on-server-availability/"><u>Is Xbox Live Down Right Now? Find Real-Time Updates on Server Availability</u></a></li>
 </ul></div>
 

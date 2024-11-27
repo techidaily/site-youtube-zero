@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, The Ultimate Guide to Creating Click-Enticing YouTube Thumbnails\""
-date: 2024-11-11T17:18:19.103Z
-updated: 2024-11-17T16:53:49.719Z
+date: 2024-11-24T00:21:26.881Z
+updated: 2024-11-27T02:35:57.551Z
 tags:
   - ai video
   - ai youtube
@@ -48,10 +48,7 @@ Here are 5 easy tips for creating thumbnails that get views.
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. Have a Consistent Layout
@@ -63,16 +60,11 @@ An example of a standard layout could be you in the middle of the screen wearing
 ![Consistent Layout](https://images.wondershare.com/filmora/article-images/consistent-layout.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1160850">
-					<video width="576" height="324" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **2\. Use Your Face**
@@ -81,13 +73,6 @@ People feel automatically connected and drawn into images that make eye contact.
 
 Also, if somebody recognizes you in your thumbnail from a previous video of yours, that will go a long way towards making them click.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148646/16836" target="_top" id="2148646">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148646" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148646/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 3\. Use Graphics/Emojis that are On Topic
 
 Anybody can take a screenshot of themselves in their video and use it as a thumbnail. To make your thumbnails look polished, consider using small images (like emojis or hearts) to stand out. This will add color and personality to your thumbnail.
@@ -95,16 +80,7 @@ Anybody can take a screenshot of themselves in their video and use it as a thumb
 Make sure the images you choose are relevant to the topic of your video.
 
 <!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. Make Your Text Huge
@@ -112,6 +88,10 @@ Make sure the images you choose are relevant to the topic of your video.
 If you use text in your thumbnail (you don’t have to) then it should be to add context. For example, if the main image is just you smiling then you might need some text to let viewers know the video is a makeup tutorial.
 
 Thumbnails might look large while you’re putting them together in your image editor, but when they’re displayed on YouTube they’re a lot smaller. That goes double if a viewer is watching on their phone. So, make sure that any text you use is large enough that it can be read easily on small screens.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 5\. Keep it Clutter-Free
 
@@ -146,22 +126,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-start-with-strategy-launching-an-online-dominant-gaming-channel/"><u>[New] 2024 Approved Start with Strategy Launching an Online Dominant Gaming Channel</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-your-portal-to-successful-online-marketing-our-showcase-of-over-50-free-banners-awaits-you/"><u>[New] 2024 Approved Your Portal to Successful Online Marketing - Our Showcase of Over 50 Free Banners Awaits You</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-affordable-high-res-camera-options-for-2024/"><u>[Updated] Affordable High-Res Camera Options for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-unlocking-the-potential-of-instagrams-sound-symbols/"><u>[Updated] Unlocking the Potential of Instagram's Sound Symbols</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/audio-visual-converters-forum/"><u>Audio Visual Converters Forum</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/10-echo-augmentation-apps-desktopmobile-for-2024/"><u>Best 10 Echo Augmentation Apps Desktop/Mobile for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/comprehensive-analysis-of-the-apple-watch-series-9-a-detailed-overview/"><u>Comprehensive Analysis of the Apple Watch Series 9: A Detailed Overview</u></a></li>
-<li><a href="https://win-premium.techidaily.com/comprehensive-instructions-for-rebooting-your-pc-factory-resetting-windows-11-through-the-control-panel-interface/"><u>Comprehensive Instructions for Rebooting Your PC - Factory Resetting Windows 11 Through the Control Panel Interface</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-card-on-asus-rog-phone-7-ultimate-online-without-jailbreak-by-drfone-android/"><u>How to Unlock SIM Card on Asus ROG Phone 7 Ultimate online without jailbreak</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-breakthrough-in-video-production-advanced-techniques-for-uploading-360-content-on-youtube/"><u>In 2024, Breakthrough in Video Production Advanced Techniques for Uploading 360° Content on YouTube</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-building-a-business-from-blogs-and-video-reviews/"><u>In 2024, Building a Business From Blogs and Video Reviews</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-captivate-your-audience-professional-end-screen-creations/"><u>In 2024, Captivate Your Audience Professional End Screen Creations</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-crafting-the-perfect-schedule-for-jobs-and-youtube/"><u>In 2024, Crafting the Perfect Schedule for Jobs & YouTube</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-dissecting-the-hidden-mechanics-behind-youtubes-popularity-index/"><u>In 2024, Dissecting the Hidden Mechanics Behind YouTube's Popularity Index</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/order-matters-how-to-experience-the-full-storyline-of-the-iconic-superman-movies/"><u>Order Matters: How to Experience the Full Storyline of the Iconic 'Superman' Movies</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/video-snippet-creator-for-2024/"><u>Video Snippet Creator for 2024</u></a></li>
-<li><a href="https://win-cloud.techidaily.com/windows-server2012-2022/"><u>Windows Serverバックアップソフトウェア(2012-2022対応)</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ethods-to-validate-youtube-login/"><u>[New] Methods to Validate YouTube Login</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/uick-fixes-for-green-screen-glitches-on-mac-video-editing-platform/"><u>[New] Quick Fixes for Green Screen Glitches on Mac Video Editing Platform</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-archive-adventure-revisiting-classic-facebook/"><u>[Updated] Archive Adventure Revisiting Classic Facebook</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-experts-take-on-using-luts-for-image-enhancement-in-pscc-for-2024/"><u>[Updated] Expert's Take on Using LUTs for Image Enhancement in PSCC for 2024</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/best-game-download-sites-top-picks-for-2024/"><u>Best Game Download Sites Top Picks for 2024</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/bypass-icloud-activation-lock-with-imei-code-on-iphone-se-2020-by-drfone-ios/"><u>Bypass iCloud Activation Lock with IMEI Code On iPhone SE (2020)</u></a></li>
+<li><a href="https://win11.techidaily.com/effortless-function-key-modifications-in-windows-1011/"><u>Effortless Function Key Modifications in Windows 10/11</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/tise-unleashed-professional-insights-into-video-editing/"><u>Expertise Unleashed Professional Insights Into Video Editing</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-bypassing-google-account-with-vnrom-bypass-for-vivo-y77t-by-drfone-android/"><u>In 2024, Bypassing Google Account With vnROM Bypass For Vivo Y77t</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-craft-immersive-experiences-sharing-your-view-in-facebook-lives/"><u>In 2024, Craft Immersive Experiences Sharing Your View in Facebook Lives</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-top-12-prominent-oppo-fingerprint-not-working-solutions-by-drfone-android/"><u>In 2024, Top 12 Prominent Oppo Fingerprint Not Working Solutions</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ichrome-youtube-on-the-move-autoplay-options/"><u>Safari/Chrome YouTube On-the-Move AutoPlay Options</u></a></li>
 </ul></div>
 

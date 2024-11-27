@@ -1,7 +1,7 @@
 ---
 title: "A Comprehensive Look at Lighting Your YouTube Videos Right for 2024"
-date: 2024-11-11T16:11:36.527Z
-updated: 2024-11-17T16:25:12.358Z
+date: 2024-11-22T18:59:27.977Z
+updated: 2024-11-27T13:04:25.459Z
 tags:
   - ai video
   - ai youtube
@@ -40,16 +40,13 @@ Below, I’ll go into detail on how you can set up your lighting equipment to ma
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: Using Light You Already Have
 
 Most beginner YouTubers light their videos with what they already have. That’s what I did to start as well. In the past, my video recording space consisted of natural sunlight coming from my window and ceiling light for times when the sunlight wasn’t strong enough.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918679/19272" target="_top" id="1918679">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918679" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918679/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1.  Window Lighting
 
@@ -60,19 +57,13 @@ Window lighting for me was especially difficult to work with because I live in a
 ![  YouTube Video Lighting ](https://images.wondershare.com/filmora/article-images/window-lighting-comparison.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094480/7443" target="_top" id="2094480">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094480" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094480/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Above are two freeze frames from one of Daniel's past window-lit vlogs. Although these two frames are both from the same vlog, you can see that the image on the right looks brighter due to clearer skies at that moment. These varying amounts of light is what you will have to deal with if you choose to light your YouTube video with window lighting.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2. Home Lighting
@@ -122,13 +113,14 @@ For more information on lighting equipment, check out my [Top 17 Video Lighting 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -151,16 +143,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-instagram-filters-for-the-win-maximize-likes-and-comments-effortlessly/"><u>[New] 2024 Approved Instagram Filters for the Win Maximize Likes & Comments Effortlessly</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-starting-a-youtube-channel-the-ultimate-blueprint/"><u>[New] 2024 Approved Starting a YouTube Channel The Ultimate Blueprint</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-the-novices-route-to-revenue-in-the-youtube-realm/"><u>[New] 2024 Approved The Novice's Route to Revenue in the YouTube Realm</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-tiktok-versus-youtube-shorts-assessing-personal-usage-value/"><u>[New] 2024 Approved TikTok versus YouTube Shorts Assessing Personal Usage Value</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-top-10-rapidly-expanding-youtube-hubs-for-motivation/"><u>[New] 2024 Approved Top 10 Rapidly Expanding YouTube Hubs for Motivation</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-uniting-music-and-media-with-precision-using-youtube-video-editor/"><u>[New] 2024 Approved Uniting Music & Media with Precision Using YouTube Video Editor</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/discover-the-best-ai-storyteller-applications-four-options-to-explore/"><u>Discover the Best AI Storyteller Applications: Four Options to Explore</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-find-ispoofer-pro-activation-key-on-tecno-pop-7-pro-drfone-by-drfone-virtual-android/"><u>How to Find iSpoofer Pro Activation Key On Tecno Pop 7 Pro? | Dr.fone</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-a-step-by-step-guide-to-your-first-twitter-profile/"><u>In 2024, A Step-by-Step Guide to Your First Twitter Profile</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-enhancing-income-through-the-science-of-youtube-trailer-creation/"><u>In 2024, Enhancing Income Through the Science of YouTube Trailer Creation</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-complete-set-of-romance-language-nations/"><u>The Complete Set of Romance Language Nations</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/urate-your-learning-best-15-science-yt-experts-for-2024/"><u>[New] Curate Your Learning Best 15 Science YT Experts for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-expert-techniques-for-professionalizing-mobile-based-youtube-thumbnails/"><u>[New] Expert Techniques for Professionalizing Mobile-Based YouTube Thumbnails</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-pave-your-path-to-popularity-secure-1000-fansmonth-on-instagram/"><u>[New] In 2024, Pave Your Path to Popularity Secure 1,000 Fans/Month on Instagram</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-masterpiece-maker-top-free-editors-for-android-devices/"><u>[Updated] 2024 Approved Masterpiece Maker Top Free Editors for Android Devices</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-crafting-effective-teacher-videos-on-youtube-top-10-strategies-for-2024/"><u>[Updated] Crafting Effective Teacher Videos on YouTube – Top 10 Strategies for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-cutting-edge-strategies-for-youtube-split-screen-videos/"><u>[Updated] Cutting-Edge Strategies for YouTube Split-Screen Videos</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-top-10-best-camera-lenses-of-2024/"><u>[Updated] Top 10 Best Camera Lenses Of 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-capture-every-moment-essential-ways-for-google-meet-recordings/"><u>2024 Approved Capture Every Moment Essential Ways for Google Meet Recordings</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-preserving-gh-meetings-live/"><u>2024 Approved Preserving GH Meetings Live</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-the-insiders-look-at-youtube-content-regulations/"><u>2024 Approved The Insider's Look at YouTube Content Regulations</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-youtube-cpm-rates-how-much-do-youtubers-make/"><u>2024 Approved YouTube CPM Rates How Much Do YouTubers Make</u></a></li>
+<li><a href="https://fox-ssl.techidaily.com/achieve-impeccable-macbook-pro-video-capture-expert-tips-and-tricks-for-crystal-clear-results/"><u>Achieve Impeccable MacBook Pro Video Capture: Expert Tips and Tricks for Crystal Clear Results</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/downloadable-pci-device-driver-software-compatible-with-windows-11-10-8-and-7/"><u>Downloadable PCI Device Driver Software Compatible with Windows 11, 10, 8 & 7</u></a></li>
+<li><a href="https://program-issues.techidaily.com/fortnite-troubleshooting-guide-correcting-the-missing-entry-point-error/"><u>Fortnite Troubleshooting Guide: Correcting the Missing Entry Point Error</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-editing-excellence-the-ultimate-guide-to-top-notebooks/"><u>In 2024, Editing Excellence The Ultimate Guide to Top Notebooks</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-understanding-and-executing-essential-mukbang-elements/"><u>In 2024, Understanding and Executing Essential Mukbang Elements</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/top-picks-slow-motion-video-editing-tools-for-creators/"><u>Top Picks Slow Motion Video Editing Tools for Creators</u></a></li>
 </ul></div>
 

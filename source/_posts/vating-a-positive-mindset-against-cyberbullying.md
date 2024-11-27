@@ -1,7 +1,7 @@
 ---
 title: "Cultivating a Positive Mindset Against Cyberbullying"
-date: 2024-08-28T13:03:22.076Z
-updated: 2024-08-29T13:03:22.076Z
+date: 2024-11-24T17:00:43.327Z
+updated: 2024-11-26T23:52:43.334Z
 tags:
   - ai video
   - ai youtube
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/ef75e54c89ead83bf0af102804bf50f616e622b6f
  Mar 27, 2024• Proven solutions
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
 
@@ -54,20 +58,21 @@ thumbnail: https://thmb.techidaily.com/ef75e54c89ead83bf0af102804bf50f616e622b6f
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -76,8 +81,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-key-facts-on-youtube-lives-visual-identity/"><u>[New] 2024 Approved Key Facts on YouTube Live's Visual Identity</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/omic-corner-best-funny-content-on-the-planet-web-for-2024/"><u>[New] Comic Corner Best Funny Content on the Planet Web for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/he-privacy-filter-concealing-visual-details-in-media/"><u>[New] The Privacy Filter Concealing Visual Details in Media</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-a-guide-to-gathering-gold-from-guided-goods-gazes-online/"><u>[Updated] 2024 Approved A Guide to Gathering Gold From Guided Goods' Gazes Online</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-streaming-tunes-quick-methods-for-youtube-videos-in-imovie/"><u>[Updated] 2024 Approved Streaming Tunes Quick Methods for Youtube Videos in iMovie</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-fearless-filming-tackling-ten-common-vlog-anxieties-head-on-for-2024/"><u>[Updated] Fearless Filming Tackling Ten Common Vlog Anxieties Head-On for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-mastering-cc-license-application-a-comprehensive-guide/"><u>[Updated] In 2024, Mastering CC License Application A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-unlock-your-potential-with-these-influential-biz-video-hubs/"><u>[Updated] In 2024, Unlock Your Potential with These Influential Biz Video Hubs</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-moviemakermag-extreme-review-complete-take-on-androvid-editor/"><u>[Updated] MovieMakerMag Extreme Review – Complete Take on AndroVid Editor</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-pro-android-pixel-perfect-techniques/"><u>[Updated] Pro Android Pixel Perfect Techniques</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/direct-save-plus-alternative-pathways-your-instagram-video-guide-for-2024/"><u>Direct Save + Alternative Pathways Your Instagram Video Guide for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/going-viral-in-the-world-of-instagram-discover-these-10-effective-tips/"><u>Going Viral in the World of Instagram: Discover These 10 Effective Tips</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-harmonize-your-listens-the-complete-path-to-youtube-playlist-making-webmobile/"><u>In 2024, Harmonize Your Listens The Complete Path to YouTube Playlist Making (Web/Mobile)</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-how-to-illuminate-a-guide-to-great-vlog-images/"><u>In 2024, How to Illuminate A Guide to Great Vlog Images</u></a></li>
+<li><a href="https://some-tips.techidaily.com/in-2024-the-art-of-piecing-together-digital-images/"><u>In 2024, The Art of Piecing Together Digital Images</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->

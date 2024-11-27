@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Basics of Online Videos  The Easiest 10 Ideas for Beginners on YouTube for 2024\""
-date: 2024-08-23T08:32:43.161Z
-updated: 2024-08-24T08:32:43.161Z
+date: 2024-11-20T06:18:17.735Z
+updated: 2024-11-27T13:43:25.309Z
 tags:
   - ai video
   - ai youtube
@@ -47,6 +47,10 @@ Let the world know who you are and what you do. If you are planning on starting 
 
 These kinds of videos make great channel trailers, and they’re a good way to highlight the topics you'll be covering on your channel in the future.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. Vlog About Your Day
 
 Anything that happens during your day can become a topic for your YouTube vlog. Traffic jams, treacherous pets who keep stealing your shoes, or the ridiculous amount of things you had to do in a single day can all become topics for videos you upload to your YouTube channel. Being candid and spontaneous is a sure way to grab the attention of a viewer, but limiting the duration of a vlog to a few minutes is key to ensuring that viewers watch the video until the end.
@@ -74,13 +78,18 @@ Are you a Tarantino fan? Why not? When you are struggling to find inspiration fo
 You can do a ‘my 5 favorite songs’ type of video, or talk in detail about just one favorite.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 6\. What’s on Your Phone?
 
 There were over two billion smartphone users worldwide in 2017, and this number is only going to continue rising in the next couple of years. Furthermore, thousands of YouTubers are already producing unimaginable amounts of videos about the latest apps or smartphone devices.
 
 Finding a way to talk about the apps you like to use the most can be a good idea if you want to attract more visitors to your YouTube channel. However, you need to be clear about whether this is a lifestyle or vlog-style video covering a topic that usually exists in the tech genre, or if you are a tech YouTuber, so as not to confuse your audience (you don’t want people to start expecting app reviews if that’s not what you usually do).
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 7\. Make a Slideshow
 
@@ -89,17 +98,15 @@ There's no need to constantly produce new videos because you can just take some 
 If you are a photography enthusiast you can also plan the entire slideshow in advance and then make a short video about how you created the images in the slideshow.
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 8\. Make a Tutorial
 
 Education is our only hope for a better world so if you know how to do something well, don't be afraid to share your knowledge. A tutorial is a powerful educational tool that enables you to guide people through the entire process of making origami, solving a complicated video editing problem, maintaining a motorcycle, or anything else.
 
 YouTube channels that feature tutorials often have millions of followers, because YouTube is a popular place to go when you need information.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 9\. 10 Things About You
 
 Being open is important, so why not share 10 things about yourself you think your audience would find interesting or which you think are important for people to know. The top 10 things structure is often used in YouTube videos because it provides a clear rhythm to a video clip, and it enables you to gradually increase the tension as the video progresses.
@@ -107,8 +114,9 @@ Being open is important, so why not share 10 things about yourself you think you
 These types of videos tend to create a better relationship with your audience because they make the viewer feel as if they know the person on the screen.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 10\. Video Rant
 
 Doing things when you are angry is usually a bad idea, but if you feel so strongly about a particular subject then creating a video rant can be a great idea. Rants don’t even have to be angry, they can be about something that puzzles you or something so great you just can’t get over it. These kinds of videos can get your YouTube channel a lot of comments, likes, and subscribers.
@@ -123,28 +131,19 @@ If you start your YouTube channel but have no video editing experience, Wondersh
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -153,4 +152,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-the-obs-strategy-for-high-quality-skype-screens/"><u>[New] 2024 Approved The OBS Strategy for High-Quality Skype Screens</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-unveiling-modernity-discover-these-top-10-digital-realms-for-artistic-font-styles-for-2024/"><u>[New] Unveiling Modernity Discover These Top 10 Digital Realms for Artistic Font Styles for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/hite-list-microphones-for-frugal-filmmakers/"><u>[New] White-List Microphones for Frugal Filmmakers</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-xsplit-hub-centralized-download-and-evaluation-for-2024/"><u>[New] XSplit Hub Centralized Download & Evaluation for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-bite-size-broadcasting-battle-which-platform-dominates-in-shorter-videos-for-2024/"><u>[Updated] Bite-Size Broadcasting Battle Which Platform Dominates in Shorter Videos for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-ignite-interest-essential-youtube-video-concepts-for-2024/"><u>[Updated] Ignite Interest Essential YouTube Video Concepts for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-transform-slideshow-into-video-for-2024/"><u>[Updated] Transform Slideshow Into Video for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-the-art-of-the-daily-share-keep-your-digital-diary-top-notch/"><u>2024 Approved The Art of the Daily Share Keep Your Digital Diary Top-Notch</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/customizing-with-the-power-of-cookiebot-technology/"><u>Customizing with the Power of Cookiebot Technology</u></a></li>
+<li><a href="https://discover-alternatives.techidaily.com/dvd-cloning-on-windows-operating-systems-win111087-easy-instructions-for-safe-copying/"><u>DVD Cloning on Windows Operating Systems (Win11/10/8/7): Easy Instructions for Safe Copying</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-vivo-v30-lite-5g-phone-without-password-by-drfone-android/"><u>In 2024, How To Unlock Vivo V30 Lite 5G Phone Without Password?</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-tailoring-your-canvas-a-guide-to-erasing-background-elements/"><u>In 2024, Tailoring Your Canvas A Guide to Erasing Background Elements</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/izing-income-a-trifecta-methodology-for-youtube-earnings-assessment-for-2024/"><u>Optimizing Income A Trifecta Methodology for YouTube Earnings Assessment for 2024</u></a></li>
+</ul></div>
 

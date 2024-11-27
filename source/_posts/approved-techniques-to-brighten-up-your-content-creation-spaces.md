@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Techniques to Brighten Up Your Content Creation Spaces\""
-date: 2024-11-12T17:22:59.344Z
-updated: 2024-11-17T16:47:25.225Z
+date: 2024-11-25T18:48:51.930Z
+updated: 2024-11-27T00:57:49.191Z
 tags:
   - ai video
   - ai youtube
@@ -33,6 +33,10 @@ Going outside and using natural light is the cheapest way to get a lot of light 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Video Lighting Basics: Three Point Lighting
 
 ![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
@@ -49,14 +53,11 @@ The **fill light** is less bright than the primary source of light and it is pla
 
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
-### Watch Video! Top Lighting Tips for Vlogging
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902309/19272" target="_top" id="1902309">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902309" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902309/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+### Watch Video! Top Lighting Tips for Vlogging
 
 ## Lightning Tips for Aspiring YouTube Videographers
 
@@ -85,10 +86,7 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
@@ -98,10 +96,7 @@ If you are hosting a **beauty vlog** then you might consider a slightly differen
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
@@ -111,10 +106,7 @@ If you are stuck shooting in **low light conditions** it is best to use a lens w
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886044/19272" target="_top" id="1886044">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886044" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886044/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -138,16 +130,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-strategies-to-solve-off-screen-problems-on-youtube/"><u>[New] 2024 Approved Strategies to Solve Off-Screen Problems on YouTube</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-unravel-the-mystery-of-the-overly-green-hue-in-mac-recordings/"><u>[New] 2024 Approved Unravel the Mystery of the Overly Green Hue in Mac Recordings</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-youtube-studio-edits-demystified-for-aspiring-filmmakers/"><u>[New] 2024 Approved YouTube Studio Edits Demystified for Aspiring Filmmakers</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-precision-guided-tour-unearthing-hidden-youtube-gems/"><u>[Updated] 2024 Approved Precision-Guided Tour Unearthing Hidden YouTube Gems</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-navigate-your-newly-enjoyed-facebook-movies-with-this-2023-guide/"><u>[Updated] In 2024, Navigate Your Newly Enjoyed Facebook Movies with This 2023 Guide</u></a></li>
-<li><a href="https://location-fake.techidaily.com/8-solutions-to-fix-find-my-friends-location-not-available-on-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>8 Solutions to Fix Find My Friends Location Not Available On Poco F5 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://win-extraordinary.techidaily.com/eight-dubious-email-categories-why-its-time-to-unsubscribe-from-them-using-massmail/"><u>Eight Dubious Email Categories: Why It's Time to Unsubscribe From Them Using MassMail</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-accelerated-steps-to-rearrange-youtube-music-ordering/"><u>In 2024, Accelerated Steps to Rearrange YouTube Music Ordering</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-arena-of-games-100plus-channel-spectrums-galore/"><u>In 2024, Arena of Games 100+ Channel Spectrums Galore</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/mastering-the-art-of-gesture-tracking/"><u>Mastering the Art of Gesture Tracking</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/samsungs-smartwatch-excellence-a-detailed-appraisal-of-the-multifaceted-samsung-gear-s3-frontier-model/"><u>Samsung's Smartwatch Excellence: A Detailed Appraisal of the Multifaceted Samsung Gear S^3 Frontier Model</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-bring-a-chuckle-to-life-generating-text-memes/"><u>[New] Bring a Chuckle to Life Generating Text Memes</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/hannel-aspirations-reach-and-secure-10k-views-for-youtube-partner-perks-for-2024/"><u>[New] Channel Aspirations – Reach and Secure 10K Views for YouTube Partner Perks for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-cutting-the-chaff-skilled-techniques-for-cropping-videos-for-instagram/"><u>[New] Cutting the Chaff Skilled Techniques for Cropping Videos for Instagram</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ailymotion-vs-youtube-monetization-which-is-more-profitable-in-2024/"><u>[New] Dailymotion vs YouTube Monetization Which Is More Profitable, In 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-a-compre-written-in-code-deciphering-youtube-backlink-building-techniques/"><u>[New] In 2024, A Compre Written in Code Deciphering YouTube Backlink Building Techniques</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/he-ultimate-list-of-preferred-youtube-video-formats-for-2024/"><u>[New] The Ultimate List of Preferred YouTube Video Formats for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-boost-your-channels-income-understanding-critical-view-thresholds-for-2024/"><u>[Updated] Boost Your Channel's Income Understanding Critical View Thresholds for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-essential-youtube-equipment-for-starting-your-channel/"><u>[Updated] Essential YouTube Equipment For Starting Your Channel</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-ignite-conversations-tactics-for-facebook-impact-for-2024/"><u>[Updated] Ignite Conversations Tactics for Facebook Impact for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-the-animators-odyssey-crafting-your-own-fx-realm/"><u>[Updated] In 2024, The Animator's Odyssey Crafting Your Own FX Realm</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-unraveling-the-secrets-of-inshot-editing-excellence/"><u>[Updated] In 2024, Unraveling the Secrets of InShot Editing Excellence</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-ions-pro-3-unveiled-a-camera-ready-to-conquer-action-scenes/"><u>[Updated] ION's Pro 3 Unveiled - A Camera Ready to Conquer Action Scenes</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-windows-10s-leading-screen-capture-tools-a-comprehensive-list/"><u>[Updated] Windows 10'S Leading Screen Capture Tools A Comprehensive List</u></a></li>
+<li><a href="https://win-able.techidaily.com/cut-costs-and-boost-efficiency-my-top-tips-for-using-excel-in-managing-projects/"><u>Cut Costs and Boost Efficiency: My Top Tips for Using Excel in Managing Projects</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-wizards-perfect-templates-for-gaming-channel-logos-for-2024/"><u>Design Wizards Perfect Templates for Gaming Channel Logos for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/t-guide-to-optimal-tripod-setup-for-high-quality-vlogs/"><u>Expert Guide to Optimal Tripod Setup for High-Quality Vlogs</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-nokia-c12-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Nokia C12 to Any iOS Devices | Dr.fone</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-avidemux-tutorial-crop-and-resize-your-videos-like-a-pro-for-2024/"><u>New Avidemux Tutorial Crop and Resize Your Videos Like a Pro for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ate-picks-for-affordable-video-sbs-grabbers/"><u>Ultimate Picks for Affordable Video SBS Grabbers</u></a></li>
 </ul></div>
 

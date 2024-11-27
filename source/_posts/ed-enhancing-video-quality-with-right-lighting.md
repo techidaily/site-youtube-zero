@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Enhancing Video Quality with Right Lighting"
-date: 2024-11-16T16:10:39.413Z
-updated: 2024-11-17T16:51:58.532Z
+date: 2024-11-21T23:27:46.950Z
+updated: 2024-11-27T02:36:04.783Z
 tags:
   - ai video
   - ai youtube
@@ -37,6 +37,10 @@ Going outside and using natural light is the cheapest way to get a lot of light 
 
 ![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
 
 The brightest source of light is also known as the **key light** which need to be high quality. A window will work, but if you do not have access to one where you are filming then consider an LED panel light or a softbox light like the ones used in portrait photography.
@@ -52,10 +56,7 @@ The final step to creating three point lighting is to set up another light behin
 ### Watch Video! Top Lighting Tips for Vlogging
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Lightning Tips for Aspiring YouTube Videographers
@@ -85,10 +86,7 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151882/7443" target="_top" id="2151882">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151882" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
@@ -98,10 +96,7 @@ If you are hosting a **beauty vlog** then you might consider a slightly differen
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012420/19272" target="_top" id="2012420">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012420" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012420/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
@@ -111,10 +106,7 @@ If you are stuck shooting in **low light conditions** it is best to use a lens w
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886044/19272" target="_top" id="1886044">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886044" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886044/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -138,17 +130,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-prohero-vs-nikkor-km-170-which-reigns-supreme-for-2024/"><u>[New] ProHero vs Nikkor KM-170 Which Reigns Supreme for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-from-silent-movies-to-sound-films-a-modern-tutorial/"><u>[Updated] From Silent Movies to Sound Films A Modern Tutorial</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-information-what-is-blue-video-icon-on-facebook-messenger/"><u>[Updated] Information | What Is Blue Video Icon on Facebook Messenger?</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-top-10-heavy-lift-drones-you-should-know-for-2024/"><u>[Updated] Top 10 Heavy Lift Drones You Should Know for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/from-compressed-to-captioned-zip-to-srt-effortlessly/"><u>From Compressed To Captioned Zip to .Srt Effortlessly</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-amplify-your-channel-effortless-tactics-for-more-views/"><u>In 2024, Amplify Your Channel Effortless Tactics for More Views</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-an-in-depth-look-at-video-apps-for-iphone-and-android-users/"><u>In 2024, An In-Depth Look at Video Apps for iPhone & Android Users</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-audio-to-text-converter-for-videos/"><u>In 2024, Audio-to-Text Converter for Videos</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-bright-beginnings-on-youtube-launching-and-revenue-strategies/"><u>In 2024, Bright Beginnings on YouTube Launching and Revenue Strategies</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-calculating-earnings-ad-revenues-in-the-world-of-youtube/"><u>In 2024, Calculating Earnings Ad Revenues in the World of YouTube?</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/step-by-step-guide-streaming-videos-from-your-pc-to-apple-tv-using-vlc-media-player/"><u>Step-by-Step Guide: Streaming Videos From Your PC to Apple TV Using VLC Media Player</u></a></li>
-<li><a href="https://windows11.techidaily.com/unleash-potential-understanding-function-fn-key-operations/"><u>Unleash Potential: Understanding Function (Fn) Key Operations</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-discovering-whos-watching-your-videos/"><u>[New] In 2024, Discovering Who's Watching Your Videos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/avigating-copyright-concerns-in-screencasting-youtube-videos-for-2024/"><u>[New] Navigating Copyright Concerns in Screencasting YouTube Videos for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-revamping-memories-editing-in-look-back-videos/"><u>[New] Revamping Memories Editing in Look Back Videos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-becoming-a-confident-content-creator-youtubes-top-tips-for-2024/"><u>[Updated] Becoming a Confident Content Creator YouTube's Top Tips for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-finding-the-ultimate-cam-choice-post-manycam/"><u>[Updated] Finding the Ultimate Cam Choice Post-ManyCam</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-identifying-your-individual-song-collection-on-youtube/"><u>[Updated] Identifying Your Individual Song Collection on YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-1-choice-transcribe-youtube-videos-in-a-flash/"><u>[Updated] In 2024, 1 Choice Transcribe YouTube Videos in a Flash</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-how-to-craft-standout-videos-mastery-of-youtube-thumbnail-dimensions/"><u>[Updated] In 2024, How to Craft Standout Videos Mastery of YouTube Thumbnail Dimensions</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-comprehensive-review-of-zd-soft-capture-tool/"><u>2024 Approved Comprehensive Review of ZD Soft Capture Tool</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-stand-alone-hold-tight-camera-stability-techniques/"><u>2024 Approved Stand Alone, Hold Tight Camera Stability Techniques</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-step-by-step-guide-to-creating-engaging-high-quality-asmr-scenes/"><u>2024 Approved Step-by-Step Guide to Creating Engaging, High-Quality ASMR Scenes</u></a></li>
+<li><a href="https://howto.techidaily.com/cellular-network-not-available-for-voice-calls-on-oppo-f25-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Cellular Network Not Available for Voice Calls On Oppo F25 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://ai-video.techidaily.com/everything-you-want-to-know-about-kapwing-video-translation/"><u>Everything You Want To Know About Kapwing Video Translation</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-navigating-the-digital-realm-uploading-with-premiere-and-youtube/"><u>In 2024, Navigating the Digital Realm Uploading with Premiere & YouTube</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/mac-to-snapchat-creating-compact-shareable-content-for-2024/"><u>Mac to Snapchat Creating Compact, Shareable Content for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/solving-the-location-unavailable-issue-in-windows-11-and-windows-10-a-step-by-step-guide/"><u>Solving the 'Location Unavailable' Issue in Windows 11 and Windows 10: A Step-by-Step Guide</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/ultimate-guide-setting-up-your-printer-with-windows-11/"><u>Ultimate Guide: Setting Up Your Printer with Windows 11</u></a></li>
 </ul></div>
 

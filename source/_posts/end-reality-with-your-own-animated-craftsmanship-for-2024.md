@@ -1,7 +1,7 @@
 ---
 title: "[New] Bend Reality with Your Own Animated Craftsmanship for 2024"
-date: 2024-11-14T16:23:23.466Z
-updated: 2024-11-17T16:06:48.029Z
+date: 2024-11-20T00:39:43.221Z
+updated: 2024-11-26T18:24:06.511Z
 tags:
   - ai video
   - ai youtube
@@ -51,15 +51,16 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **[Mt. Mograph](https://www.youtube.com/channel/UCSUSgx9qc%5FNydrOL59xbJIA)**
 
 On this YouTube channel, motion graphics specialist Matt offers free animation tutorials using a variety of programs including Adobe After Effects and Cinema 4D. His lessons are for a range of skill levels, from beginner to advanced. If you are just starting out then Mt.Mograph is a great resource.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012420/19272" target="_top" id="2012420">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012420" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012420/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Richard Harrington on Lynda](https://www.lynda.com/Rich-Harrington/120-1.html)**
@@ -69,10 +70,7 @@ Lynda isn’t free, but the 10-day free trial period is definitely long enough f
 What’s great about this course is that it assumes you have no animation experience, and it walks you through the main thing a lot of YouTubers want to learn animation for – creating an animated logo.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Bloop Animation](https://www.bloopanimation.com/)**
@@ -80,10 +78,7 @@ What’s great about this course is that it assumes you have no animation experi
  Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Video Copilot](http://www.videocopilot.net/)**
@@ -93,10 +88,7 @@ This site has a huge number of free After Effects tutorials. There are basic int
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148638/16836" target="_top" id="2148638">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148638" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148638/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -120,19 +112,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-transparent-perspective-reviewing-recordcasts-strengths/"><u>[New] 2024 Approved Transparent Perspective Reviewing RecordCast's Strengths</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/levate-engagement-discover-these-top-12-techniques-for-video-success/"><u>[New] Elevate Engagement - Discover These Top 12 Techniques for Video Success</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/lite-content-consummation/"><u>[New] Elite Content Consummation</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/nderstanding-the-criteria-for-youtube-comment-spotlighting/"><u>[New] Understanding the Criteria for YouTube Comment Spotlighting</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/hats-the-real-distinction-between-youtube-and-dailymention/"><u>[New] What's the Real Distinction Between YouTube and DailyMention?</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-top-gear-for-youtube-beginners-essential-tech-guide/"><u>2024 Approved Top Gear for YouTube Beginners Essential Tech Guide</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ent-online-broadcasting-houses/"><u>Affluent Online Broadcasting Houses</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/cutting-edge-tips-for-professional-lunapic-editing/"><u>Cutting-Edge Tips for Professional LunaPic Editing</u></a></li>
-<li><a href="https://win-alternatives.techidaily.com/download-now-premier-and-free-data-restoration-apps-for-seamless-file-retrieval/"><u>Download Now: Premier and Free Data Restoration Apps for Seamless File Retrieval</u></a></li>
-<li><a href="https://techidaily.com/how-to-factory-reset-oneplus-nord-3-5g-without-losing-data-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset OnePlus Nord 3 5G without Losing Data | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-card-on-oppo-a79-5g-online-without-jailbreak-by-drfone-android/"><u>How to Unlock SIM Card on Oppo A79 5G online without jailbreak</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-chat-enhancement-course-turning-your-graphics-into-social-media-stickers/"><u>In 2024, Chat Enhancement Course Turning Your Graphics Into Social Media Stickers</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/inside-the-d-link-powerline-2000-plk-p8e-setting-up-and-achieving-high-data-speeds-effortlessly/"><u>Inside the D-Link Powerline 2000 (PLK-P8E): Setting Up and Achieving High Data Speeds Effortlessly</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ize-online-presence-video-embellishment-with-logos-and-watermarks-for-2024/"><u>Optimize Online Presence Video Embellishment with Logos and Watermarks for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-comedy-in-a-click-best-funny-short-video-suggestions-for-youtubers/"><u>[Updated] 2024 Approved Comedy in a Click Best Funny Short Video Suggestions for YouTubers</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-rhythm-roundup-hot-music-for-todays-top-youtube-short-videos/"><u>[Updated] In 2024, Rhythm Roundup Hot Music for Today’s Top YouTube Short Videos</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-superior-selection-best-windows-videophone-apps-guide-for-2024/"><u>[Updated] Superior Selection Best Windows Videophone Apps Guide for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-a-step-by-step-strategy-to-design-engaging-youtube-teasers/"><u>2024 Approved A Step-by-Step Strategy to Design Engaging YouTube Teasers</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-youtube-marketing-key-methods-for-attracting-viewers/"><u>2024 Approved YouTube Marketing Key Methods for Attracting Viewers</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/g-visual-time-indicators-to-your-youtube-links/"><u>Adding Visual Time Indicators to Your YouTube Links</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/amd-ryzen-3-2200g-driver-package-free-download-now/"><u>AMD Ryzen 3 2200G Driver Package - Free Download Now</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-capture-striking-shots-using-leading-lines-iphone/"><u>In 2024, Capture Striking Shots Using Leading Lines (iPhone)</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-forgot-locked-apple-iphone-15-pro-password-learn-the-best-methods-to-unlock-drfone-by-drfone-ios/"><u>In 2024, Forgot Locked Apple iPhone 15 Pro Password? Learn the Best Methods To Unlock | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-watch-hulu-outside-us-on-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Watch Hulu Outside US On Apple iPhone 11 Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-profit-strategies-for-beauty-streams/"><u>In 2024, Profit Strategies for Beauty Streams</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-your-beginners-guide-to-making-money-on-youtubers/"><u>In 2024, Your Beginner's Guide to Making Money on YouTubers</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/premium-twelve-full-frame-video-tech-lists/"><u>Premium Twelve Full Frame Video Tech Lists</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/securing-sound-output-fixes-for-silent-obs-streams/"><u>Securing Sound Output Fixes for Silent OBS Streams</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/solutions-for-your-hot-iphone-understanding-causes-and-remedies/"><u>Solutions for Your Hot iPhone: Understanding Causes and Remedies</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ing-as-a-novice-youtuber-sidestep-these-8-crucial-pitfalls/"><u>Thriving as a Novice YouTuber? Sidestep These 8 Crucial Pitfalls!</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/top-10-password-cracking-tools-for-xiaomi-redmi-note-12-pro-5g-by-drfone-android/"><u>Top 10 Password Cracking Tools For Xiaomi Redmi Note 12 Pro 5G</u></a></li>
 </ul></div>
 

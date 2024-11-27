@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Dissecting YouTube's Activities Post-Uploading Videos\""
-date: 2024-08-28T13:03:24.525Z
-updated: 2024-08-29T13:03:24.525Z
+date: 2024-11-24T05:41:10.095Z
+updated: 2024-11-26T20:19:29.694Z
 tags:
   - ai video
   - ai youtube
@@ -28,6 +28,10 @@ You use YouTube to watch videos, post your own content, and build up a following
 
 This article will explain what goes on behind the scenes when you upload a video, where that video really goes, and what happens when somebody clicks play.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Does YouTube Work
 
 #### 1\. What Happens When You Upload?
@@ -40,9 +44,17 @@ If uploading takes a long time for you it probably has nothing to do with YouTub
 
 ![how youtube works](https://images.wondershare.com/filmora/article-images/how-youtube-works.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 As it is owned by Google YouTube uses Google's 'Bigtable', a compressed data storage system which allows it to store the 500+ hours of video uploaded to its servers every minute. Bigtable is software, though, not hardware. YouTube and Google both have massive amounts of data and it needs to be physically housed somewhere.
 
 ![videos uploaded to youtube](https://images.wondershare.com/filmora/article-images/videos-uploaded-to-youtube.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Google has Modular Data Centers all over the world where it keeps its servers. These centers could cost as much as $600 million dollars each and consume huge amounts of electricity. There are six of them in the United States, three in Europe, two in Asia, and one is South America.
 
@@ -54,20 +66,21 @@ If videos take a long time to load for you then there are a few things you can d
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -76,8 +89,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-go-big-go-viral-channel-tiktok-trends-into-instagram-reels/"><u>[New] 2024 Approved Go Big, Go Viral Channel TikTok Trends Into Instagram Reels</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-unlocking-video-potential-essential-courses-for-new-creators/"><u>[New] 2024 Approved Unlocking Video Potential Essential Courses for New Creators</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/est-14-youtube-gaming-video-ideas-to-boost-gaming-channels/"><u>[New] Best 14 YouTube Gaming Video Ideas to Boost Gaming Channels</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ive-deep-into-video-creation-with-these-top-12-vlogger-friendly-cameras/"><u>[New] Dive Deep Into Video Creation with These Top 12 Vlogger-Friendly Cameras</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-evaluate-cloud-price-plans-a-side-by-side-review-and-recommendations/"><u>[New] In 2024, Evaluate Cloud Price Plans A Side-by-Side Review & Recommendations</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/op-9-camera-extras-for-professional-level-vlogging-on-smartphones/"><u>[New] Top 9 Camera Extras for Professional-Level Vlogging on Smartphones</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-efficient-youtube-ad-blocking-on-chromefirefoxandroid-devices/"><u>[Updated] 2024 Approved Efficient YouTube Ad Blocking on Chrome/Firefox/Android Devices</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-conquering-the-fan-base-youtubes-pathway-to-more-followers/"><u>[Updated] In 2024, Conquering the Fan Base YouTube's Pathway to More Followers</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-premium-youtube-insights-everything-you-must-know/"><u>2024 Approved Premium YouTube Insights Everything You Must Know</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-ultimate-mp4-media-synchronizer-to-fb/"><u>2024 Approved Ultimate MP4 Media Synchronizer to FB</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/a-complete-walkthrough-of-vlc-capture-settings-for-2024/"><u>A Complete Walkthrough of VLC Capture Settings for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/d-audience-counting-the-intricacies-of-youtubes-metrics/"><u>Beyond Audience Counting The Intricacies of YouTube’s Metrics</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/how-the-jabra-speak-25-transforms-chatting-fast-charges-and-long-duration/"><u>How the Jabra Speak 25 Transforms Chatting: Fast Charges & Long Duration</u></a></li>
+<li><a href="https://techidaily.com/how-to-update-apple-iphone-13-pro-max-without-data-loss-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Update Apple iPhone 13 Pro Max without Data Loss? | Dr.fone</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/updated-converting-audacity-audio-productions-to-mp3-format/"><u>Updated Converting Audacity Audio Productions to MP3 Format</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

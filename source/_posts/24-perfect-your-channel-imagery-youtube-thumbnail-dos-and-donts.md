@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Perfect Your Channel Imagery  YouTube Thumbnail Do's & Don'ts\""
-date: 2024-11-13T16:16:21.209Z
-updated: 2024-11-17T17:13:23.980Z
+date: 2024-11-21T08:56:10.938Z
+updated: 2024-11-26T23:06:16.448Z
 tags:
   - ai video
   - ai youtube
@@ -58,13 +58,6 @@ Using patterns for the background of your channel banner can help your channel l
 
 ![ YouTube Channel Banner Background](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-background.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: Should I Use My Face?
 
 Whether you should use your face on your channel banner depends on what your channel is about. If you have a channel focused on beauty, fashion, fitness, or family vlogs then it’s a good idea to include your face. It comes off personable and helps viewers relate to you. If you have a channel that is about something like gaming, tech reviews, or book reviews then it isn’t necessary to include your face because the focus of your content isn’t you as a personality.
@@ -82,15 +75,16 @@ That doesn’t mean you have to hire a photographer to take pictures for your ch
 It is always best to use a current photo of yourself. Many times viewers will go and follow you on social media as well. If they see that you have current photos on your social media but not on your channel, they are become confused and perhaps lose interest.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: What Should I Write on My Banner?
 
 ![ YouTube Channel Banner writing](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-write.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### _Do: Include Your Channel Name_
 
@@ -112,13 +106,6 @@ Including social media icons in your channel art lets people know where they can
 
 ![ YouTube Channel Banner Safe Area](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-safe-area.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 _Make sure everything important fits in the safe area!_
 
 #### _Do: Include Brief Channel Description or Tag Line_
@@ -132,10 +119,7 @@ YouTubers that use tag lines are using their channel as a platform to carry out 
 Whether you decide to use descriptive words or a tag line, they will help your channel tremendously by setting expectations for your viewers.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: How Can I Make My Channel Art Look Good?
@@ -158,11 +142,19 @@ _Joshelle is a YouTuber from Atlanta, GA. She has a YouTube channel called [Elle
 
 Now that you know how to make a good YouTube banner, what will you do next?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Touch Up YouTube Videos with Filmora
 
 [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)features lots of utilities for both video and audio editing. You can change the video speed or change the aspect ratio easily. Besides, there are plentiful filters, elements, effects and overlays built, so you can use them without costing any extra fee.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -187,21 +179,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-achieving-harmony-selecting-ideal-aspect-ratios-for-2024/"><u>[New] Achieving Harmony Selecting Ideal Aspect Ratios for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/eamless-content-curation-with-youtubes-watch-later-feature/"><u>[New] Seamless Content Curation with YouTube’s Watch Later Feature</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-tinkering-with-technology-a-new-sound-for-your-phone/"><u>[New] Tinkering with Technology A New Sound for Your Phone</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-unleashing-hidden-media-from-your-connected-friends/"><u>[New] Unleashing Hidden Media From Your Connected Friends</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-economical-embellishments-free-youtube-template-packs-for-2024/"><u>[Updated] Economical Embellishments FREE YouTube Template Packs for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-cut-to-perfection-top-video-editors-for-youtubers/"><u>[Updated] In 2024, Cut to Perfection Top Video Editors for YouTubers</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-is-it-illegal-to-archive-your-youtube-watch-history/"><u>[Updated] In 2024, Is It Illegal to Archive Your YouTube Watch History?</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-quench-your-relaxation-aspertronics-guide/"><u>[Updated] In 2024, Quench Your Relaxation Aspertronics Guide</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/t-youtube-try-these-top-5-video-editor-options-for-2024/"><u>Forget Youtube? Try These Top 5 Video Editor Options for 2024</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-tecno-pova-5-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Tecno Pova 5 to Samsung Phone | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-xiaomi-redmi-a2plus-drfone-by-drfone-virtual-android/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Xiaomi Redmi A2+? | Dr.fone</u></a></li>
-<li><a href="https://win11.techidaily.com/mastering-deskanywhere-stability-in-win11/"><u>Mastering DeskAnywhere Stability in Win11</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/g-the-green-glow-youtubes-mac-solution-manual/"><u>Nixing the Green Glow YouTube's Mac Solution Manual</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/the-game-changer-creating-eye-catching-logo-templates-for-2024/"><u>The Game-Changer Creating Eye-Catching Logo Templates for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/unleash-the-potential-a-comprehensively-curated-list-of-nft-creating-engines-for-2024/"><u>Unleash the Potential A Comprehensively Curated List of NFT-Creating Engines for 2024</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/updated-learn-video-editing-for-free-top-software-for-beginners-for-2024/"><u>Updated Learn Video Editing for Free Top Software for Beginners for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-expertly-crafted-video-making-software-iphone-android/"><u>[Updated] 2024 Approved Expertly Crafted Video-Making Software (iPhone, Android)</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-multimedia-text-producer/"><u>[Updated] 2024 Approved Multimedia Text Producer</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-unlocking-the-power-of-multiframe-views-in-edge/"><u>[Updated] 2024 Approved Unlocking the Power of Multiframe Views in Edge</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-hack-the-youtube-timeline-increase-or-decrease-sound/"><u>[Updated] Hack the YouTube Timeline Increase or Decrease Sound</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-from-vlogs-to-viral-jake-pauls-online-empire-expansion/"><u>[Updated] In 2024, From Vlogs to Viral Jake Paul’s Online Empire Expansion</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-the-animation-advantage-boosting-profits-in-social-media-ads/"><u>[Updated] In 2024, The Animation Advantage Boosting Profits in Social Media Ads</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/p-zero-charge-web-tools-to-craft-videos-for-2024/"><u>10 Top Zero-Charge Web Tools to Craft Videos for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-branding-excellence-integrating-watermarks-and-logos-into-video-media/"><u>2024 Approved Branding Excellence Integrating Watermarks and Logos Into Video Media</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-prime-gear-for-youtube-novices/"><u>2024 Approved Prime Gear for YouTube Novices</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-sound-spectrum-listing-websites-for-legal-ringtones/"><u>2024 Approved Sound Spectrum Listing Websites for Legal Ringtones</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/descargar-conversor-de-codificacion-video-gratuito-de-h265hevc-a-h264-sin-perdida-de-calidad/"><u>Descargar Conversor De Codificación Video Gratuito: De H.265/HEVC a H.264 Sin Pérdida De Calidad</u></a></li>
+<li><a href="https://windows11.techidaily.com/how-bsod-outputs-aid-in-system-recovery-planning/"><u>How BSoD Outputs Aid in System Recovery Planning</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/how-to-easily-add-codegpt-to-visual-studio-code-an-in-depth-walkthrough/"><u>How to Easily Add CodeGPT to Visual Studio Code: An In-Depth Walkthrough</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-ultra-30-action-cam-the-essential-review-of-the-virb-series/"><u>In 2024, Ultra 30 Action Cam The Essential Review of the VIRB Series</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-youtube-images-without-spending-a-dime-quick-tips-here/"><u>In 2024, YouTube Images Without Spending a Dime – Quick Tips Here</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/mastering-the-art-of-fixing-damaged-video-files/"><u>Mastering the Art of Fixing Damaged VIDEO Files</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/online-conversion-of-aifc-audio-files-to-m4a-format-no-cost/"><u>Online Conversion of AIFC Audio Files to M4A Format - No Cost</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/unlocking-your-potential-with-these-top-10-affordable-web-conferencing-services-for-2024/"><u>Unlocking Your Potential with These Top 10 Affordable Web Conferencing Services for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/asf-mp4/"><u>자이로나스터: 무료 ASF 영상 데이터를 MP4로 구성하기</u></a></li>
 </ul></div>
 

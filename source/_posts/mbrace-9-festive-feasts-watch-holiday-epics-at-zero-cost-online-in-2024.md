@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Embrace 9 Festive Feasts  Watch Holiday Epics at Zero Cost Online, In 2024\""
-date: 2024-11-10T16:03:06.883Z
-updated: 2024-11-17T17:05:00.900Z
+date: 2024-11-24T05:14:20.311Z
+updated: 2024-11-26T23:41:30.361Z
 tags:
   - ai video
   - ai youtube
@@ -31,9 +31,17 @@ If you are looking for Christmas entertainment this season you may be quick to l
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1. The nutcracker 1990
 
 The Nutcracker is a holiday classic that many people seek out every year on the stage. This family ballet classic was filmed by the Pacific Northwest ballet in a huge and lavish version of the production in 1986\. This still stands as one of the best versions of the Nutcracker ever captured on film and you can watch it for free on YouTube. You can find the Nutcracker at :
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2. A smoky mountain Christmas
 
@@ -47,55 +55,39 @@ This film from 1989 features Jim Varney and his most famous character Ernest in 
 
 A Christmas story has long been one of the favorite Christmas movies for many families. In this film from 1983 we travel back in time to a traditional 1940s Christmas. In this film we follow the nine-year-old Ralphie who is looking for the famous red Ryder BB gun for Christmas and will stop at absolutely nothing to get it. A Christmas story can be found at:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 5. Richie Rich's Christmas wish
 
 In this film from 1998 we hear the story of the richest kid in the world on Christmas. In this film we see the richest in the world wishing that he had never been born with the wish coming true. Richie needs to find himself a new wishing machine and a way out of the parallel universe he gets stuck in to get back to his family. You can find this film at:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 6. On the second day of Christmas
 
 This film stars the hulk Mark Ruffalo in one of his earlier roles as a store employee who catches a con woman trying to steal from a department store on Christmas. His character agrees to be responsible for the con woman and her niece over the holidays to prevent them from staying with social services. A romance develops! This 1997 film can be found at:
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 7. Santa Who?
 
 Santa who is a film from the year 2000 starring Leslie Nielsen. In this holiday classic Santa suffers a severe case of amnesia on Christmas Eve and needs to recover for Christmas day in order to make it through and deliver presents to all of the good children of the world. See if Santa gets his Christmas memories back by watching Santa Who here:
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 8. A Christmas Carol
 
 In this film from 1984 George C Scott brings to life the role of Ebenezer Scrooge from the perspective of the Charles Dickens novel. This is heavily been regarded as one of the most accurate versions to the Charles Dickens story. Although it may not have all of the special effects of some of the other versions of a Christmas carol this is still one of the favored versions of the story out there. You can watch this 1984 film here:
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037318/7443" target="_top" id="2037318">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037318" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037318/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 9. Miracle on 34th street
 
 In this recreation of the original film from 1947 this shortened full-length version from 1955 per trade is the classic story of santa on trial. A department store Santa suggests that he's the real santa and goes on trial to prove it. In this version of miracle on 34th Street starring Thomas Mitchell and Macdonald Carey we learn who really believes in Santa Claus. You can find this classic film here:
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484910/16446" target="_top" id="1484910">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484910" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484910/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -118,21 +110,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-simple-screen-capture-techniques-to-grab-youtube-soundtracks/"><u>[New] 2024 Approved Simple Screen-Capture Techniques to Grab YouTube Soundtracks</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-skyrocketing-fb-engagement-masterful-seo-techniques-explored/"><u>[New] 2024 Approved Skyrocketing FB Engagement Masterful SEO Techniques Explored</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-the-art-of-mixing-on-youtube-music/"><u>[New] 2024 Approved The Art of Mixing on YouTube Music</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-unveiling-the-must-have-gear-for-new-youtubers/"><u>[New] 2024 Approved Unveiling the Must-Have Gear for New YouTubers</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-from-obscurity-to-the-top-the-seo-playbook-for-podcasters-for-2024/"><u>[New] From Obscurity to the Top The SEO Playbook for Podcasters for 2024</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/effective-solutions-to-restore-microphone-functionality-on-turtle-beach-elite-atlas-headset/"><u>Effective Solutions to Restore Microphone Functionality on Turtle Beach Elite Atlas Headset</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-card-on-iphone-7-online-without-jailbreak-by-drfone-ios/"><u>How to Unlock SIM Card on iPhone 7 online without jailbreak</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-apex-artists-youtubes-most-followed-sages/"><u>In 2024, Apex Artists YouTube's Most-Followed Sages</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-best-in-class-mkv-player-for-pc-users/"><u>In 2024, Best-in-Class MKV Player for PC Users</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-bridging-content-gap-youtube-videos-to-instagram/"><u>In 2024, Bridging Content Gap YouTube Videos to Instagram</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-choosing-platforms-youtube-shorts-vs-tiktok-best-for-minis/"><u>In 2024, Choosing Platforms YouTube Shorts Vs. TikTok – Best for Minis</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-deep-dive-into-rank-tracker-solutions-for-peak-success-on-youtube/"><u>In 2024, Deep Dive Into Rank Tracker Solutions for Peak Success on YouTube</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/is-av1-compatibility-available-in-adobes-premiere-pro-for-imports-and-exports/"><u>Is AV1 Compatibility Available in Adobe's Premiere Pro for Imports and Exports?</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/the-instagram-time-keeper-learning-to-rewind-for-2024/"><u>The Instagram Time Keeper Learning to Rewind for 2024</u></a></li>
-<li><a href="https://games-able.techidaily.com/the-path-to-mastering-steams-review-system/"><u>The Path to Mastering Steam's Review System</u></a></li>
-<li><a href="https://techtrends.techidaily.com/1726225966789-ram-movavi/"><u>인터넷에서 무료 RAM 전환 - Movavi의 단순한 가이드</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/eize-control-of-your-viewing-experience-these-top-6-free-youtube-short-downloaders/"><u>[New] Seize Control of Your Viewing Experience These Top 6 Free YouTube Short Downloaders</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/tars-of-tomorrow-perfecting-reaction-videos-for-audiences-through-dual-perspectives/"><u>[New] Stars of Tomorrow Perfecting Reaction Videos for Audiences Through Dual Perspectives</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-unlock-slides-potential-embedding-video-from-youtube/"><u>[Updated] 2024 Approved Unlock Slides' Potential Embedding Video From YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-step-into-the-future-youtubes-best-vr-experiences/"><u>[Updated] In 2024, Step Into the Future YouTube's Best VR Experiences</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-turn-video-to-sound-youtube-to-mp3-with-appleos/"><u>[Updated] In 2024, Turn Video to Sound YouTube to MP3 with AppleOS</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-master-windows-11-revolutionary-techniques-for-efficient-video-trimming-for-2024/"><u>[Updated] Master Window's 11 Revolutionary Techniques for Efficient Video Trimming for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/1722997366197-anthem-loading-screen-stuck-heres-how-to-get-out-of-the-neverending-boot-sequence/"><u>Anthem Loading Screen Stuck? Here's How to Get Out of the Neverending Boot Sequence</u></a></li>
+<li><a href="https://win-blog.techidaily.com/how-to-fix-minecraft-dungeons-keeps-crashing-on-pc/"><u>How to Fix Minecraft Dungeons Keeps Crashing on PC</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/how-to-update-your-radeon-hd-7850-graphics-card-in-windows-10-step-by-step-tutorial/"><u>How to Update Your Radeon HD 7850 Graphics Card in Windows 10 – Step-by-Step Tutorial</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-enjoy-premium-video-artwork-download-at-no-cost-today/"><u>In 2024, Enjoy Premium Video Artwork - Download at No Cost Today!</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-mastering-youtube-tvs-features-a-beginners-guide/"><u>In 2024, Mastering YouTube TV's Features A Beginner's Guide</u></a></li>
+<li><a href="https://win-help.techidaily.com/microsofts-discreet-update-sparks-major-backlash-unveiling-the-details/"><u>Microsoft's Discreet Update Sparks Major Backlash: Unveiling the Details</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-wevideo-your-go-to-platform-for-easy-video-creation/"><u>New WeVideo Your Go-To Platform for Easy Video Creation</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/tailor-sharespread-content-adobe-memes/"><u>Tailor Sharespread Content Adobe Memes</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-best-android-unlock-software-for-oppo-find-n3-flip-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>The Best Android Unlock Software For Oppo Find N3 Flip Device Top 5 Picks to Remove Android Locks</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/tips-for-addressing-disconnected-steam-content-on-home-systems/"><u>Tips for Addressing Disconnected Steam Content on Home Systems</u></a></li>
 </ul></div>
 

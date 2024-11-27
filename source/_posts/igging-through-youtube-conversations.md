@@ -1,7 +1,7 @@
 ---
 title: "[New] Digging Through YouTube Conversations"
-date: 2024-11-13T17:19:43.624Z
-updated: 2024-11-17T17:15:26.645Z
+date: 2024-11-25T04:05:24.274Z
+updated: 2024-11-27T11:39:26.187Z
 tags:
   - ai video
   - ai youtube
@@ -64,20 +64,11 @@ Besides the comment search feature, the YouTube Studio also has some in-built se
 
 ![  YouTube Studio comment filter](https://images.wondershare.com/filmora/article-images/youtube-studio-comment-filter-search.jpg)
 
-You can combine these additional filters to narrow your comments search for YouTube.
-
 <!-- affiliate ads begin -->
-<span id="1982461">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+You can combine these additional filters to narrow your comments search for YouTube.
 
 ## Part 2: Using YCS – YouTube Comment Search Extension
 
@@ -90,13 +81,6 @@ You can use the YouTube Comment Search browser extension supported by Google Chr
 5. Now type your keywords, press Enter, and YCS will show all comments having the keyword you typed.
 
 ![ YouTube Comment Search Extension](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006941/19272" target="_top" id="2006941">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006941" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006941/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: Using Comments Search for YouTube Extension
 
@@ -124,11 +108,19 @@ This mode allows you to enter special commands to carry out an advanced search. 
 2. ‘:all’ to see all comments
 3. ‘:creator’ to get comments made by the creator
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 4: How Do You Search Comments You Have Posted on YouTube?
 
 Did you post a comment on your favorite celebrity’s video? Do you think it may be embarrassing and want to delete it now but cannot find it now amidst so many comments? It is where you can make use of YouTube’s Comment History feature.
 
 YouTube has now added this feature which you can see all the comments you ever posted on YouTube in one place.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How to Use the Comment History feature to Search Comments?
 
@@ -143,10 +135,7 @@ You can see all the comments you have posted in the Comment History in a few qui
 You can also access the Comments History page directly from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 5: How to Find Out Who Posts the Most Comments on Your YouTube Videos?
@@ -173,10 +162,7 @@ Find feedback or questions. Report offensive comments. If you are a regular YouT
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -200,24 +186,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-streamlining-revenue-with-youtubes-mobile-monetization-features-for-creators/"><u>[New] 2024 Approved Streamlining Revenue with YouTube's Mobile Monetization Features for Creators</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-the-biggest-buzz-stars-youtube-creators-with-highest-views/"><u>[New] 2024 Approved The Biggest Buzz Stars YouTube Creators with Highest Views</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-whos-at-the-apex-youtube-subscribers-ranking/"><u>[New] 2024 Approved Who's at the Apex? YouTube Subscribers Ranking</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-your-path-to-youtube-prominence-effective-tactics-unveiled/"><u>[New] 2024 Approved Your Path to YouTube Prominence Effective Tactics Unveiled</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-perfect-your-playback-implementing-a-countdown-in-obs/"><u>[New] Perfect Your Playback Implementing a Countdown in OBS</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-pros-choice-the-ultimate-list-of-7-live-streaming-apps-for-youtube-iosandroid/"><u>2024 Approved Pro's Choice The Ultimate List of 7 Live Streaming Apps for YouTube (iOS/Android)</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/decoding-the-top-five-triggers-of-chatgpt-restrictions-in-professional-settings/"><u>Decoding the Top Five Triggers of ChatGPT Restrictions in Professional Settings</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/elite-gamer-screens/"><u>Elite Gamer Screens</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/full-guide-to-bypass-xiaomi-redmi-note-12-pro-4g-frp-by-drfone-android/"><u>Full Guide to Bypass Xiaomi Redmi Note 12 Pro 4G FRP</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-architects-of-online-marvel-adventures/"><u>In 2024, Architects of Online Marvel Adventures</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-break-down-top-7-video-streaming-tools-that-revolutionize-youtube-broadcasts-iphonesandroid/"><u>In 2024, Break Down Top 7 Video Streaming Tools that Revolutionize YouTube Broadcasts (iPhones/Android)</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-broadcast-your-google-meet-directly-to-youtubes-stage/"><u>In 2024, Broadcast Your Google Meet Directly to YouTube's Stage</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-buy-subscribers-wisely-watch-your-numbers-soar/"><u>In 2024, Buy Subscribers Wisely, Watch Your Numbers Soar!</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-discover-7-premier-android-apps-to-banish-ads/"><u>In 2024, Discover 7 Premier Android Apps to Banish Ads</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/live-streaming-mastery-unleash-your-potential-with-manycam-top-virtual-camera-software/"><u>Live Streaming Mastery: Unleash Your Potential with ManyCam - Top Virtual Camera Software</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210904257-9798988429524-minding-me/"><u>Mind(in)g Me | Free Book</u></a></li>
-<li><a href="https://ai-video-translation.techidaily.com/new-the-best-ai-translator-to-translate-videos-online-for-2024/"><u>New The Best AI Translator to Translate Videos Online for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/the-complete-breakdown-of-digiartys-winxdvd-terms-and-conditions-for-users/"><u>The Complete Breakdown of Digiarty's WinXDVD Terms and Conditions for Users</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/the-ultimate-guide-to-free-flv-video-editors-2023-update/"><u>The Ultimate Guide to Free FLV Video Editors (2023 Update)</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/chieve-more-views-tailoring-and-scaling-youtube-images-for-2024/"><u>[New] Achieve More Views Tailoring and Scaling YouTube Images for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-the-infallible-technique-for-embedding-profile-urls-in-tiktok-for-2024/"><u>[New] The Infallible Technique for Embedding Profile URLs in TikTok for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ransform-your-videography-using-youtube-to-boost-visual-clarity/"><u>[New] Transform Your Videography Using YouTube to Boost Visual Clarity</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-hiring-heroes-the-most-motivating-vids-of-the-year-1-10-for-2024/"><u>[Updated] Hiring Heroes The Most Motivating Vids of the Year #1-10 for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-how-to-easily-add-subtitles-and-closed-captions-to-youtube-video/"><u>[Updated] In 2024, How to Easily Add Subtitles and Closed Captions to YouTube Video</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-is-a-quick-subscribe-worthwhile-for-youtubers/"><u>[Updated] In 2024, Is a Quick Subscribe Worthwhile for YouTubers?</u></a></li>
+<li><a href="https://howto.techidaily.com/7-fixes-for-unfortunately-phone-has-stopped-on-itel-a70-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Fixes for Unfortunately, Phone Has Stopped on Itel A70 | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/boost-brain-power-with-technological-penmanship-uncover-the-secrets-to-a-smarter-you/"><u>Boost Brain Power with Technological Penmanship: Uncover the Secrets to a Smarter You!</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/down-of-ad-revenue-average-income-for-youtube-vids-for-2024/"><u>Breakdown of Ad Revenue Average Income for YouTube Vids for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/dragon-ball-viewing-guide-the-ultimate-way-to-experience-dbz-saga-sequentially/"><u>Dragon Ball Viewing Guide: The Ultimate Way to Experience DBZ Saga Sequentially</u></a></li>
+<li><a href="https://techtrends.techidaily.com/exploring-the-range-of-ipads-that-offer-onboard-gps-tracking/"><u>Exploring the Range of iPads that Offer Onboard GPS Tracking</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-oneplus-11-5g-in-5-easy-ways-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset OnePlus 11 5G in 5 Easy Ways | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/o-securely-extract-and-convert-youtube-audios-as-mp3-for-2024/"><u>How To Securely Extract and Convert YouTube Audios as MP3 for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-track-imei-number-of-motorola-moto-g24-through-google-earth-by-drfone-android/"><u>In 2024, How To Track IMEI Number Of Motorola Moto G24 Through Google Earth?</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-leading-lists-premium-bdr-software-on-windows-macos/"><u>In 2024, Leading Lists Premium BDR Software on Windows, macOS</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-mastering-youtube-shorts-for-profit-essential-requirements-and-potential-earnings/"><u>In 2024, Mastering Youtube Shorts for Profit Essential Requirements and Potential Earnings</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/instagram-flips-mastering-the-video-360-turn-for-2024/"><u>Instagram Flips Mastering the Video 360-Turn for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/r-quick-youtube-video-uploads-and-rendering-secrets/"><u>Master Quick YouTube Video Uploads and Rendering Secrets</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ating-to-your-digital-editing-oasis-on-youtube-for-2024/"><u>Navigating to Your Digital Editing Oasis on YouTube for 2024</u></a></li>
 </ul></div>
 

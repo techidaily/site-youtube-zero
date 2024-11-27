@@ -1,7 +1,7 @@
 ---
 title: "\"Audience Appreciation Assessment  Self and Seekers Vs. Rival Repertoires for 2024\""
-date: 2024-11-14T17:18:12.216Z
-updated: 2024-11-17T16:16:13.744Z
+date: 2024-11-23T10:17:28.664Z
+updated: 2024-11-27T04:46:10.396Z
 tags:
   - ai video
   - ai youtube
@@ -31,6 +31,10 @@ thumbnail: https://thmb.techidaily.com/33c08cf35f6b5e5c15d53520e124508a521ab9ce2
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to analyze your own YouTube channel/video?
 
  It is important to have reliable YouTube analytics tools for your brand, as videos on YouTube are searchable through Google. They contribute to generate organic traffic for you using both Google and YouTube as a medium. YouTube has a default dedicated analytics mechanism to measure how the video fares in YouTube to gain the most out of it.
@@ -50,6 +54,10 @@ thumbnail: https://thmb.techidaily.com/33c08cf35f6b5e5c15d53520e124508a521ab9ce2
  As 'Playback locations' of YouTube videos can reveal where does all the traffic come from, it would help your channel figure out for which location the video has fared well. It will guide you to reach the backlinks locations/sites. Knowing the popular locations for your YouTube video being played, you can know whether YouTube is the search engine or they have been diverted from somewhere else. Depending on the video playing locations, the views will be segregated in to embedded video, YouTube watch page, mobile devices, and YouTube channel page. Understanding location specific views would help you decide where should you focus to enhance the performance of your video.
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-playback-location.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 3\.  Demographics
 
@@ -97,6 +105,10 @@ thumbnail: https://thmb.techidaily.com/33c08cf35f6b5e5c15d53520e124508a521ab9ce2
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-annotations.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 10\.  Comments
 
  Audience engagement on any YouTube video can easily be gauged by using the vital aspect known as comments. Either it touched a chord in their heart, inspired or motivated them, or simply made them smile, the comments will say it all. Sometimes the audience simply taps 'Like' in place of commenting at their convenient.
@@ -122,10 +134,11 @@ thumbnail: https://thmb.techidaily.com/33c08cf35f6b5e5c15d53520e124508a521ab9ce2
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-playlists.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948895/19272" target="_top" id="1948895">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948895" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948895/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to analyze your competitors
@@ -143,10 +156,7 @@ thumbnail: https://thmb.techidaily.com/33c08cf35f6b5e5c15d53520e124508a521ab9ce2
 ![InflueNex YouTube Marketing Paltform ](https://images.wondershare.com/filmora/article-images/influenex-youtube-marketing-paltform.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528703/16446" target="_top" id="1528703">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528703" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528703/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 2\. [Rival IQ](https://www.rivaliq.com/)
@@ -160,13 +170,6 @@ thumbnail: https://thmb.techidaily.com/33c08cf35f6b5e5c15d53520e124508a521ab9ce2
  Read More to Get: [5 Methods to Go Frame by Frame on YouTube Video >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -189,20 +192,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/levate-your-channel-identity-essential-youtube-naming-strategies/"><u>[New] Elevate Your Channel Identity Essential YouTube Naming Strategies</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/eylight-secrets-to-stellar-lighting-on-your-youtube-videos/"><u>[New] Keylight Secrets to Stellar Lighting on Your YouTube Videos</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ethodology-creating-life-changing-video-guides-for-2024/"><u>[New] Methodology Creating Life-Changing Video Guides for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-boost-creativity-with-free-audio-effects-online/"><u>[Updated] Boost Creativity with Free Audio Effects Online!</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-access-tons-of-free-vocal-textures/"><u>[Updated] In 2024, Access Tons of Free Vocal Textures!</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-best-camera-stabilizers-for-youtube/"><u>[Updated] In 2024, Best Camera Stabilizers for YouTube</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-mcb-video-graphics-pack-for-youtube-channels-for-2024/"><u>[Updated] MCB Video Graphics Pack for YouTube Channels for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-pixel-queens-rising-youtubes-top-10/"><u>2024 Approved Pixel Queens Rising YouTube's #Top 10</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/experience-enhanced-reading-with-the-amazon-kindle-paperwhite-2018-a-comprehensive-review/"><u>Experience Enhanced Reading with the Amazon Kindle Paperwhite (2018): A Comprehensive Review</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/24-craft-standout-videos-with-professional-free-banner-samples/"><u>In 2024, Craft Standout Videos with Professional, Free Banner Samples</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-change-lock-screen-wallpaper-on-oneplus-11r-by-drfone-android/"><u>In 2024, How to Change Lock Screen Wallpaper on OnePlus 11R</u></a></li>
-<li><a href="https://win-answers.techidaily.com/maximize-your-cs-2-performance-strategies-to-fix-fps-dips-and-stutters-during-play/"><u>Maximize Your CS 2 Performance: Strategies to Fix FPS Dips & Stutters During Play</u></a></li>
-<li><a href="https://discover-extraordinary.techidaily.com/skyrocket-your-pcs-speed-with-a-quick-and-simple-ssd-upgrade-from-old-hard-drive/"><u>Skyrocket Your PC's Speed with a Quick and Simple SSD Upgrade From Old Hard Drive</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/ultimate-guide-to-comparing-leading-4k-youtube-to-mp3-extractors-for-2024/"><u>Ultimate Guide to Comparing Leading 4K YouTube to MP3 Extractors for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-power-of-j5-tacticals-v1-pro-flashlight-a-blend-of-strength-and-compact-design/"><u>Unveiling the Power of J5 Tactical's V1 Pro Flashlight: A Blend of Strength and Compact Design</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-spark-inspiration-free-soundtracks-to-enhance-projects/"><u>[New] 2024 Approved Spark Inspiration - Free Soundtracks to Enhance Projects</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/levate-your-ears-10-pro-tips-for-excellent-sound-quality/"><u>[New] Elevate Your Ears 10 Pro Tips for Excellent Sound Quality</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-exploring-disguised-social-feedback-on-youtube/"><u>[New] Exploring Disguised Social Feedback on YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/aking-the-most-out-of-creative-commons-licenses/"><u>[New] Making the Most Out of Creative Commons Licenses</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ltimate-screen-companionship-the-right-cms-guidebook-for-2024/"><u>[New] Ultimate Screen Companionship The Right CMS Guidebook for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-essential-techniques-with-nvidia-recorder/"><u>[Updated] 2024 Approved Essential Techniques with NVIDIA Recorder</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-achieving-youtube-excellence-with-gamers-channel-graphics-for-2024/"><u>[Updated] Achieving YouTube Excellence with Gamers' Channel Graphics for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-how-to-create-gifs-from-youtube-videos/"><u>[Updated] In 2024, How to Create GIFs From YouTube Videos</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-reel-in-rave-6-top-rated-music-video-apps-for-android-for-2024/"><u>[Updated] Reel in Rave 6 Top-Rated Music Video Apps for Android for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/te-video-playback-embrace-the-power-of-av1-in-youtube/"><u>Elevate Video Playback Embrace the Power of AV1 in YouTube</u></a></li>
+<li><a href="https://fake-location.techidaily.com/fake-the-location-to-get-around-the-mlb-blackouts-on-oppo-find-n3-drfone-by-drfone-virtual-android/"><u>Fake the Location to Get Around the MLB Blackouts on Oppo Find N3 | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-expert-tips-to-correct-video-transmission-problem-on-mobile-messengers/"><u>In 2024, Expert Tips to Correct Video Transmission Problem on Mobile Messengers</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-permitted-recording-youtube-video-screenshots/"><u>In 2024, Permitted Recording YouTube Video Screenshots?</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ize-content-impact-with-youtubes-movie-maker-tools-for-2024/"><u>Maximize Content Impact with YouTube's Movie Maker Tools for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/mmo-galaxy-the-finest-10-free-online-roleplayers-for-2024/"><u>MMO Galaxy The Finest 10 Free Online Roleplayers for 2024</u></a></li>
+<li><a href="https://fox-sure.techidaily.com/paso-a-paso-para-refrescar-tu-pc-con-windows-11-una-guia-completa-de-actualizaciones-de-sistema-operativo/"><u>Paso a Paso Para Refrescar Tu PC Con Windows 11: Una Guía Completa De Actualizaciones De Sistema Operativo</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ering-your-way-up-on-youtube-26-key-strategies/"><u>Pioneering Your Way Up on YouTube 26 Key Strategies</u></a></li>
 </ul></div>
 

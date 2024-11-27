@@ -1,7 +1,7 @@
 ---
 title: "\"The Charisma of Jittery Text  2 Methods Unleashed for 2024\""
-date: 2024-08-28T13:03:26.936Z
-updated: 2024-08-29T13:03:26.936Z
+date: 2024-11-20T09:58:24.396Z
+updated: 2024-11-27T13:56:14.522Z
 tags:
   - ai video
   - ai youtube
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/84d0bc5cbf75aff634c938ea8def6c75418d8f074
  Mar 27, 2024• Proven solutions
 
 Earlier, you learned how to have a **[bounce text effect in Adobe After Effects](https://tools.techidaily.com/wondershare/filmora/download/)**. However, because AE is a complex application and has a steep learning curve, this section explains the two alternative ways to get the same effect on your existing video footage.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Method 1: How to Create Bouncing Text in Filmora Video Editor?
 
@@ -56,11 +60,19 @@ You can customize the default effect by double-clicking the shake filter in the 
 
 ![Mild Shake filters adjust](https://images.wondershare.com/filmora/article-images/mild-shake-filter-adjust.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 4: Export the Final Output**
 
 Click **EXPORT** from the top of the interface, go to the **Local** tab in the **Export** box, choose your preferred output format from the list in the left, make required customizations from the right pane, and click **EXPORT** from the bottom-right corner to export the video.
 
 ![Filmora9 Export Options](https://images.wondershare.com/filmora/article-images/export-filmora9-video.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Now, you can add the bouncing text video and the background video to the timeline, and then place the bouncing text video above the background video track.
 
@@ -81,6 +93,10 @@ Some most trusted websites to generate **bounce text** are listed below:
 Website: <https://engfto.com/index/create%5Fanimated%5Fbouncing%5Ftext/0-26>
 
 ![Create Animated Bouncing Text with ENGFTO](https://images.wondershare.com/filmora/article-images/engfto-create-animated-bouncing-text.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You can follow the instructions given below to use Engfto to generate bouncing text for your footages:
 
@@ -108,6 +124,10 @@ Launch your favorite web browser and go to <https://loading.io/animation/text/>.
 
 ![Create Animated Bouncing Text with Loading.io](https://images.wondershare.com/filmora/article-images/create-bouncing-text-with-loadingio.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Use the options available on the webpage to type your text, and change its font, color, background, transparency level etc. Select **Bounce** (or any of its variants) from the **Animation** drop-down list, and adjust the speed using the **Speed** slider.
 
 **Step 3: Obtain the Text**
@@ -128,14 +148,11 @@ Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -144,9 +161,26 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/ecoming-a-bull-or-bear-best-stock-vids-on-youtube/"><u>[New] Becoming a Bull or Bear Best Stock Vids on YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-building-a-powerhouse-business-channel-in-under-5-minutes/"><u>[New] In 2024, Building a Powerhouse Business Channel in Under 5 Minutes</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nderstanding-legal-bounds-of-youtube-video-screencaps/"><u>[New] Understanding Legal Bounds of YouTube Video Screencaps</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-imaginedge-coder/"><u>[Updated] 2024 Approved ImaginEdge Coder</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-earnings-estimation-a-trifecta-of-tips-and-strategies-for-tracking-your-youtube-earnings/"><u>[Updated] In 2024, Earnings Estimation A Trifecta of Tips and Strategies for Tracking Your YouTube Earnings</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-innovating-sustainable-communities-within-the-concrete-jungle/"><u>[Updated] In 2024, Innovating Sustainable Communities Within the Concrete Jungle</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-free-visual-treasury-select-10-sites-included/"><u>2024 Approved Free Visual Treasury – Select 10 Sites Included</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-unleash-full-screen-flexibility-with-pip-on-iphone-youtube-app/"><u>2024 Approved Unleash Full Screen Flexibility with PIP on iPhone YouTube App</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-unlocking-your-videos-top-7-rippers-explored/"><u>2024 Approved Unlocking Your Videos Top 7 Rippers Explored</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210002074-9781609253295-a-magical-course-in-tarot/"><u>A Magical Course in Tarot | Free Book</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/id-audio-alchemy-selecting-the-top-free-downloader-apps-from-youtube-for-2024/"><u>Android Audio Alchemy Selecting the Top Free Downloader Apps From YouTube for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-use-pokemon-go-joystick-on-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Google Pixel Fold? | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/icloud-essentials-expert-guides-and-resource-hub/"><u>ICloud Essentials: Expert Guides & Resource Hub</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-4-ways-to-sync-contacts-from-apple-iphone-14-pro-to-ipad-easily-drfone-by-drfone-transfer-from-ios/"><u>In 2024, 4 Ways to Sync Contacts from Apple iPhone 14 Pro to iPad Easily | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-7-ways-to-unlock-a-locked-motorola-edge-2023-phone-by-drfone-android/"><u>In 2024, 7 Ways to Unlock a Locked Motorola Edge 2023 Phone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-pinterest-vid-lifting-the-top-free-online-tools-list/"><u>In 2024, Pinterest Vid Lifting The Top Free, Online Tools List</u></a></li>
+<li><a href="https://win-awesome.techidaily.com/microsoft-tempted-me-into-creativity-with-excel-heres-howzdnet/"><u>Microsoft Tempted Me Into Creativity with Excel – Here's How![ZDNet]</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/en-youtuber-tools-studio-vs-beta-version/"><u>NextGen YouTuber Tools Studio Vs. Beta Version</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/sh-creativity-with-youtube-studio-editor-for-2024/"><u>Unleash Creativity with YouTube Studio Editor for 2024</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->

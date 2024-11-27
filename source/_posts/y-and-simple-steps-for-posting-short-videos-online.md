@@ -1,7 +1,7 @@
 ---
 title: "\"Snappy and Simple  Steps for Posting Short Videos Online\""
-date: 2024-11-10T16:29:32.298Z
-updated: 2024-11-17T17:08:25.147Z
+date: 2024-11-24T05:20:12.032Z
+updated: 2024-11-27T11:44:28.621Z
 tags:
   - ai video
   - ai youtube
@@ -35,6 +35,10 @@ With that said, the following sections explain the step-by-step process on **how
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to Upload Short Video on YouTube from PC?
 
 The fact is, if you are using a computer to upload short videos to YouTube, the process is identical to publishing your other, regular footage. However, there are a few guidelines that your clips must comply with so that the streaming platform could specifically identify them as YouTube Shorts. These norms include:
@@ -65,6 +69,10 @@ On the **Visibility** window, choose your preferred radio button from under the 
 
 ![post YouTube Shorts Video  ](https://images.wondershare.com/filmora/article-images/publish-youtube-shorts-video-desktop.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 To sum up, uploading YouTube Shorts video from desktop has nothing different from uploading regular YouTube video besides the requirements listed at the beginning of this article. If you prefer to [edit videos](https://tools.techidaily.com/wondershare/filmora/download/) for YouTube Shortson a computer, I recommend you to try our video editor [Filmora](https://tools.techidaily.com/wondershare/filmora/download/), which is an ideal solution for YouTubers. Download the free trial version below and get started.
 
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -81,6 +89,10 @@ For macOS 10.12 or later
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: How to Upload Short Video on YouTube Mobile App?
 
 The process of **uploading YouTube Shorts** from the mobile app is fairly simple compared to the method used on a computer. While using the app, you can either upload an existing video or shoot a new one from within the program itself then and there, add music and text, and upload it right away. Both these methods are explained below in detail:
@@ -95,6 +107,10 @@ The process of **uploading YouTube Shorts** from the mobile app is fairly simple
 
 ![Select a Video to Upload as Shorts](https://images.wondershare.com/filmora/article-images/select-shorts-videos-to-upload-on-youtube.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 On your Android or iOS smartphone, launch the YouTube app, tap the **+** (**Create**) icon from the bottom, tap **Create a Short** from the **Create** box that pops up from the bottom, tap **Upload** from the bottom-right corner of the next screen, and select and upload a short, 60 seconds video recorded in portrait orientation from your device’s storage to the app.
 
 #### Step 2: Add Details
@@ -102,10 +118,7 @@ On your Android or iOS smartphone, launch the YouTube app, tap the **+** (**Crea
 ![add details to Shorts video](https://images.wondershare.com/filmora/article-images/add-details-to-youtube-shrots-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
-  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 On the next screen, tap **NEXT**, user the **Music** and **Text** icons at the bottom-left corner to add a background music and caption to the video respectively, and tap **NEXT** from the top-right corner. On the next screen, enter a name for the video in the **Title** field along with the **#Shorts** tag, and tap **Select audience** to choose your preferred audience.
@@ -113,6 +126,10 @@ On the next screen, tap **NEXT**, user the **Music** and **Text** icons at the b
 #### Step 3: Upload the Video
 
 Finally tap **UPLOAD** from the top-right corner to upload the short video on YouTube.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Method 2: Record a Short Video and Upload
 
@@ -123,13 +140,6 @@ Previously, I have introduced [how to record and upload YouTube Shorts videos](h
 Please note you will not see the **Create a Short** option if you are outsides of India.
 
 ![ Record YouTube Shorts video](https://images.wondershare.com/filmora/article-images/record-create-youtube-short-video-mobile.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657395/16446" target="_top" id="1657395">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657395" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657395/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 In the YouTube app, tap the **+** (**Add**) button and select **Create** **a Short**. Please note you will not see the **Create a Short** option if you are outsides of India.
 
@@ -147,25 +157,11 @@ On the **Add details** window, enter a name for the video along with the **#Shor
 
 **[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)**
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997722/19272" target="_top" id="1997722">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997722" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997722/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Conclusion**
 
 Learning the process of **how to post short videos on YouTube** is fairly simple as long as you have the video recorded in the portrait orientation, it is up to 60 seconds long, and contains the ‘#Shorts’ tag (without quotes) in the title or description. The good thing is, if you don’t have access to the YouTube app on your smartphone, the method for **how to upload short video on YouTube** explained in the first section can be followed while using your desktop computer.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -190,24 +186,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/hanneling-success-emulating-top-video-bloggers-techniques/"><u>[New] Channeling Success Emulating Top Video Bloggers' Techniques</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-disruptive-beats-curated-list-of-music-mutators-for-2024/"><u>[New] Disruptive Beats Curated List of Music Mutators for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-flavorful-footage-kitchen-film-making-101/"><u>[New] In 2024, Flavorful Footage Kitchen Film-Making 101</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/eaching-peak-youtube-potential-through-strategic-creator-studio-usage-for-2024/"><u>[New] Reaching Peak YouTube Potential Through Strategic Creator Studio Usage for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/electing-sounds-for-success-top-microphones-for-multifacited-youtube-professionals-for-2024/"><u>[New] Selecting Sounds for Success Top Microphones for Multifacited YouTube Professionals for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/he-ultimate-compilation-of-top-10-free-youtube-spaces-for-digital-illustrators/"><u>[New] The Ultimate Compilation of Top 10 Free YouTube Spaces for Digital Illustrators</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-crafting-the-perfect-strategy-exclusive-youtube-to-gmail-connection/"><u>[Updated] 2024 Approved Crafting the Perfect Strategy Exclusive YouTube to Gmail Connection</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-unleashing-your-contents-potential-viral-short-tags/"><u>[Updated] 2024 Approved Unleashing Your Content’s Potential Viral Short Tags</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/inners-guide-to-seo-skyrocket-your-view-count/"><u>A Beginner’s Guide to SEO Skyrocket Your View Count</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/deciphered-tackling-the-challenging-unrecoverable-error-encounter-in-directx/"><u>Deciphered: Tackling the Challenging Unrecoverable Error Encounter in DirectX</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-unlock-oppo-a18-phone-forgot-password-by-drfone-android-unlock-android-unlock/"><u>How to Unlock Oppo A18 Phone Forgot Password</u></a></li>
-<li><a href="https://techidaily.com/how-to-upgrade-or-downgrade-apple-iphone-se-without-itunes-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Upgrade or Downgrade Apple iPhone SE Without iTunes? | Dr.fone</u></a></li>
-<li><a href="https://tiktok-video-files.techidaily.com/in-2024-social-media-power-players-face-off-will-likes-triumph-over-tiktok/"><u>In 2024, Social Media Power Players Face-Off Will Likes Triumph over TikTok?</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-the-secrets-to-attractive-profile-videos/"><u>In 2024, The Secrets to Attractive Profile Videos</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ation-hub-for-youtube-gurus/"><u>Innovation Hub for YouTube Gurus</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/proven-ways-to-fix-there-was-a-problem-parsing-the-package-on-samsung-galaxy-f34-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Proven Ways to Fix There Was A Problem Parsing the Package on Samsung Galaxy F34 5G | Dr.fone</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/srt-playback-guide-on-different-os-platforms/"><u>SRT Playback Guide on Different OS Platforms</u></a></li>
-<li><a href="https://win-remarkable.techidaily.com/synchronisierungsprozesse-zwischen-onedrive-und-windows-10-beste-ansatze-erklart/"><u>Synchronisierungsprozesse Zwischen OneDrive Und Windows 10 - Beste Ansätze Erklärt</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/eling-the-mystery-of-disappearing-youtube-shorts-thumbnails-for-2024/"><u>Unraveling the Mystery of Disappearing YouTube Shorts Thumbnails for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/rafting-youtube-trailers-a-filmora-guide-for-2024/"><u>[New] Crafting YouTube Trailers A Filmora Guide for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-enhancing-team-dynamics-through-effective-video-calls/"><u>[New] Enhancing Team Dynamics Through Effective Video Calls</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-explore-the-world-of-tiny-screens-top-6-online-tools-for-free-and-complimentary-youtube-short-downloads-for-2024/"><u>[Updated] Explore the World of Tiny Screens Top 6 Online Tools for Free & Complimentary YouTube Short Downloads for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-follow-the-footsteps-of-fan-driven-forums/"><u>[Updated] In 2024, Follow the Footsteps of Fan-Driven Forums</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-seek-out-stimulating-subscriber-spaces/"><u>[Updated] In 2024, Seek Out Stimulating Subscriber Spaces</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-x-voice-sync-studio-windows-version/"><u>[Updated] In 2024, X-Voice Sync Studio, Windows Version</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/addressing-bsod-errors-related-to-faulty-memory-handling-on-windows-operating-systems/"><u>Addressing BSOD Errors Related to Faulty Memory Handling on Windows Operating Systems</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/conquer-the-social-scene-top-tools-for-post-and-follower-boost/"><u>Conquer the Social Scene Top Tools for Post and Follower Boost</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-it-itel-p55-5g-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix It Itel P55 5G Wont Turn On | Dr.fone</u></a></li>
 </ul></div>
 

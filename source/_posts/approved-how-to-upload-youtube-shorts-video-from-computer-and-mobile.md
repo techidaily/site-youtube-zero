@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  How to Upload YouTube Shorts Video From Computer and Mobile?\""
-date: 2024-11-12T16:49:14.741Z
-updated: 2024-11-17T16:41:16.132Z
+date: 2024-11-26T10:35:02.280Z
+updated: 2024-11-27T05:44:37.586Z
 tags:
   - ai video
   - ai youtube
@@ -34,6 +34,10 @@ With that said, the following sections explain the step-by-step process on **how
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: How to Upload Short Video on YouTube from PC?
 
@@ -81,13 +85,6 @@ For macOS 10.12 or later
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2141688/17094" target="_top" id="2141688">
-  <img src="//a.impactradius-go.com/display-ad/17094-2141688" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141688/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: How to Upload Short Video on YouTube Mobile App?
 
 The process of **uploading YouTube Shorts** from the mobile app is fairly simple compared to the method used on a computer. While using the app, you can either upload an existing video or shoot a new one from within the program itself then and there, add music and text, and upload it right away. Both these methods are explained below in detail:
@@ -108,6 +105,10 @@ On your Android or iOS smartphone, launch the YouTube app, tap the **+** (**Crea
 
 ![add details to Shorts video](https://images.wondershare.com/filmora/article-images/add-details-to-youtube-shrots-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 On the next screen, tap **NEXT**, user the **Music** and **Text** icons at the bottom-left corner to add a background music and caption to the video respectively, and tap **NEXT** from the top-right corner. On the next screen, enter a name for the video in the **Title** field along with the **#Shorts** tag, and tap **Select audience** to choose your preferred audience.
 
 #### Step 3: Upload the Video
@@ -125,10 +126,7 @@ Please note you will not see the **Create a Short** option if you are outsides o
 ![ Record YouTube Shorts video](https://images.wondershare.com/filmora/article-images/record-create-youtube-short-video-mobile.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
-  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 In the YouTube app, tap the **+** (**Add**) button and select **Create** **a Short**. Please note you will not see the **Create a Short** option if you are outsides of India.
@@ -148,10 +146,7 @@ On the **Add details** window, enter a name for the video along with the **#Shor
 **[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)**
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148650/16836" target="_top" id="2148650">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148650" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148650/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Conclusion**
@@ -160,13 +155,14 @@ Learning the process of **how to post short videos on YouTube** is fairly simple
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105874/7443" target="_top" id="2105874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105874" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -190,20 +186,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/mplify-youtube-visibility-crafting-effective-descriptions-and-tags/"><u>[New] Amplify YouTube Visibility Crafting Effective Descriptions & Tags</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/nlock-video-potential-leading-tools-turning-youtubes-to-avis-for-2024/"><u>[New] Unlock Video Potential Leading Tools Turning YouTubes to Avis for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/outube-movie-maker-unleashed-creative-possibilities-explored/"><u>[New] YouTube Movie Maker Unleashed Creative Possibilities Explored</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-whats-youtube-creative-commons-and-how-to-use-cc-to-make-video/"><u>[Updated] 2024 Approved What's YouTube Creative Commons and How to Use CC to Make Video</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-sprint-towards-subscriber-goal-reach-1000/"><u>2024 Approved Sprint Towards Subscriber Goal Reach 1,000</u></a></li>
-<li><a href="https://solve-outstanding.techidaily.com/1725289528902-digiarty-dvd/"><u>Digiarty製品の専門知識があふれたオンラインガイド: DVDコピーを始める最適なポイント</u></a></li>
-<li><a href="https://win-comparisons.techidaily.com/esegui-un-backup-totale-e-sicuro-dei-dati-sul-tuo-computer-con-windows/"><u>Esegui Un Backup Totale E Sicuro Dei Dati Sul Tuo Computer Con Windows 지</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/in-2024-tiktoks-biggest-foodie-trends-unveiled/"><u>In 2024, TikTok's Biggest Foodie Trends Unveiled</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-top-10-free-apps-for-crafting-youtube-channel-graphics/"><u>In 2024, Top 10 Free Apps for Crafting YouTube Channel Graphics</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/partitioned-presence-ranking-splittest-cam/"><u>Partitioned Presence Ranking Splittest Cam</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/step-by-step-tutorials-on-creating-your-own-lithophane-prints-with-3d-technology/"><u>Step-by-Step Tutorials on Creating Your Own Lithophane Prints with 3D Technology</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/trasforma-i-tuoi-file-ogm-gratuitamente-in-formato-mov-con-converti-mov-di-movavi-versione-gratuita/"><u>Trasforma I Tuoi File OGM Gratuitamente in Formato MOV Con Converti-MOV Di Movavi - Versione Gratuita</u></a></li>
-<li><a href="https://techtrends.techidaily.com/unbeatable-amazon-prime-day-offers-in-technology-sector/"><u>Unbeatable Amazon Prime Day Offers in Technology Sector</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/virtual-world-real-profit-for-game-makers/"><u>Virtual World, Real Profit for Game Makers</u></a></li>
-<li><a href="https://win-tricks.techidaily.com/1728491090248-hdd/"><u>スニコロジHDDの容量拡張：高密度ディスクへの変更ガイド</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/astering-your-content-delivery-insights-on-igtv-and-youtube/"><u>[New] Mastering Your Content Delivery Insights on IGTV and YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/op-5-youtube-link-shortener-you-must-try-for-2024/"><u>[New] Top 5 YouTube Link Shortener You Must Try for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-craft-professional-scenes-access-these-top-8-free-green-screen-backdrops-sites/"><u>[Updated] 2024 Approved Craft Professional Scenes - Access These Top 8 Free Green Screen Backdrops Sites</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-transforming-ideas-into-engaging-youtube-video-plans/"><u>[Updated] 2024 Approved Transforming Ideas Into Engaging YouTube Video Plans</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-elevate-every-story-prime-video-editor-apps-for-android/"><u>[Updated] Elevate Every Story Prime Video Editor Apps for Android</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-unpacking-newscreenx-pros-recording-innovations/"><u>[Updated] Unpacking NewScreenX Pro’s Recording Innovations</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-youtubes-updated-strategy-for-content-creators-for-2024/"><u>[Updated] YouTube's Updated Strategy for Content Creators for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-10-best-free-youtube-channel-art-makers/"><u>2024 Approved 10 Best Free YouTube Channel Art Makers</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-addressed-hidden-shorters-now-visible/"><u>2024 Approved Addressed Hidden Shorters, Now Visible</u></a></li>
+<li><a href="https://howto.techidaily.com/8-quick-fixes-unfortunately-snapchat-has-stopped-on-honor-x50-gt-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>8 Quick Fixes Unfortunately, Snapchat has Stopped on Honor X50 GT | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-tailoring-youtube-videos-for-igtv-showcase-3-techniques/"><u>In 2024, Tailoring YouTube Videos for IGTV Showcase 3 Techniques</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-unlock-software-for-xiaomi-redmi-note-13-proplus-5g-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>In 2024, The Best Android Unlock Software For Xiaomi Redmi Note 13 Pro+ 5G Device Top 5 Picks to Remove Android Locks</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-xiaomi-redmi-13c-device-by-drfone-android/"><u>In 2024, What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Xiaomi Redmi 13C Device</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-how-to-record-your-desktop-with-filmora-scrn-for-2024/"><u>New How to Record Your Desktop with Filmora Scrn for 2024</u></a></li>
+<li><a href="https://driver-install.techidaily.com/no-hassle-just-scsi-driver-download/"><u>No Hassle, Just SCSI Driver Download</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/perfect-audio-gear-for-streamers-for-2024/"><u>Perfect Audio Gear for Streamers for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/which-is-better-a-deep-dive-into-the-unique-features-of-ipad-pro-vs-macbook-air/"><u>Which Is Better? A Deep Dive Into the Unique Features of iPad Pro Vs. MacBook Air</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Transforming Ordinary Videos Into Viral Hits with Innovative Thumbnails for 2024"
-date: 2024-11-11T17:08:28.790Z
-updated: 2024-11-17T17:19:12.844Z
+date: 2024-11-21T00:38:53.306Z
+updated: 2024-11-26T18:02:17.500Z
 tags:
   - ai video
   - ai youtube
@@ -43,21 +43,16 @@ Here are 5 easy tips for creating thumbnails that get views.
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Edit Your Videos Before Creating Video Thumbnails
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<span id="1982570">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982570.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982570">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982570.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982570%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982570/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. Have a Consistent Layout
@@ -69,10 +64,7 @@ An example of a standard layout could be you in the middle of the screen wearing
 ![Consistent Layout](https://images.wondershare.com/filmora/article-images/consistent-layout.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **2\. Use Your Face**
@@ -94,10 +86,7 @@ If you use text in your thumbnail (you don’t have to) then it should be to add
 Thumbnails might look large while you’re putting them together in your image editor, but when they’re displayed on YouTube they’re a lot smaller. That goes double if a viewer is watching on their phone. So, make sure that any text you use is large enough that it can be read easily on small screens.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915805/19272" target="_top" id="1915805">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915805" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915805/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 5\. Keep it Clutter-Free
@@ -113,10 +102,7 @@ Use these tips to make video thumbnails for YouTube, and tell us what kind of re
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -140,19 +126,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-understanding-vivas-video-experience/"><u>[New] 2024 Approved Understanding Viva's Video Experience</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/n-2024-avoid-buffering-switch-av1-codec-on-youtube/"><u>[New] In 2024, Avoid Buffering Switch AV1 Codec on YouTube</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-boost-engagement-crafting-effective-thumbnails-for-2024/"><u>[Updated] Boost Engagement Crafting Effective Thumbnails for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-ice-cream-recording-tech-deep-dive-analysis-for-2024/"><u>[Updated] Ice Cream Recording Tech Deep Dive Analysis for 2024</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/2024-approved-become-a-pro-at-live-streaming-on-discord-with-our-simple-steps/"><u>2024 Approved Become a Pro at Live Streaming on Discord with Our Simple Steps</u></a></li>
-<li><a href="https://windows11.techidaily.com/a-compreenasian-approach-to-fixing-winget-on-windows-11/"><u>A Compreenasian Approach to Fixing Winget on Windows 11</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/led-look-into-youtubes-featured-community-dialogue-for-2024/"><u>Detailed Look Into YouTube's Featured Community Dialogue for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/diy-solutions-for-unresponsive-optical-drives-how-to-get-them-opening-again/"><u>DIY Solutions for Unresponsive Optical Drives - How to Get Them Opening Again</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/dynamic-dialogues-keys-to-a-loving-podcast-following/"><u>Dynamic Dialogues Keys to a Loving Podcast Following</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-bypass-android-lock-screen-using-emergency-call-on-motorola-moto-g14-by-drfone-android/"><u>In 2024, How to Bypass Android Lock Screen Using Emergency Call On Motorola Moto G14?</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/in-2024-revolutionize-your-streaming-game-with-these-5-pro-tips/"><u>In 2024, Revolutionize Your Streaming Game with These 5 Pro Tips</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/hts-into-income-average-earnings-per-advertisement-playback/"><u>Insights Into Income Average Earnings per Advertisement Playback?</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/labor-day-sale-alert-secure-your-apple-pencil-2nd-gen-for-just-95-shop-now-best-deal/"><u>Labor Day Sale Alert: Secure Your Apple Pencil (2Nd Gen) for Just $95 - Shop Now Best Deal!</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/efinitive-playbook-enhancing-your-videos-first-impression-for-2024/"><u>The Definitive Playbook Enhancing Your Video's First Impression for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/he-ultimate-format-selection-elevating-your-youtube-content-for-2024/"><u>[New] The Ultimate Format Selection – Elevating Your YouTube Content for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nlock-higher-engagement-the-power-of-precise-timestamping-for-2024/"><u>[New] Unlock Higher Engagement The Power of Precise Timestamping for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-bringing-video-life-youtube-slide-insertion/"><u>[Updated] Bringing Video Life YouTube Slide Insertion</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-streamline-and-shine-the-top-5-video-quality-tools/"><u>[Updated] In 2024, Streamline & Shine The Top 5 Video Quality Tools</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-effortless-youtube-income-computations/"><u>2024 Approved Effortless YouTube Income Computations</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-enhance-visibility-the-most-effective-30-freefire-tags-for-video-marketing/"><u>2024 Approved Enhance Visibility The Most Effective 30 FreeFire Tags for Video Marketing</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-exploring-the-power-of-visual-effects-in-editing/"><u>2024 Approved Exploring the Power of Visual Effects in Editing</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-securing-your-youtube-profitability-monetization-auditing-guide/"><u>2024 Approved Securing Your YouTube Profitability Monetization Auditing Guide</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-simplified-speech-to-text-integration-into-visual-content/"><u>2024 Approved Simplified Speech-to-Text Integration Into Visual Content</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/best-free-anime-torrent-sites-of-2-cuffs-2024-edition/"><u>Best Free Anime Torrent Sites of 2 Cuffs, 2024 Edition</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/1722892256617-cleaning-the-insertion-site-with-soap-and-water-is-done-to-prevent-infection-but-its-not-specific-for-catheter-irrigation/"><u>Cleaning the Insertion Site with Soap and Water Is Done to Prevent Infection, but It's Not Specific for Catheter Irrigation.</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/experts-choice-for-leading-smart-speakers-of-the-year-2024-comprehensive-review-on-zdnet/"><u>Experts' Choice for Leading Smart Speakers of the Year 2024 - Comprehensive Review on ZDNet</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-can-we-unlock-our-poco-c51-phone-screen-by-drfone-android/"><u>In 2024, How Can We Unlock Our Poco C51 Phone Screen?</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/unlocking-advanced-vfx-techniques-expert-tips-on-chroma-key-kinemaster-for-2024/"><u>Unlocking Advanced VFX Techniques Expert Tips on Chroma Key (KineMaster) for 2024</u></a></li>
 </ul></div>
 

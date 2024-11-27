@@ -1,7 +1,7 @@
 ---
 title: "\"Navigate Through Settings  Enable/Disable Video Comments\""
-date: 2024-11-14T16:55:36.692Z
-updated: 2024-11-17T16:55:35.273Z
+date: 2024-11-24T16:12:52.089Z
+updated: 2024-11-26T17:59:58.060Z
 tags:
   - ai video
   - ai youtube
@@ -35,6 +35,10 @@ Keeping all these points in mind, the following sections explain **how to enable
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to Turn on or Turn off Comments for YouTube Channel
 
 If you don’t want any comments on any of the videos that you publish, you must learn **how to disable comments on the YouTube** channel. The process of doing so is explained below:
@@ -50,6 +54,10 @@ Use your favorite web browser to go to YouTube and sign in to your Google accoun
 From the bottom of the left pane, click the **Settings** icon, click **Channel** from the **Settings** box that comes up next, and go to **Advanced settings** from the right window.
 
 ![  YouTube Channel Advanced Settings](https://images.wondershare.com/filmora/article-images/youtube-channel-advanced-settings.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### Step 3: Turn Off Comments
 
@@ -68,6 +76,10 @@ Use the method explained above to get to the channel’s **Advanced settings** b
 Click the **Settings** icon from the bottom of the left pane one more time. On the **Settings** box, go to the **Upload defaults** category from the left pane, and go to **Advanced settings** from the right. From the **Comment visibility** drop-down list under the **Comments** section in the right, choose your preferred comment allowance type, and click **SAVE** to allow the comments on the videos the channel has.
 
 ![ Set up YouTube video  Comments visibility](https://images.wondershare.com/filmora/article-images/set-up-youtube-comments-visibilities.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 3\. Set Comment Allowance for Videos
 
@@ -96,16 +108,7 @@ Selecting this option holds all the comments from all the users, and waits for y
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
 <!-- affiliate ads begin -->
-<span id="1160850">
-					<video width="576" height="324" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: Turn on or Turn off Comments for Specific Videos
@@ -128,21 +131,7 @@ From under the **Audience** section in the right window of the **Video details**
 
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
 
@@ -161,10 +150,7 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 4\. If I turn comments off and back on again, will the old comments come back?
@@ -202,24 +188,24 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/apid-growth-on-youtube-harnessing-the-potential-of-outros-for-2024/"><u>[New] Rapid Growth on YouTube Harnessing the Potential of Outros for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ising-stars-in-content-creation-lawful-view-boosting-methods-for-2024/"><u>[New] Rising Stars in Content Creation Lawful View Boosting Methods for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ransform-videos-with-easy-to-use-sound-effects/"><u>[New] Transform Videos with Easy-to-Use Sound Effects!</u></a></li>
-<li><a href="https://program-issues.techidaily.com/quick-fix-batman-arkham-knight-crashing-fatal-error/"><u>[Quick Fix] Batman Arkham Knight Crashing/ Fatal Error</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-becoming-a-vlogger-voice-confident-content-creation-strategies/"><u>[Updated] 2024 Approved Becoming a Vlogger Voice Confident Content Creation Strategies</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-android-and-ios-top-asmr-audio-picks-for-2024/"><u>[Updated] Android and iOS Top ASMR Audio Picks for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-essential-steps-for-adding-videos-to-your-instagram-story-for-2024/"><u>[Updated] Essential Steps for Adding Videos to Your Instagram Story for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-verbal-visions-a-compilation-of-the-most-advanced-transcription-apps-for-2024/"><u>[Updated] Verbal Visions A Compilation of the Most Advanced Transcription Apps for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-the-premier-of-popularity-worldwide-top-subscribed-creators/"><u>2024 Approved The Premier of Popularity Worldwide Top Subscribed Creators</u></a></li>
-<li><a href="https://solve-info.techidaily.com/cookiebot-enhanced-unleashing-the-potential-of-smart-marketing-technology/"><u>Cookiebot-Enhanced: Unleashing the Potential of Smart Marketing Technology</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/tial-youtube-thumbnails-capture-your-top-views-for-2024/"><u>Essential YouTube Thumbnails Capture Your Top Views for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/fb-moments-snappy-storytime-for-2024/"><u>FB Moments Snappy Storytime for 2024</u></a></li>
-<li><a href="https://discover-helper.techidaily.com/guide-simple-et-pratique-pour-recuperer-des-fichiers-sur-un-hdd-externe-toshiba/"><u>Guide Simple Et Pratique Pour Récupérer Des Fichiers Sur Un HDD Externe Toshiba</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-whatsapp-messages-on-motorola-edge-2023-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track WhatsApp Messages on Motorola Edge 2023 Without Them Knowing? | Dr.fone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-the-dos-and-donts-of-adding-tags-to-youtube-videos/"><u>In 2024, The Do's and Don'ts of Adding Tags to YouTube Videos</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-unlocking-made-easy-the-best-10-apps-for-unlocking-your-infinix-hot-40i-device-by-drfone-android/"><u>In 2024, Unlocking Made Easy The Best 10 Apps for Unlocking Your Infinix Hot 40i Device</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-unlocking-the-secret-of-hashtags-for-six-figures/"><u>In 2024, Unlocking the Secret of #Hashtags for Six Figures</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/mastering-digital-research-dont-miss-out-on-perplexity-ai-your-next-level-google-search-companer/"><u>Mastering Digital Research? Don't Miss Out on Perplexity AI, Your Next Level Google Search Companer</u></a></li>
-<li><a href="https://win11.techidaily.com/remove-hyper-v-from-windows-11-setup/"><u>Remove Hyper-V From Windows 11 Setup</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-editing-images-erasing-unwanted-backdrops/"><u>[New] Editing Images Erasing Unwanted Backdrops</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/op-5-video-and-picture-capturing-tools-for-smartphones/"><u>[New] Top 5 Video & Picture Capturing Tools for Smartphones</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-top-8-cam-filters-for-optimal-online-performance/"><u>[New] Top 8 Cam Filters for Optimal Online Performance</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-dance-directives-finding-ideal-dj-templates/"><u>[Updated] Dance Directives Finding Ideal DJ Templates</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/5-best-apps-blending-visual-storytelling-and-music/"><u>5 Best Apps Blending Visual Storytelling & Music</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/sing-tseries-financial-outcomes-from-youtube-presence/"><u>Assessing TSeries’ Financial Outcomes From YouTube Presence</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/free-electronic-signature-for-docx-by-ldigisigner-sign-a-word-sign-a-word/"><u>Free electronic signature - For .docx </u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/g-history-told-by-top-video-makers-for-2024/"><u>Gaming History Told by Top Video Makers for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/o-embed-a-youtube-video-in-powerpoint-4-methods/"><u>How to Embed a YouTube Video in PowerPoint [4 Methods]</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-sharefake-location-on-whatsapp-for-tecno-spark-20-pro-drfone-by-drfone-virtual-android/"><u>How to Share/Fake Location on WhatsApp for Tecno Spark 20 Pro | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-leave-a-life360-group-on-lava-blaze-2-5g-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How To Leave a Life360 Group On Lava Blaze 2 5G Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-is-pgsharp-legal-when-you-are-playing-pokemon-on-itel-p55t-drfone-by-drfone-virtual-android/"><u>In 2024, Is pgsharp legal when you are playing pokemon On Itel P55T? | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-the-new-era-of-content-creation-and-profitability/"><u>In 2024, The New Era of Content Creation and Profitability</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ring-yoga-top-10-youtube-resources-for-enlightened-living-for-2024/"><u>Mastering Yoga Top 10 YouTube Resources for Enlightened Living for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ifiable-quirks-yearly-graphed-tidbits-from-yt-2017/"><u>Quantifiable Quirks Yearly Graphed Tidbits From YT (2017)</u></a></li>
+<li><a href="https://win-forum.techidaily.com/resolve-persistent-windows-explorer-freezing-with-these-7-tips/"><u>Resolve Persistent Windows Explorer Freezing with These 7 Tips!</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ltimate-checklist-of-key-elements-in-tagging-a-video/"><u>The Ultimate Checklist of Key Elements in Tagging a Video</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/forming-song-words-into-visual-storytelling-with-lyric-video-maker-for-2024/"><u>Transforming Song Words Into Visual Storytelling with Lyric Video Maker for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210532520-9798985607109-zodiac-hacks-2nd-ed/"><u>Zodiac Hacks (2nd ed.) | Free Book</u></a></li>
 </ul></div>
 

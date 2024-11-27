@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Elite Visionaries  Video Realm\""
-date: 2024-11-16T17:08:29.154Z
-updated: 2024-11-17T16:47:07.195Z
+date: 2024-11-22T12:40:59.117Z
+updated: 2024-11-26T18:43:32.955Z
 tags:
   - ai video
   - ai youtube
@@ -68,15 +68,16 @@ Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators
 
 One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 3\. S’well bottle
 
 S’well bottles are stainless steel beverage containers that keep drinks hot or cold. They retail for around $45\. YouTubers invited to the Creator Summit received ones with YouTube branding on them. A good water bottle is a convention/conference essential, so this was a very practical gift.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885943/19272" target="_top" id="1885943">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885943" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885943/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. Branded slippers
@@ -85,31 +86,25 @@ To help them relax after long days at the summit, YouTube provided creators with
 
 ![Branded slippers - 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-branded-slippers.jpg)
 
-_thinknoodles wearing his YouTube slippers._
-
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
-  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+_thinknoodles wearing his YouTube slippers._
 
 ## 5\. Pins, pins, pins
 
 There were numerous custom pins available at different events at the summit. Aside from a complementary Brooklyn and 1 Hotel Brooklyn Bridge (the hotel the creators were staying at) pins, the creators did not receive these in their swag boxes – they had to collect them.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959707/19272" target="_top" id="1959707">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959707" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959707/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 6\. Denim jacket
 
 A denim jacket with a play button on it was also in the box. The idea was that creators would collect pins and display them on their new jackets. At the end of the week, they would have a great souvenir reminding them of every event they attended at the summit.
 
 _![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 _Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
 
@@ -119,14 +114,11 @@ Want to join the YouTube Creator Summit in the future? We all know that there is
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -149,16 +141,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/n-2024-global-viewer-count-triumphs-play-button-honors/"><u>[New] In 2024, Global Viewer Count Triumphs Play Button Honors</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/eading-10-decibel-leveler-apps-for-all-os-for-2024/"><u>[New] Leading 10 Decibel Leveler Apps for All OS for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ltimate-sound-editing-solutions-for-online-bloggers/"><u>[New] Ultimate Sound Editing Solutions for Online Bloggers</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-adding-videos-to-written-work-a-budget-friendly-way/"><u>[Updated] 2024 Approved Adding Videos to Written Work A Budget-Friendly Way</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-mastering-the-meme-craft-kinemasters-role/"><u>[Updated] 2024 Approved Mastering the Meme Craft KineMaster's Role</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-mastering-the-art-of-live-cricket-livestreams/"><u>[Updated] In 2024, Mastering the Art of Live Cricket Livestreams</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/1-best-video-chatting-tools-discover-manycam-your-ultimate-virtual-camera-solution/"><u>1. Best Video Chatting Tools: Discover ManyCam - Your Ultimate Virtual Camera Solution</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/2024-approved-elevating-ad-revenue-through-animated-campaigns-on-facebook/"><u>2024 Approved Elevating Ad Revenue Through Animated Campaigns on Facebook</u></a></li>
-<li><a href="https://article-files.techidaily.com/2024-approved-the-insiders-guide-to-perfected-picture-hues/"><u>2024 Approved The Insider's Guide to Perfected Picture Hues</u></a></li>
-<li><a href="https://extra-information.techidaily.com/acid-pro-reviewed-comparable-professional-tools-explored-for-2024/"><u>ACID Pro Reviewed Comparable Professional Tools Explored for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/unraveling-youtubes-highest-peaks-post-vidcon-for-2024/"><u>Unraveling Youtube's Highest Peaks (Post-VidCon) for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-deciphering-youtubes-subscriber-code/"><u>[New] 2024 Approved Deciphering YouTube's Subscriber Code</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/he-ultimate-format-selection-elevating-your-youtube-content/"><u>[New] The Ultimate Format Selection – Elevating Your YouTube Content</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-amplify-viewership-with-these-top-10-youtube-reaction-strategies/"><u>[Updated] Amplify Viewership with These Top 10 YouTube Reaction Strategies</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-breaking-down-8-common-blunders-in-early-stage-youtube-success/"><u>[Updated] Breaking Down 8 Common Blunders in Early-Stage YouTube Success</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-explore-the-most-economical-video-conference-software-best-10-recommendations-for-business-and-education/"><u>[Updated] Explore the Most Economical Video Conference Software Best 10 Recommendations for Business & Education</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-excellence-collective-in-multimedia-sensation/"><u>[Updated] In 2024, Excellence Collective in Multimedia Sensation</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-craft-compelling-videos-utilize-no-cost-templates-and-samples/"><u>2024 Approved Craft Compelling Videos Utilize No-Cost Templates & Samples</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-inside-the-worlds-most-successful-business-youtube-sites/"><u>2024 Approved Inside the World's Most Successful Business YouTube Sites</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/1726227160428-movavi/"><u>如今获取最新版的 Movavi 视频编辑器 - 立刻下载</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/cing-comments-with-emojis-on-youtube-for-2024/"><u>Enhancing Comments with Emojis on YouTube for 2024</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/exploring-the-capabilities-of-the-compact-marvel-apple-ipad-mini-5/"><u>Exploring the Capabilities of the Compact Marvel - Apple iPad Mini #5</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-from-ideation-to-implementation-a-comprehensive-approach-for-quality-edu-videos/"><u>In 2024, From Ideation to Implementation A Comprehensive Approach for Quality Edu-Videos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ing-off-right-must-haves-for-youtube-enthusiasts/"><u>Starting Off Right Must-Haves for YouTube Enthusiasts</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/the-comprehensive-checklist-how-to-find-and-purchase-the-right-television-for-your-household/"><u>The Comprehensive Checklist: How to Find and Purchase the Right Television for Your Household</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/the-magnificent-art-of-pokemon-go-streaming-on-lava-blaze-2-pro-drfone-by-drfone-virtual-android/"><u>The Magnificent Art of Pokemon Go Streaming On Lava Blaze 2 Pro? | Dr.fone</u></a></li>
+<li><a href="https://fox-that.techidaily.com/ultimate-troubleshooting-guide-forcing-an-iphone-reboot-and-accessing-the-recovery-menu-easily/"><u>Ultimate Troubleshooting Guide: Forcing an iPhone Reboot & Accessing the Recovery Menu Easily</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/1722958248474-up-to-date-and-efficient-install-the-new-software-update-for-dells-2330ddn-laser-printers-today/"><u>Up to Date & Efficient: Install the New Software Update for Dell's 2330D/Dn Laser Printers Today!</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  How to Create Animated Bouncing Text\""
-date: 2024-08-23T08:32:10.770Z
-updated: 2024-08-24T08:32:10.770Z
+date: 2024-11-26T09:53:41.992Z
+updated: 2024-11-26T18:43:22.416Z
 tags:
   - ai video
   - ai youtube
@@ -46,6 +46,10 @@ In the timeline, double-click the title you just added, use the upper-left secti
 
 ![Create Bouncing Text video Filmora9](https://images.wondershare.com/filmora/article-images/add-up-down-animation-to-bounce.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3: Add Shake Filters**
 
 Go to **Effects** from the standard toolbar, expand the **Filters** category from the left pane, and click **Shake**. From the Library window, click and drag your preferred shake filter to the timeline. Here, I will choose Mild.
@@ -62,6 +66,10 @@ Click **EXPORT** from the top of the interface, go to the **Local** tab in the *
 
 ![Filmora9 Export Options](https://images.wondershare.com/filmora/article-images/export-filmora9-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Now, you can add the bouncing text video and the background video to the timeline, and then place the bouncing text video above the background video track.
 
 Double click the text track, go to the **Chroma Key** effect, select the **Color Picker** tool, and click anywhere in the Preview window to get things right. Finally, export the entire project to your preferred output format as explained in **Step 4**.
@@ -69,6 +77,14 @@ Double click the text track, go to the **Chroma Key** effect, select the **Color
 As explained before, Wondeshare Filmora makes the entire process of creating and adding **bounce text** effect pretty simple. With all the pre-build templates, and the versatility of the options that can be used to customize those presets, you can come up with the effects that are usually obtained when you start generating them from the scratch.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Method 2: Generate Animated Bouncing Texts Online
 
@@ -108,6 +124,10 @@ Launch your favorite web browser and go to <https://loading.io/animation/text/>.
 
 ![Create Animated Bouncing Text with Loading.io](https://images.wondershare.com/filmora/article-images/create-bouncing-text-with-loadingio.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Use the options available on the webpage to type your text, and change its font, color, background, transparency level etc. Select **Bounce** (or any of its variants) from the **Animation** drop-down list, and adjust the speed using the **Speed** slider.
 
 **Step 3: Obtain the Text**
@@ -128,14 +148,11 @@ Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -144,8 +161,22 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/uilding-your-own-youtube-organization-toolkit-the-watch-later-way-for-2024/"><u>[New] Building Your Own YouTube Organization Toolkit The Watch Later Way for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ultivating-a-unique-vibe-in-your-own-mukbang-content-for-2024/"><u>[New] Cultivating a Unique Vibe in Your Own Mukbang Content for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-elite-gaming-setup-essentials-revealed/"><u>[New] Elite Gaming Setup Essentials Revealed</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/op-10-steps-to-design-free-youtube-video-ads/"><u>[New] Top 10 Steps to Design Free YouTube Video Ads</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-mastering-youtube-google-meet-live-broadcast-steps/"><u>[Updated] 2024 Approved Mastering YouTube Google Meet Live Broadcast Steps</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-craft-the-perfect-gif-message-in-snapchat-easy-steps-for-2024/"><u>[Updated] Craft the Perfect Gif Message in Snapchat [Easy Steps] for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-understanding-youtube-shorts-earning-potential/"><u>[Updated] In 2024, Understanding YouTube Shorts Earning Potential</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-seamless-screen-record-for-windows-11/"><u>[Updated] Seamless Screen Record for Windows 11</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-exploring-subscriptions-the-value-of-youtube-premium/"><u>2024 Approved Exploring Subscriptions The Value of YouTube Premium</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-asus-rog-phone-7-ultimate-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On Asus ROG Phone 7 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ring-ideas-gratis-graphics-for-your-channel-for-2024/"><u>Inspiring Ideas Gratis Graphics for Your Channel for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/mastering-school-without-edgenuity-videos/"><u>Mastering School Without Edgenuity Videos</u></a></li>
+<li><a href="https://fox-ssl.techidaily.com/quickly-restore-lost-documents-using-windows-10s-quick-access-feature/"><u>Quickly Restore Lost Documents Using Windows 10'S Quick Access Feature</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/stop-your-printer-from-jamming-in-windows-11/"><u>Stop Your Printer From Jamming in Windows 11</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-2024-approved-capture-the-moment-freezing-frames-in-videos-made-simple/"><u>Updated 2024 Approved Capture the Moment Freezing Frames in Videos Made Simple</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
-<!-- affiliate ads end -->

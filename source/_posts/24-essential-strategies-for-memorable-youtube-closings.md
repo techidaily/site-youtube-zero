@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Essential Strategies for Memorable YouTube Closings"
-date: 2024-08-23T08:34:14.587Z
-updated: 2024-08-24T08:34:14.587Z
+date: 2024-11-23T07:07:39.705Z
+updated: 2024-11-26T19:18:31.154Z
 tags:
   - ai video
   - ai youtube
@@ -65,6 +65,10 @@ Those who do not have PhotoShop can use Taha Chimar’s end screen designs that 
 
 ![taha-chimar-youtube-end-screen](https://images.wondershare.com/filmora/article-images/taha-chimar-youtube-end-screen.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 To download, you will have to follow a URL link in the description box of the YouTube videos. Be careful, though, as a lot of the links lead to free hosting websites with pop-ups that can harm your computer if you are easily fooled by them.
 
 #### 4. SoapyEdits
@@ -81,6 +85,10 @@ Here’s one for the Minecraft fans:
 
 ![SoapyEdits YouTube end screen template  ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![SoapyEdits YouTube end screen template  ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-3.jpg)
 
 Another way to get your YouTube end screens for free, of course, is to make them yourself. Canva is a great free online design tool for this.
@@ -90,6 +98,10 @@ Another way to get your YouTube end screens for free, of course, is to make them
 1\. First, you have to sign up with an e-mail address
 
 ![create-outro-end-screen-with-canva-1](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 2\. Once logged in, select “use custom dimensions” and plug in “1920” pixels as your width and “1080” pixels as your height (this, of course, may vary depending on the resolution of your video project).
 
@@ -101,6 +113,10 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![download-youtube-outro-end-screen](https://images.wondershare.com/filmora/article-images/download-youtube-outro-end-screen.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 5\. Upload the image onto your Canva project.
 
 ![upload-downloaded-youtube-end-screen-canva ](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
@@ -108,6 +124,10 @@ Another way to get your YouTube end screens for free, of course, is to make them
 6\. Stretch your image to the ends of your canvas.
 
 ![stretch-end-screen-templates-canva ](https://images.wondershare.com/filmora/article-images/stretch-end-screen-templates-canva.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 7\. Insert your own shapes, lines, colours, images, and text over the image.
 
@@ -121,6 +141,10 @@ If you're looking for other options to design your end screen, make sure to also
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -129,14 +153,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -145,8 +166,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-how-to-animate-and-make-your-own-effects/"><u>[New] 2024 Approved How to Animate and Make Your Own Effects</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/reakthrough-strategies-for-youtube-short-problem-solving/"><u>[New] Breakthrough Strategies for YouTube Short Problem-Solving</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-crafting-captivating-youtube-presence-the-ultimate-guide-to-making-thumbnails-on-phones/"><u>[New] In 2024, Crafting Captivating YouTube Presence The Ultimate Guide to Making Thumbnails on Phones</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ransforming-smartphone-videos-into-earnings-a-2024-guide-to-monetization/"><u>[New] Transforming Smartphone Videos Into Earnings A 2024 Guide to Monetization</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-achieving-financial-gain-through-youtube-videos/"><u>[Updated] 2024 Approved Achieving Financial Gain Through YouTube Videos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-from-stir-to-screen-masterful-cooking-videos/"><u>[Updated] 2024 Approved From Stir to Screen Masterful Cooking Videos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-dissecting-youtube-revenue-how-much-do-you-earning-from-adsense-per-kv/"><u>[Updated] Dissecting YouTube Revenue How Much Do You Earning From AdSense per KV?</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-gain-money-on-youtube-understanding-required-number-of-views/"><u>[Updated] Gain Money on YouTube Understanding Required Number of Views</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-reel-it-in-pro-level-techniques-for-youtube-video-editors/"><u>[Updated] In 2024, Reel It In Pro-Level Techniques for YouTube Video Editors</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-az-recorder-expert-series-app-deep-dives/"><u>2024 Approved AZ Recorder Expert Series App Deep Dives</u></a></li>
+<li><a href="https://win-cheats.techidaily.com/dllwindows/"><u>簡易指南：回收丢失dll文件在Windows系统上</u></a></li>
+<li><a href="https://extra-information.techidaily.com/decoding-windows-11-new-functionality/"><u>Decoding Windows 11 New Functionality</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/easy-install-guide-obtaining-and-updating-brother-mfc-l2690dw-driver/"><u>Easy Install Guide: Obtaining and Updating Brother MFC-L2690DW Driver</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/generative-ai-explained-for-families/"><u>Generative AI Explained for Families</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-your-realme-11-proplus-location-on-twitter-drfone-by-drfone-virtual-android/"><u>How to Change your Realme 11 Pro+ Location on Twitter | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-6-best-sim-unlock-services-that-actually-work-on-your-motorola-moto-g14-device-by-drfone-android/"><u>The 6 Best SIM Unlock Services That Actually Work On Your Motorola Moto G14 Device</u></a></li>
+<li><a href="https://some-tips.techidaily.com/the-ultimate-pp-playbook-for-silent-scene-transitions-for-2024/"><u>The Ultimate PP Playbook for Silent Scene Transitions for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/understanding-ai-chatbots-the-reason-behind-their-rising-popularity/"><u>Understanding AI Chatbots: The Reason Behind Their Rising Popularity</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/king-creative-potential-in-lyric-videos-with-lyric-video-maker-for-2024/"><u>Unlocking Creative Potential in Lyric Videos with Lyric Video Maker for 2024</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Guides on Creating Cost-Free YouTube Beginnings & Conclusions\""
-date: 2024-08-23T08:31:57.757Z
-updated: 2024-08-24T08:31:57.757Z
+date: 2024-11-20T10:29:52.427Z
+updated: 2024-11-27T05:45:00.931Z
 tags:
   - ai video
   - ai youtube
@@ -40,6 +40,10 @@ thumbnail: https://thmb.techidaily.com/907f940c68ac3ee45f8b59683cc047cc046651848
 
 [How To Make an End Card](#how-to)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -68,6 +72,10 @@ You can create a simple intro card in **Filmora**.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
 3. If you have a logo, import it into Filmora and drag it into your picture-in-picture track.
@@ -76,6 +84,10 @@ You can create a simple intro card in **Filmora**.
 6. Go to the Text/Titles menu and choose an animated title that suits your channel. Drag it into your text track and edit it to include your name.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: End Cards
 
@@ -112,20 +124,21 @@ Some creators will leave their end cards at that and play music overtop, but it 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -134,8 +147,24 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/outube-introduction-design-made-simple-and-inexpensive/"><u>[New] YouTube Introduction Design Made Simple and Inexpensive</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-elevate-video-branding-incorporating-watermarks-into-youtube-media/"><u>[Updated] 2024 Approved Elevate Video Branding Incorporating Watermarks Into YouTube Media</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-complete-guide-to-aspect-ratios-about-youtube-videosshortsads-for-2024/"><u>[Updated] Complete Guide to Aspect Ratios About YouTube Videos/Shorts/Ads for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-future-earnings-gaming-geeks-on-youtube/"><u>[Updated] Future Earnings Gaming Geeks on YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-transform-your-content-strategy-with-tubebuddy/"><u>[Updated] In 2024, Transform Your Content Strategy with TubeBuddy</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-begin-animation-ease-in-transition/"><u>2024 Approved Begin Animation Ease-In Transition</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-captivating-viewers-with-youtubes-visual-polishing/"><u>2024 Approved Captivating Viewers with Youtube's Visual Polishing</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-decoding-youtubes-operations-following-uploads/"><u>2024 Approved Decoding YouTube’s Operations Following Uploads</u></a></li>
+<li><a href="https://win-workspace.techidaily.com/download-free-malware-protection-discover-how-malwarefox-keeps-your-android-device-safe/"><u>Download Free Malware Protection: Discover How MalwareFox Keeps Your Android Device Safe</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-7-ways-to-unlock-a-locked-xiaomi-14-ultra-phone-by-drfone-android/"><u>In 2024, 7 Ways to Unlock a Locked Xiaomi 14 Ultra Phone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-how-to-edit-videos-for-youtube-on-pc/"><u>In 2024, How to Edit Videos for YouTube on PC</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-realme-narzo-n53-bootloader-easily-by-drfone-android/"><u>In 2024, How to Unlock Realme Narzo N53 Bootloader Easily</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-how-to-verify-your-youtube-account/"><u>In 2024, How to Verify Your YouTube Account?</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-remove-the-lock-screen-fingerprint-of-your-realme-gt-neo-5-by-drfone-android/"><u>In 2024, Remove the Lock Screen Fingerprint Of Your Realme GT Neo 5</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-5-tracking-apps-to-track-itel-a05s-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Tracking Apps to Track Itel A05s without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/ultimate-guide-on-apple-iphone-15-pro-icloud-activation-lock-bypass-by-drfone-ios/"><u>Ultimate Guide on Apple iPhone 15 Pro iCloud Activation Lock Bypass</u></a></li>
+<li><a href="https://discover-deluxe.techidaily.com/windows-11-sync-center-substitutes-and-comprehensive-user-guide/"><u>Windows 11 Sync Center Substitutes and Comprehensive User Guide</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
