@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Animating Elegance  Self-Designed Tricks & Effects\""
-date: 2024-11-22T10:57:36.867Z
-updated: 2024-11-26T17:30:19.483Z
+date: 2024-11-30T19:10:02.152Z
+updated: 2024-12-06T20:24:50.519Z
 tags:
   - ai video
   - ai youtube
@@ -52,7 +52,7 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Mt. Mograph](https://www.youtube.com/channel/UCSUSgx9qc%5FNydrOL59xbJIA)**
@@ -60,7 +60,7 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 On this YouTube channel, motion graphics specialist Matt offers free animation tutorials using a variety of programs including Adobe After Effects and Cinema 4D. His lessons are for a range of skill levels, from beginner to advanced. If you are just starting out then Mt.Mograph is a great resource.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Richard Harrington on Lynda](https://www.lynda.com/Rich-Harrington/120-1.html)**
@@ -70,7 +70,7 @@ Lynda isn’t free, but the 10-day free trial period is definitely long enough f
 What’s great about this course is that it assumes you have no animation experience, and it walks you through the main thing a lot of YouTubers want to learn animation for – creating an animated logo.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Bloop Animation](https://www.bloopanimation.com/)**
@@ -78,7 +78,7 @@ What’s great about this course is that it assumes you have no animation experi
  Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Video Copilot](http://www.videocopilot.net/)**
@@ -88,7 +88,7 @@ This site has a huge number of free After Effects tutorials. There are basic int
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -112,21 +112,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-2024-approved-clarity-catalysts-selecting-online-video-aids/"><u>[New] 2024 Approved Clarity Catalysts Selecting Online Video Aids</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-in-2024-the-actual-fix-for-exporting-srt-from-premiere-not-working/"><u>[New] In 2024, The Actual Fix for Exporting SRT From Premiere Not Working</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ideo-snippet-creator-for-2024/"><u>[New] Video Snippet Creator for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-9-buzzworthy-workout-videos-that-stay-on-top-of-trends/"><u>[Updated] 2024 Approved 9 Buzzworthy Workout Videos That Stay on Top of Trends</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-efficiently-engaging-with-numerous-youtube-lectures/"><u>[Updated] 2024 Approved Efficiently Engaging with Numerous YouTube Lectures</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-incorporating-cards-and-annotations-in-youtube-content/"><u>[Updated] 2024 Approved Incorporating Cards and Annotations in YouTube Content</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-ultimate-filmmaking-journey-via-youtube-channels/"><u>[Updated] 2024 Approved Ultimate Filmmaking Journey via YouTube Channels</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-video-sharing-showdown-20-decoding-the-platform-preferences-vimeo-youtubes-and-dailymotions/"><u>[Updated] 2024 Approved Video Sharing Showdown 2.0 Decoding the Platform Preferences - Vimeo, YouTubes & DailyMotions</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-cutting-edge-computing-select-the-optimal-device-for-video-editing/"><u>[Updated] Cutting Edge Computing Select the Optimal Device for Video Editing</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-photo-fables-the-best-ios-and-android-text-apps-for-pictures-for-2024/"><u>[Updated] Photo Fables The Best iOS & Android Text Apps for Pictures for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/-your-brands-success-on-top-business-youtube-channels/"><u>Build Your Brand's Success on Top Business YouTube Channels</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96317841-9781848502826-dowsing/"><u>Dowsing | Free Book</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/dynamic-interactions-chatgpt-meets-crypto-world/"><u>Dynamic Interactions: ChatGPT Meets Crypto World</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/quest-masters-choice-celebrating-gaming-epics-anew/"><u>Quest Masters' Choice Celebrating Gaming Epics Anew</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/revolutionize-your-home-networking-with-asus-zenwifi-xt8-ax6600-detailed-review-and-tips-for-optimal-mesh-wi-fi-performance/"><u>Revolutionize Your Home Networking with ASUS ZenWiFi XT8 (AX6600): Detailed Review & Tips for Optimal Mesh Wi-Fi Performance</u></a></li>
-<li><a href="https://win-dash.techidaily.com/ultimate-techniques-for-downloading-vine-content-from-twitter-compatible-with-every-device/"><u>Ultimate Techniques for Downloading Vine Content From Twitter - Compatible with Every Device!</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-steering-clear-of-stereotypes-with-your-youtube-channel-name/"><u>[New] 2024 Approved Steering Clear of Stereotypes with Your YouTube Channel Name</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-guide-to-prime-gopro-protectors-top-10-reviewed/"><u>[New] In 2024, Guide to Prime GoPro Protectors - Top 10 Reviewed</u></a></li>
+<li><a href="https://program-issues.techidaily.com/solved-it-takes-two-crashes-on-pc/"><u>[SOLVED] It Takes Two Crashes on PC</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-optimize-video-pace-on-youtube-for-devices-speed-adjustments/"><u>[Updated] 2024 Approved Optimize Video Pace on YouTube for Devices (Speed Adjustments)</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-clarifying-gap-between-full-view-and-immersive-videos/"><u>[Updated] Clarifying Gap Between Full View & Immersive Videos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-diy-youtube-openers-technique-one-and-technique-two-for-2024/"><u>[Updated] DIY YouTube Openers Technique One & Technique Two for 2024</u></a></li>
+<li><a href="https://techidaily.com/complete-guide-to-hard-reset-your-oneplus-nord-ce-3-5g-drfone-by-drfone-reset-android-reset-android/"><u>Complete Guide to Hard Reset Your OnePlus Nord CE 3 5G | Dr.fone</u></a></li>
+<li><a href="https://discover-deluxe.techidaily.com/comprehensive-tutorial-on-eliminating-malicious-software-of-chinese-origin-from-your-devices/"><u>Comprehensive Tutorial on Eliminating Malicious Software of Chinese Origin From Your Devices</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/convertidor-libre-y-descentralizado-para-cambiar-flac-a-wav-por-movavi-sin-pagos/"><u>Convertidor Libre Y Descentralizado Para Cambiar FLAC a WAV Por Movavi - Sin Pagos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-navigating-the-financial-frontier-of-youtube-creators/"><u>In 2024, Navigating the Financial Frontier of YouTube Creators</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-pattern-locks-are-unsafe-secure-your-infinix-phone-now-with-these-tips-by-drfone-android/"><u>In 2024, Pattern Locks Are Unsafe Secure Your Infinix Phone Now with These Tips</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/swift-stardom-the-five-tenets-of-gpts-triumph/"><u>Swift Stardom: The Five Tenets of GPT's Triumph</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ate-guide-to-the-top-youtube-video-editors-for-2024/"><u>Ultimate Guide to the Top YouTube Video Editors for 2024</u></a></li>
 </ul></div>
 

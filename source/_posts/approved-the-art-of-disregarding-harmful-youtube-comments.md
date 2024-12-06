@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  The Art of Disregarding Harmful YouTube Comments\""
-date: 2024-08-23T08:26:44.447Z
-updated: 2024-08-24T08:26:44.447Z
+date: 2024-12-02T21:48:56.019Z
+updated: 2024-12-06T22:28:01.981Z
 tags:
   - ai video
   - ai youtube
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/069b298bfedee9c280f30a09eb725e41e8884f90f
  Mar 27, 2024• Proven solutions
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
 
@@ -54,20 +58,21 @@ thumbnail: https://thmb.techidaily.com/069b298bfedee9c280f30a09eb725e41e8884f90f
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -76,8 +81,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/igital-deviation-expert-strategies-to-rotate-videos-on-youtube-for-2024/"><u>[New] Digital Deviation Expert Strategies to Rotate Videos on YouTube for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-image-full-screen-webpage-for-2024/"><u>[New] Image Full-Screen Webpage for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-dynamic-lighting-elevating-video-aesthetics/"><u>[New] In 2024, Dynamic Lighting Elevating Video Aesthetics</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/op-15-video-capture-for-gamers-guide/"><u>[New] Top 15 Video Capture for Gamers Guide</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-expertise-in-editing-mastery-a-dive-into-filmoras-best-practices/"><u>[Updated] Expertise in Editing Mastery A Dive Into Filmora's Best Practices</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-leveraging-googles-board-tools-for-smooth-online-engagement-on-all-platforms/"><u>[Updated] In 2024, Leveraging Google's Board Tools for Smooth Online Engagement on All Platforms</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-discovering-video-producers-digital-command-center/"><u>2024 Approved Discovering Video Producers' Digital Command Center</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-personalizing-who-can-see-your-youtube-content/"><u>2024 Approved Personalizing Who Can See Your YouTube Content</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-the-ultimate-mobile-experience-apple-android-and-youtube/"><u>2024 Approved The Ultimate Mobile Experience Apple, Android and YouTube</u></a></li>
+<li><a href="https://techtrends.techidaily.com/effective-techniques-for-increasing-your-insta-crowd/"><u>Effective Techniques for Increasing Your Insta Crowd</u></a></li>
+<li><a href="https://techidaily.com/how-to-easily-hard-reset-my-tecno-spark-10-4g-drfone-by-drfone-reset-android-reset-android/"><u>How to Easily Hard reset my Tecno Spark 10 4G | Dr.fone</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/1722978265923-secure-and-fast-fetching-the-ultimate-guide-to-downloading-ft232r-drivers/"><u>Secure and Fast Fetching: The Ultimate Guide to Downloading FT232R Drivers</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/spontaneous-shopping-a-detailed-account-of-how-and-why-i-bought-an-apple-watch-from-amazon-against-my-initial-intentions-zdnet-insights/"><u>Spontaneous Shopping: A Detailed Account of How and Why I Bought an Apple Watch From Amazon (Against My Initial Intentions) | ZDNET Insights</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/shing-popularity-how-to-make-a-youtube-hit/"><u>Unleashing Popularity How to Make a YouTube Hit</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ling-the-secrets-to-supervised-simultaneous-streams-for-2024/"><u>Unveiling the Secrets to Supervised Simultaneous Streams for 2024</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

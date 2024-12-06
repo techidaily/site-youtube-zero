@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Fostering Self-Assurance Against Virtual Hostility\""
-date: 2024-11-25T11:16:16.027Z
-updated: 2024-11-26T23:06:17.879Z
+date: 2024-11-29T18:22:08.315Z
+updated: 2024-12-06T21:48:09.808Z
 tags:
   - ai video
   - ai youtube
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/23c6d535c7ad4efdb52e10a3b68daec9ba5e42c7d
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/23c6d535c7ad4efdb52e10a3b68daec9ba5e42c7d
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -83,22 +83,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/igital-delegates-top-youtube-creators-by-followers/"><u>[New] Digital Delegates Top YouTube Creators by Followers</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-30-probing-into-the-metaverse-key-ventures-deciphered/"><u>[New] In 2024, 30 Probing Into the Metaverse Key Ventures Deciphered</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-seamless-video-to-photo-conversion-for-windows-users/"><u>[New] Seamless Video-to-Photo Conversion for Windows Users</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-the-art-of-screenshot-beauty-top-10-sticker-enhancing-apps-for-smartphones/"><u>[New] The Art of Screenshot Beauty Top 10 Sticker-Enhancing Apps for Smartphones</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/he-ultimate-guide-to-global-exploration-by-channel-for-2024/"><u>[New] The Ultimate Guide to Global Exploration, By Channel for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-effortless-fusion-of-youtube-audio-with-imovie-masterpieces/"><u>[Updated] 2024 Approved Effortless Fusion of YouTube Audio with iMovie Masterpieces</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-instagram-video-length-limit-every-details-you-need-to-know/"><u>[Updated] 2024 Approved Instagram Video Length Limit - Every Details You Need to Know</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-cut-the-cord-with-youtube-mp3-conversion-tools/"><u>[Updated] Cut the Cord with YouTube-MP3 Conversion Tools</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-8-unique-workout-concepts-for-a-pulse-raising-video-channel/"><u>[Updated] In 2024, 8 Unique Workout Concepts for a Pulse-Raising Video Channel</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-strategic-approaches-to-youtube-short-glitches/"><u>2024 Approved Strategic Approaches to YouTube Short Glitches</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/journeys-charting-7-comedic-paths-to-viral-videos/"><u>Jest Journeys Charting 7 Comedic Paths to Viral Videos</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/your-comments-pop-with-emojis-in-youtube-for-2024/"><u>Make Your Comments Pop with Emojis in YouTube for 2024</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/navigate-network-needs-skilled-approaches-to-file-movement-on-computer/"><u>Navigate Network Needs Skilled Approaches to File Movement on Computer</u></a></li>
-<li><a href="https://win-blog.techidaily.com/overcoming-technical-hurdles-a-guide-to-running-disco-elysium-flawlessly-on-windowsmac/"><u>Overcoming Technical Hurdles: A Guide to Running 'Disco Elysium' Flawlessly on Windows/Mac</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/things-you-must-know-for-screen-mirroring-apple-iphone-7-plus-drfone-by-drfone-ios/"><u>Things You Must Know for Screen Mirroring Apple iPhone 7 Plus | Dr.fone</u></a></li>
-<li><a href="https://win-able.techidaily.com/troubleshooting-and-correcting-outriders-connectivity-delays-for-smoother-gameplay/"><u>Troubleshooting and Correcting Outriders' Connectivity Delays for Smoother Gameplay</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/what-is-a-sim-network-unlock-pin-get-your-samsung-galaxy-a54-5g-phone-network-ready-by-drfone-android/"><u>What Is a SIM Network Unlock PIN? Get Your Samsung Galaxy A54 5G Phone Network-Ready</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-master-the-skill-of-trimming-youtube-videos-for-perfect-bites/"><u>[New] 2024 Approved Master the Skill of Trimming YouTube Videos for Perfect Bites</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-your-ultimate-guide-to-budget-friendly-excellent-webm-viewers/"><u>[New] 2024 Approved Your Ultimate Guide to Budget-Friendly, Excellent WebM Viewers</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-youtube-video-magic-advanced-editing-with-premiere-pro/"><u>[Updated] 2024 Approved YouTube Video Magic Advanced Editing with Premiere Pro</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-creative-video-ends-top-6-budget-friendly-options-for-2024/"><u>[Updated] Creative Video Ends Top 6 Budget-Friendly Options for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-expert-insight-screening-sweet-indulgences-for-2024/"><u>[Updated] Expert Insight Screening Sweet Indulgences for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-fixing-obscured-content-on-youtube-platform/"><u>[Updated] In 2024, Fixing Obscured Content on YouTube Platform</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-get-a-cleaner-look-in-your-videos-quickly-and-easily/"><u>[Updated] In 2024, Get a Cleaner Look in Your Videos Quickly and Easily</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-top-9-premium-wedding-films-online-youtube-and-vimeo/"><u>[Updated] In 2024, Top 9 Premium Wedding Films Online Youtube & Vimeo</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-converting-youtube-to-gif-a-comprehensive-online-process/"><u>2024 Approved Converting YouTube to GIF A Comprehensive Online Process</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-key-techniques-for-a-thorough-review-of-youtube-stats/"><u>2024 Approved Key Techniques for a Thorough Review of YouTube Stats</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-master-selections-top-editors-for-professional-content/"><u>2024 Approved Master Selections Top Editors For Professional Content</u></a></li>
+<li><a href="https://fox-shield.techidaily.com/effiziente-strategien-zur-reparatur-beschadigter-powerpoint-dokumente/"><u>Effiziente Strategien Zur Reparatur Beschädigter PowerPoint-Dokumente</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-exemplary-audio-enhancing-programs-for-youtube-artists/"><u>In 2024, Exemplary Audio-Enhancing Programs for YouTube Artists</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-learn-how-everything-works-on-realme-c51-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Learn How Everything Works On Realme C51 | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-mastered-listings-top-8-free-uhd-video-players-cross-platform-for-windows-pcandmac/"><u>In 2024, Mastered Listings - Top 8 FREE UHD Video Players (Cross-Platform) for Windows PC&Mac</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-premier-10-video-grabbers-for-streaming-content-creators/"><u>In 2024, Premier 10 Video Grabbers for Streaming Content Creators</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-top-video-reverse-tools/"><u>Updated Top Video Reverse Tools</u></a></li>
 </ul></div>
 

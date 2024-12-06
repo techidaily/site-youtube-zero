@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Navigating YouTube Comment Settings  Tips and Tricks\""
-date: 2024-08-23T08:28:26.625Z
-updated: 2024-08-24T08:28:26.625Z
+date: 2024-11-29T18:13:58.389Z
+updated: 2024-12-06T16:59:04.847Z
 tags:
   - ai video
   - ai youtube
@@ -46,6 +46,10 @@ From the bottom of the left pane, click the **Settings** icon, click **Channel**
 
 ![  YouTube Channel Advanced Settings](https://images.wondershare.com/filmora/article-images/youtube-channel-advanced-settings.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### Step 3: Turn Off Comments
 
 From the **Audience** section in the right pane itself, click to select the **Yes, set this channel as made for kids. I always upload content that’s made for kids** radio button. Click **SAVE** from the bottom-right corner to save the changes in order to turn off comments on all the videos on your YouTube channel.
@@ -58,11 +62,19 @@ Use the method explained above to get to the channel’s **Advanced settings** b
 
 ![  Turn on YouTube Channel Comments](https://images.wondershare.com/filmora/article-images/turn-on-channel-comments-advanced-settings.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 2\. Define Acceptable Comment Types
 
 Click the **Settings** icon from the bottom of the left pane one more time. On the **Settings** box, go to the **Upload defaults** category from the left pane, and go to **Advanced settings** from the right. From the **Comment visibility** drop-down list under the **Comments** section in the right, choose your preferred comment allowance type, and click **SAVE** to allow the comments on the videos the channel has.
 
 ![ Set up YouTube video  Comments visibility](https://images.wondershare.com/filmora/article-images/set-up-youtube-comments-visibilities.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 3\. Set Comment Allowance for Videos
 
@@ -110,11 +122,12 @@ From under the **Audience** section in the right window of the **Video details**
 
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## FAQs About YouTube Comments
 
 #### 1\. Why can’t I comment on the YouTube video?
@@ -131,9 +144,6 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
 Yes. When you turn off the comments, the existing comments disappear. When you turn them back on, all the previous comments reappear, and become visible to the audience.
@@ -149,22 +159,20 @@ It is easy to understand **how to turn on comments on YouTube**. The best thing 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -173,4 +181,26 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-data.techidaily.com/n-2024-16-crowning-youtube-opens-for-enhanced-reach/"><u>[New] In 2024, 16 Crowning YouTube Opens for Enhanced Reach</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-kinemasters-comprehensive-guide-to-green-screen-usage/"><u>[New] In 2024, Kinemaster's Comprehensive Guide to Green Screen Usage</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/n-2024-unseen-youtube-videos-the-meaning-of-unlisted-status/"><u>[New] In 2024, Unseen YouTube Videos The Meaning of 'Unlisted' Status</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-optimal-video-recording-for-instructors-for-2024/"><u>[New] Optimal Video-Recording for Instructors for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/erfect-pair-merging-your-youtube-video-library/"><u>[New] Perfect Pair Merging Your YouTube Video Library</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/weep-up-viewers-the-science-behind-successful-youtube-shorts/"><u>[New] Sweep Up Viewers The Science Behind Successful YouTube Shorts</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ransforming-channel-visibility-into-subscriber-stardom-on-youtube/"><u>[New] Transforming Channel Visibility Into Subscriber Stardom on YouTube</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-from-dull-to-delightful-text-that-tumbles-and-twirls-for-2024/"><u>[Updated] From Dull to Delightful Text that Tumbles and Twirls for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-hottest-youtube-music-playback-responses-23/"><u>[Updated] In 2024, Hottest YouTube Music Playback Responses '23</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-perfect-your-broadcasting-automated-repeats-on-tv/"><u>[Updated] In 2024, Perfect Your Broadcasting Automated Repeats on TV</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-streamlined-playback-controlling-youtube-video-delivery-speeds/"><u>[Updated] In 2024, Streamlined Playback Controlling YouTube Video Delivery Speeds</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-exclusive-resource-hub-downloadable-templates-for-youtubers/"><u>2024 Approved Exclusive Resource Hub - Downloadable Templates for YouTubers</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/become-a-croatian-linguist-find-out-the-best-7-benefits-today/"><u>Become a Croatian Linguist – Find Out the Best 7 Benefits Today</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ver-top-6-short-video-download-sites-free-for-2024/"><u>Discover Top 6 Short Video Download Sites (FREE) for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-expert-recorder-choice-for-high-quality-youtube-content/"><u>In 2024, Expert Recorder Choice for High-Quality YouTube Content</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-methods-to-change-gps-location-on-vivo-y36-drfone-by-drfone-virtual-android/"><u>In 2024, Methods to Change GPS Location On Vivo Y36 | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/mline-access-6-leading-free-and-on-demand-youtube-short-downloader-tools-for-2024/"><u>Streamline Access 6 Leading Free & On-Demand YouTube Short Downloader Tools for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-rated-mobile-reception-amplifiers/"><u>Top-Rated Mobile Reception Amplifiers</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-and-repairs-fixing-a-non-responsive-corsair-mechanical-keyboard/"><u>Troubleshooting and Repairs: Fixing a Non-Responsive Corsair Mechanical Keyboard</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Excellence Exchange  Global Creators\""
-date: 2024-11-23T17:37:22.879Z
-updated: 2024-11-27T04:19:07.413Z
+date: 2024-12-04T18:35:53.164Z
+updated: 2024-12-06T21:15:09.493Z
 tags:
   - ai video
   - ai youtube
@@ -56,6 +56,10 @@ There were some clues as to what the rest of the summit was like hiding amongst 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. A map of Dumbo
 
 The hotel YouTube put the creators up in was in Dumbo, Brooklyn. ‘Dumbo’ is an acronym for Down Under the Manhattan Bridge Overpass. While it used to be primarily an industrial area, Dumbo is now the most expensive neighborhood in Brooklyn with many of the old industrial spaces now serving as luxury residential lofts. Dumbo is also a hub for tech startups.
@@ -64,20 +68,20 @@ _Tess takes you to some of her favorite places in Dumbo._
 
 Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators who attended the summit probably had a lot of fun exploring it.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 2\. Post Cards
 
 One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 3\. S’well bottle
 
 S’well bottles are stainless steel beverage containers that keep drinks hot or cold. They retail for around $45\. YouTubers invited to the Creator Summit received ones with YouTube branding on them. A good water bottle is a convention/conference essential, so this was a very practical gift.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. Branded slippers
@@ -89,7 +93,7 @@ To help them relax after long days at the summit, YouTube provided creators with
 _thinknoodles wearing his YouTube slippers._
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 5\. Pins, pins, pins
@@ -103,7 +107,7 @@ A denim jacket with a play button on it was also in the box. The idea was that c
 _![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 _Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
@@ -115,10 +119,6 @@ Want to join the YouTube Creator Summit in the future? We all know that there is
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -141,15 +141,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-10-best-high-security-androidios-video-calling-tools-available-for-free-for-2024/"><u>[New] 10 Best High-Security Android/iOS Video Calling Tools Available for Free for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-no-more-distractions-expert-guide-to-removing-youtube-ads/"><u>[New] 2024 Approved No More Distractions - Expert Guide to Removing YouTube Ads</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ixing-the-no-thumbnail-issue-in-youtubes-shorts-videos-for-2024/"><u>[New] Fixing the No-Thumbnail Issue in YouTubes Shorts Videos for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-uncomplicated-technique-changing-vocal-pattern-in-winos/"><u>[New] Uncomplicated Technique Changing Vocal Pattern in WinOS</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-critical-channels-for-asmr-lovers/"><u>[Updated] Critical Channels for ASMR Lovers</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-infallible-steps-to-tiktok-bio-link-integration-without-error/"><u>[Updated] Infallible Steps to TikTok Bio-Link Integration Without Error</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-your-motorola-g24-power-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>How to Mirror Your Motorola G24 Power Screen to PC with Chromecast | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-remove-a-previously-synced-google-account-from-your-samsung-galaxy-f15-5g-by-drfone-android/"><u>In 2024, How to Remove a Previously Synced Google Account from Your Samsung Galaxy F15 5G</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-the-content-delivery-spectrum-vimeo-and-youtube-reviewed/"><u>In 2024, The Content Delivery Spectrum Vimeo & YouTube Reviewed</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/egies-for-sourcing-video-content-with-google-trends/"><u>Strategies for Sourcing Video Content with Google Trends</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/arnessing-google-trends-for-video-concept-generation/"><u>[New] Harnessing Google Trends for Video Concept Generation</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/aximizing-your-potential-is-a-joined-force-right-for-you/"><u>[New] Maximizing Your Potential Is a Joined Force Right for You?</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-streamlined-method-to-track-down-your-voice-in-youtube-threads/"><u>[Updated] 2024 Approved Streamlined Method to Track Down Your Voice in YouTube Threads</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-50-free-youtube-banners-come-see-them-all/"><u>[Updated] 50 FREE YouTube Banners - Come See Them All!</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-igtv-to-fb-exposure-guide-5-top-methods/"><u>[Updated] IGTV to FB Exposure Guide (5 Top Methods)</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-maximum-frame-quality-for-slow-motion-videos/"><u>[Updated] In 2024, Maximum Frame Quality for Slow Motion Videos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-creating-convincing-news-final-buzzes/"><u>2024 Approved Creating Convincing News Final Buzzes</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/crafting-content-for-staff-recognition-on-vimeo-for-2024/"><u>Crafting Content for Staff Recognition on Vimeo for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/how-to-fix-unresponsive-keys-on-your-microsoft-windows-computer-versions-11-7-and-8/"><u>How to Fix Unresponsive Keys on Your Microsoft Windows Computer (Versions 11, 7 & 8)</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-infiltrating-the-top-channels-in-youtube-space/"><u>In 2024, Infiltrating the Top Channels in YouTube Space</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-mastering-lock-screen-settings-how-to-enable-and-disable-on-honor-x9b-by-drfone-android/"><u>In 2024, Mastering Lock Screen Settings How to Enable and Disable on Honor X9b</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-the-ultimate-vlog-gear-list-17-edition/"><u>In 2024, The Ultimate Vlog Gear List (#17 Edition)</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-videosnatch-quality-inspector/"><u>In 2024, VideoSnatch Quality Inspector</u></a></li>
+<li><a href="https://blog-min.techidaily.com/kostenloser-4k-and-hd-videosammler-fur-mac-download-ohne-anmeldung/"><u>Kostenloser 4K & HD-Videosammler Für Mac - Download Ohne Anmeldung</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/tones-and-monikers-shorts-sound-roles/"><u>Microtones and Monikers Shorts' Sound Roles</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/quick-and-simple-guide-how-to-update-driver-software-for-your-acer-aspire-on-a-windows-machine/"><u>Quick & Simple Guide: How To Update Driver Software For Your Acer Aspire On a Windows Machine</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/what-legendaries-are-in-pokemon-platinum-on-oppo-k11-5g-drfone-by-drfone-virtual-android/"><u>What Legendaries Are In Pokemon Platinum On Oppo K11 5G? | Dr.fone</u></a></li>
 </ul></div>
 

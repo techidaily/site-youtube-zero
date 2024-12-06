@@ -1,7 +1,7 @@
 ---
 title: "[New] Detailed Explanation of YouTube's Operation After a Video Goes Live"
-date: 2024-11-26T05:19:57.234Z
-updated: 2024-11-26T17:41:27.082Z
+date: 2024-12-02T21:45:31.513Z
+updated: 2024-12-06T18:07:18.117Z
 tags:
   - ai video
   - ai youtube
@@ -29,7 +29,7 @@ You use YouTube to watch videos, post your own content, and build up a following
 This article will explain what goes on behind the scenes when you upload a video, where that video really goes, and what happens when somebody clicks play.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How Does YouTube Work
@@ -45,7 +45,7 @@ If uploading takes a long time for you it probably has nothing to do with YouTub
 ![how youtube works](https://images.wondershare.com/filmora/article-images/how-youtube-works.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 As it is owned by Google YouTube uses Google's 'Bigtable', a compressed data storage system which allows it to store the 500+ hours of video uploaded to its servers every minute. Bigtable is software, though, not hardware. YouTube and Google both have massive amounts of data and it needs to be physically housed somewhere.
@@ -53,7 +53,7 @@ As it is owned by Google YouTube uses Google's 'Bigtable', a compressed data sto
 ![videos uploaded to youtube](https://images.wondershare.com/filmora/article-images/videos-uploaded-to-youtube.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Google has Modular Data Centers all over the world where it keeps its servers. These centers could cost as much as $600 million dollars each and consume huge amounts of electricity. There are six of them in the United States, three in Europe, two in Asia, and one is South America.
@@ -67,7 +67,7 @@ If videos take a long time to load for you then there are a few things you can d
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -91,24 +91,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/-compreenas-guide-to-choosing-ideal-lenses-for-filmmaking/"><u>[New] A Compreenas Guide to Choosing Ideal Lenses for Filmmaking</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/rafting-journeys-a-comprehensive-guide-for-aspiring-travel-content-creators/"><u>[New] Crafting Journeys A Comprehensive Guide for Aspiring Travel Content Creators</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/nsuring-thumbnails-show-shorts-video-troubleshooting/"><u>[New] Ensuring Thumbnails Show Shorts Video Troubleshooting</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-inside-the-magic-box-how-does-vr-function/"><u>[New] Inside the Magic Box How Does VR Function?</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ubscriber-glory-the-play-button-and-accolades-for-maker-for-2024/"><u>[New] Subscriber Glory The Play Button & Accolades for Maker for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-blueprint-for-creating-viral-trailers-in-the-world-of-youtube/"><u>[Updated] In 2024, Blueprint for Creating Viral Trailers in the World of YouTube</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-top-8-affordable-3d-videos-players-on-pcmac/"><u>[Updated] In 2024, Top 8 Affordable 3D Videos Players on PC/Mac</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-crafting-compact-cities-for-a-sustainable-future/"><u>2024 Approved Crafting Compact Cities for a Sustainable Future</u></a></li>
-<li><a href="https://solve-howtos.techidaily.com/error-404-webpage-missing-how-to-fix-the-unavailable-site-error/"><u>Error 404: Webpage Missing – How to Fix the Unavailable Site Error</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/fixing-sound-problems-in-windows-11-a-five-step-guide/"><u>Fixing Sound Problems in Windows 11: A Five-Step Guide</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-15-pro-to-other-iphone-13-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 15 Pro To Other iPhone 13 devices? | Dr.fone</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-remove-an-airtag-from-your-apple-id-account-on-iphone-6-by-drfone-ios/"><u>In 2024, How to Remove an AirTag from Your Apple ID Account On iPhone 6?</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-simulate-gps-movement-with-location-spoofer-on-samsung-galaxy-m14-4g-drfone-by-drfone-virtual-android/"><u>In 2024, How To Simulate GPS Movement With Location Spoofer On Samsung Galaxy M14 4G? | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-prevent-cross-site-tracking-on-oneplus-nord-n30-5g-and-browser-drfone-by-drfone-virtual-android/"><u>In 2024, Prevent Cross-Site Tracking on OnePlus Nord N30 5G and Browser | Dr.fone</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/mastering-virtual-worlds-choosing-metavisors-wisely/"><u>Mastering Virtual Worlds Choosing Metavisors Wisely</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ar-payment-structures-in-youtuber-economics/"><u>Regular Payment Structures in YouTuber Economics</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ne-your-content-with-these-11-seo-strategies/"><u>Skyline Your Content with These 11 SEO Strategies</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/nfiltered-guide-to-everyday-video-content/"><u>The Unfiltered Guide to Everyday Video Content</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/y-techniques-secrets-to-excellent-tripod-use-in-vlogging/"><u>Trippy Techniques Secrets to Excellent Tripod Use in Vlogging</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-timely-tweets-triumph-in-the-youtube-landscape/"><u>[Updated] 2024 Approved Timely Tweets Triumph in the YouTube Landscape</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-optimizing-youtube-content-for-instagram-platforms/"><u>[Updated] In 2024, Optimizing YouTube Content for Instagram Platforms</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-unveiling-angles-strategic-composition-tips-for-iphone-photography/"><u>[Updated] In 2024, Unveiling Angles Strategic Composition Tips for iPhone Photography</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2023-top-10-facebook-video-players-for-2024/"><u>2023 | Top 10 Facebook Video Players for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-broadcasting-brilliance-in-final-fragments/"><u>2024 Approved Broadcasting Brilliance in Final Fragments</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-photos-from-lava-storm-5g-by-fonelab-android-recover-photos/"><u>Easy steps to recover deleted photos from Lava Storm 5G.</u></a></li>
+<li><a href="https://change-location.techidaily.com/google-play-services-wont-update-12-fixes-are-here-on-vivo-y55s-5g-2023-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Google Play Services Wont Update? 12 Fixes are Here on Vivo Y55s 5G (2023) | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-gionee-f3-pro-phone-without-pin-by-drfone-android/"><u>How to Unlock Gionee F3 Pro Phone without PIN</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-forgot-apple-iphone-8-backup-password-heres-what-to-do-by-drfone-ios/"><u>In 2024, Forgot Apple iPhone 8 Backup Password? Heres What to Do</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-journey-through-joint-video-viewing-the-youtube-way/"><u>In 2024, Journey Through Joint Video Viewing The Youtube Way</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-strategize-music-mixes-your-guide-to-youtube-playlists/"><u>In 2024, Strategize Music Mixes Your Guide to YouTube Playlists</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/r-the-art-of-video-cuts-essential-tools-for-mac-users-for-2024/"><u>Master the Art of Video Cuts Essential Tools for Mac Users for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/op-platform-trio-which-one-triumphs-vimeo-youtube-dailymotion/"><u>The Top Platform Trio Which One Triumphs – Vimeo, YouTube, Dailymotion?</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/unleash-your-creative-brand-selecting-one-of-a-kind-channel-titles/"><u>Unleash Your Creative Brand Selecting One-of-a-Kind Channel Titles</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/unlock-your-boost-mobile-apple-iphone-14-pro-max-before-the-plan-expires-by-drfone-ios/"><u>Unlock Your Boost Mobile Apple iPhone 14 Pro Max Before the Plan Expires</u></a></li>
 </ul></div>
 

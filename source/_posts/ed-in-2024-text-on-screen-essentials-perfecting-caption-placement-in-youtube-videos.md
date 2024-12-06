@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Text on Screen Essentials  Perfecting Caption Placement in YouTube Videos\""
-date: 2024-11-25T22:06:08.201Z
-updated: 2024-11-27T06:24:22.710Z
+date: 2024-12-05T17:03:07.314Z
+updated: 2024-12-06T21:45:37.439Z
 tags:
   - ai video
   - ai youtube
@@ -46,7 +46,7 @@ There are plenty of Text effects built in Filmora, you can apply motions and ani
 ![ Add Text to Video ](https://images.wondershare.com/filmora/article-images/filmora-advanced-text-edit-interface.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Open up Filmora and drag a clip into your timeline. Then, go to   **Text/Credit.**
@@ -56,10 +56,6 @@ There are plenty of Text effects built in Filmora, you can apply motions and ani
 * All of Filmora’s text options are animated – they fade, move around the screen, or perform some other type of action as they appear and disappear. To change the animation of your text select **Animation** next to **Customize**. A selection of different animations will appear. Double click on the one you want to apply to your text.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 [Check the detailed steps of how to add text to video in Filmora.](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -83,7 +79,7 @@ For the step by step tutorial of adding text to YouTube video, check [How to Add
 ![ Add Text to Video ](https://images.wondershare.com/filmora/article-images/add-text-in-vegas-pro-2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Launch Sony Vegas Movie Studio.
@@ -103,6 +99,10 @@ For professionals who are looking for a professional way to adding text to video
 * You can also edit your text using the commands that are provided in the Title Menu.
 * Save the text that you have made by clicking the file menu then choose Save As.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### How to Add Text to video in YouTube after uploading
 
 Sometimes, we have uploaded a video to YouTube and then want to add subtitles/cc to the video later. The good news is that YouTube is not only a site for videos but is also the place where you can edit your videos in an instant. As you have read, adding text and captions to the uploaded YouTube videos is just a breeze.
@@ -116,7 +116,7 @@ Of course, you can only add and edit texts and captions to the video under your 
 ![ Add Text to Video ](https://images.wondershare.com/filmora/article-images/add-text-youtube-video-editor.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 While YouTube may have already created the subtitles automatically for your video with its speech recognition technology. If it does, you will see something like Published: English (Automatic) to the right of your video. If the automatically generated subtitles is not correct, you can edit it to improve the accuracy. Select the line that needs modification to make the edits.
@@ -124,6 +124,10 @@ While YouTube may have already created the subtitles automatically for your vide
 If there is no auto-subtitles, you can choose from 3 ways to add subtitles and closed captions to the video: Upload a file, Transcribe and auto-sync and create new subtitles or CC.
 
 ![ Add Text to Video ](https://images.wondershare.com/filmora/article-images/3-ways-to-add-youtube-subtitles.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Upload a file:** upload a text transcript or timed subtitles file.
 
@@ -165,10 +169,6 @@ Try to use text to emphasize only the most important things you say.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -190,22 +190,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-clips.techidaily.com/new-building-wealth-through-video-content-revenue/"><u>[New] Building Wealth Through Video Content Revenue</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/n-2024-cutting-down-on-workload-the-ultimate-mac-mp4-apps-list/"><u>[New] In 2024, Cutting Down on Workload The Ultimate Mac MP4 Apps List</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/couring-youtubes-discussions-for-2024/"><u>[New] Scouring YouTubes' Discussions for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-top-professional-camera-choices-complete-360-guide-2023-for-2024/"><u>[New] Top Professional Camera Choices - Complete 360 Guide 2023 for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-how-to-record-good-audio-without-a-microphone-in-2024/"><u>[Updated] How to Record Good Audio Without a Microphone, In 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-how-to-use-luts-in-premiere-pro/"><u>[Updated] How To Use LUTs In Premiere Pro</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-craft-visionary-videos-from-start-to-finish-using-youtube-studio-editor/"><u>[Updated] In 2024, Craft Visionary Videos From Start to Finish Using YouTube Studio Editor</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-transformations-unlocked-the-2-most-effective-ways-to-convert-video/"><u>[Updated] In 2024, Transformations Unlocked The 2 Most Effective Ways to Convert Video</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-zooming-in-and-out-like-a-storytelling-pro-insta-tips/"><u>[Updated] In 2024, Zooming in and Out Like a Storytelling Pro Insta Tips</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-in-the-visionary-vanguard-high-subscribers/"><u>2024 Approved In the Visionary Vanguard High Subscribers</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-unlocking-online-potential-mastering-the-art-of-thumbnail-sizing/"><u>2024 Approved Unlocking Online Potential Mastering the Art of Thumbnail Sizing</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/lent-sound-devices-for-video-blogs-for-2024/"><u>Excellent Sound Devices for Video Blogs for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/aging-youtube-top-5-digital-strategies-for-brand-success/"><u>Leveraging YouTube Top 5 Digital Strategies for Brand Success</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/maximizing-entertainment-on-a-budget-in-depth-look-at-the-hisense-50h8f-4k-tv/"><u>Maximizing Entertainment on a Budget: In-Depth Look at the Hisense 50H8F 4K TV</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-9-lava-blaze-curve-5g-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>Top 9 Lava Blaze Curve 5G Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/unveiling-your-instagram-saves-tips-for-monitoring-profile-engagement/"><u>Unveiling Your Instagram Saves: Tips for Monitoring Profile Engagement</u></a></li>
-<li><a href="https://blog-min.techidaily.com/mp4wmv-movavi/"><u>무료 MP4/WMV 파일 바이트 대비 전역 웹으로 자원 구조 변환 - Movavi</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ecoding-video-potential-dslr-vs-mirrorless-innovation/"><u>[New] Decoding Video Potential DSLR vs Mirrorless Innovation</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ilmmaking-made-simple-crafting-an-impactful-youtube-subscribe-button-for-2024/"><u>[New] Filmmaking Made Simple Crafting an Impactful YouTube Subscribe Button for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-the-ultimate-picks-for-gameplay-footage-for-2024/"><u>[New] The Ultimate Picks for Gameplay Footage for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-becoming-a-master-at-the-art-of-engaging-thumbnails/"><u>[Updated] 2024 Approved Becoming a Master at the Art of Engaging Thumbnails</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-first-offset-guide-affordable-channel-buys-to-monetize/"><u>[Updated] 2024 Approved First Offset Guide Affordable Channel Buys to Monetize</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-stunning-video-capture-best-youtube-cameras-reviewed/"><u>[Updated] 2024 Approved Stunning Video Capture Best YouTube Cameras Reviewed</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-top-15-channels-for-aspiring-stock-professionals/"><u>[Updated] 2024 Approved Top 15 Channels for Aspiring Stock Professionals</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-amplify-impact-strategies-for-growing-youtube-fans-for-2024/"><u>[Updated] Amplify Impact Strategies for Growing YouTube Fans for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-exploring-virtual-landscapes-with-android-vr360-for-2024/"><u>[Updated] Exploring Virtual Landscapes with Android (VR/360) for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-link-and-leverage-your-fb-story-for-greater-impact/"><u>[Updated] In 2024, Link & Leverage Your FB Story for Greater Impact</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/t-streamline-the-most-efficient-flv-to-youtube-tools-ranked-for-2024/"><u>Direct Streamline The Most Efficient Flv-to-YouTube Tools Ranked for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/from-novice-to-pro-your-complete-screencast-journey-for-2024/"><u>From Novice to Pro Your Complete Screencast Journey for 2024</u></a></li>
+<li><a href="https://network-issues.techidaily.com/geforce-210-drivers-boosting-gaming-on-win10-platform/"><u>GeForce 210 Drivers: Boosting Gaming on WIN10 Platform</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/o-share-a-private-youtube-video-in-2024/"><u>How to Share a Private YouTube Video, In 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/installing-the-latest-enhancements-to-your-logitech-extreme-3d-pro-input-device/"><u>Installing the Latest Enhancements to Your Logitech Extreme 3D Pro Input Device</u></a></li>
+<li><a href="https://extra-information.techidaily.com/the-metaverse-multiverse-dichotomy-explained/"><u>The Metaverse-Multiverse Dichotomy Explained</u></a></li>
+<li><a href="https://win-dash.techidaily.com/ultimate-guide-installing-and-keeping-your-epson-et-3760-printer-drivers-updated-in-windows-systems/"><u>Ultimate Guide: Installing & Keeping Your Epson ET-#3760 Printer Drivers Updated in Windows Systems</u></a></li>
 </ul></div>
 

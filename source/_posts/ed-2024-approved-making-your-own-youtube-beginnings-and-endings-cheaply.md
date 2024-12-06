@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Making Your Own YouTube Beginnings & Endings Cheaply\""
-date: 2024-11-22T01:46:05.365Z
-updated: 2024-11-27T01:48:49.870Z
+date: 2024-11-29T20:33:31.111Z
+updated: 2024-12-06T21:17:32.510Z
 tags:
   - ai video
   - ai youtube
@@ -46,7 +46,7 @@ thumbnail: https://thmb.techidaily.com/271cc892260da7f0b1d8f207b3fb271cd7c70ce8f
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part1: Intros
@@ -78,7 +78,7 @@ You can create a simple intro card in **Filmora**.
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
@@ -91,7 +91,7 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -130,7 +130,7 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -154,24 +154,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-channel-growth-hacks-the-ultimate-list-of-5-youtube-strategies-for-2024/"><u>[New] Channel Growth Hacks – The Ultimate List of 5 YouTube Strategies for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ssential-guide-for-youtube-video-clips-for-2024/"><u>[New] Essential Guide for YouTube Video Clips for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-facebook-cover-makeovers-the-most-trusted-design-tools-ranked/"><u>[New] In 2024, Facebook Cover Makeovers The Most Trusted Design Tools Ranked</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-next-gen-psvr-experience-essential-upcoming-games-to-watch/"><u>[New] Next Gen PSVR Experience Essential Upcoming Games to Watch</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/uick-realignment-youtube-on-mac-display-ratio/"><u>[New] Quick Realignment YouTube on Mac Display Ratio</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/he-essential-tutorial-for-home-grown-animation-magic-for-2024/"><u>[New] The Essential Tutorial for Home-Grown Animation Magic for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/hriving-in-a-world-of-negative-video-reviews-for-2024/"><u>[New] Thriving in a World of Negative Video Reviews for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/nveiling-12-superior-cameras-for-exceptional-vlogging/"><u>[New] Unveiling 12 Superior Cameras for Exceptional Vlogging</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-budget-friendly-strategies-to-infuse-text-and-video-for-2024/"><u>[Updated] Budget-Friendly Strategies to Infuse Text & Video for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-crafting-dynamic-collab-videos-with-content-partners-on-youtube-for-2024/"><u>[Updated] Crafting Dynamic Collab Videos with Content Partners on YouTube for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-crucial-info-every-asmr-viewer-should-absorb/"><u>[Updated] Crucial Info Every ASMR Viewer Should Absorb</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-transform-videos-to-tweets-best-converters-revealed/"><u>2024 Approved Transform Videos to Tweets Best Converters Revealed</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/catalan-in-flash-daily-10-minute-lessons/"><u>Catalan in Flash: Daily 10-Minute Lessons</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/easy-steps-to-fix-a-blocked-or-unsecure-connection-issue-in-firefox/"><u>Easy Steps to Fix a Blocked or Unsecure Connection Issue in Firefox</u></a></li>
-<li><a href="https://fox-access.techidaily.com/essential-drone-shoppers-guide-crucial-factors-and-insights/"><u>Essential Drone Shopper's Guide Crucial Factors & Insights</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/improve-your-network-speed-update-the-driver-of-your-usb-30-based-gigabit-ethernet-adapter-on-windows-systems/"><u>Improve Your Network Speed: Update the Driver of Your USB 3.0 Based Gigabit Ethernet Adapter on Windows Systems</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-personal-growth-chronicles-for-youtube-audience/"><u>In 2024, Personal Growth Chronicles for YouTube Audience</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-the-pinnacle-of-macro-photography-and-cinematography/"><u>In 2024, The Pinnacle of Macro Photography and Cinematography</u></a></li>
-<li><a href="https://win-answers.techidaily.com/resolved-how-to-unstick-a-lagging-discord-livestream/"><u>Resolved: How to Unstick a Lagging Discord Livestream</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/rame-it-right-essential-composition-rules-for-youtube-filmmaking/"><u>[New] Frame It Right Essential Composition Rules for YouTube Filmmaking</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/caling-youtube-influence-a-comprerancial-guide-to-creator-studios-potential-for-2024/"><u>[New] Scaling YouTube Influence A Comprerancial Guide to Creator Studio's Potential for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-channeling-success-the-essential-elements-for-profitable-video-trailers/"><u>[Updated] 2024 Approved Channeling Success The Essential Elements for Profitable Video Trailers</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-elite-yoga-routines-youtubes-leading-fitness-sites-for-2024/"><u>[Updated] Elite Yoga Routines YouTube's Leading Fitness Sites for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-enhance-your-youtube-journey-with-analytic-know-how/"><u>2024 Approved Enhance Your YouTube Journey with Analytic Know-How</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/addressing-crash-code-0xc0000142-in-win11win7/"><u>Addressing Crash Code 0XC0000142 in WIN11/Win7</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/rt-spotify-playlist-to-youtube-5-best-tools/"><u>Convert Spotify Playlist To YouTube 5 Best Tools</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-change-your-apple-id-password-on-your-apple-iphone-14-plus-drfone-by-drfone-ios/"><u>How To Change Your Apple ID Password On your Apple iPhone 14 Plus | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-conquering-image-search-a-pathway-to-stunning-pexels-visuals/"><u>In 2024, Conquering Image Search A Pathway to Stunning Pexels Visuals</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/maximize-video-conferencing-value-discover-our-top-10-recorder-picks/"><u>Maximize Video Conferencing Value - Discover Our Top 10 Recorder Picks</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/navigating-pc-parts-with-toms-guide-to-hardware/"><u>Navigating PC Parts with Tom's Guide to Hardware</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211150662-9781958405826-re-write-your-life-ii/"><u>Re-Write Your Life II | Free Book</u></a></li>
 </ul></div>
 

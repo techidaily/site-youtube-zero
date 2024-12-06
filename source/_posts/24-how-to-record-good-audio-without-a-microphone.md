@@ -1,7 +1,7 @@
 ---
 title: "In 2024, How to Record Good Audio Without a Microphone"
-date: 2024-11-24T07:44:06.181Z
-updated: 2024-11-27T06:31:19.594Z
+date: 2024-11-30T19:41:37.270Z
+updated: 2024-12-06T21:20:20.297Z
 tags:
   - ai video
   - ai youtube
@@ -52,15 +52,15 @@ For example, your camera’s mic might be just as good as a clip-on LAV, but tha
 
 Moving your camera/smartphone physically closer to you will make it hard to include anything besides your head and shoulders in your shot, but it will get you significantly better audio.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2.Shoot Somewhere Quiet
 
 The best way to limit the amount of background noise you pick up in your sound recording is to shoot somewhere where there’s no background noise. That probably seems really basic, but it’s something a lot of people just don’t do. It’s easy to default to recording in your home office, even though it’s right next to the kitchen where your family is bustling around, or in your bedroom even though there’s a busy street right outside your window.
 
 Sometimes the best thing you can do for your audio is simply to scout out a quiet room in your house where the sound recording conditions are better. Speaking of recording conditions…
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 3\. Pick a Good Room
 
@@ -84,13 +84,13 @@ If your built-in mic is on top of your camera you can get something called a ‘
 
 ![Record better audio from wind with micromuff](https://images.wondershare.com/filmora/article-images/record-better-audio-from-wind.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 _You use the adhesive backing to attach the base velcro to your camera. The other side of the velcro has your fluff attached to the back._
 
 The only thing about a micromuff is that it costs about $30, and if you’re going to spend $30 on audio equipment then you could just buy yourself an inexpensive LAV mic. I only bring up the micromuff because it’s a very simple design you can probably DIY – you just need velcro with adhesive backing and any of the fluff-sources we just discussed.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 5\. Use a Free Audio App
 
@@ -99,6 +99,10 @@ If you’re recording on a smartphone, you can download a free app that will let
 Even if you’re not recording video from your smartphone, it might be a good idea to use your phone as your mic and record a separate audio file. You’ll be able to use an app to fine-tune your recording, and you can set your phone up closer to you the way you would an external mic while keeping your camera back a bit farther.
 
 Free audio apps: Hi-Q MP3 Voice Recorder (Android), RecForge II (Android), Smart Voice Recorder (Android), Audio Memos (iOS), and Recorder Plus (iOS).
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 6\. Do a Sound Check
 
@@ -109,7 +113,7 @@ Do you have any of your own audio tips to pass on? Leave them in the comments!
 _This topic was suggested by RS Beauty over in the forums. Thanks for the idea!_
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Polish Your YouTube Videos with Filmora
@@ -119,14 +123,10 @@ As one of the most widely used video editing software in YouTube video editing, 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -149,20 +149,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-elevate-your-instagram-aesthetic-with-new-and-old-filters/"><u>[New] 2024 Approved Elevate Your Instagram Aesthetic with New and Old Filters</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/est-8-youtube-thumbnail-grabbers-you-should-know/"><u>[New] Best 8 YouTube Thumbnail Grabbers You Should Know</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-deciphering-youtubes-profit-for-a-mil-of-viewers-for-2024/"><u>[New] Deciphering YouTube’s Profit for A Mil of Viewers for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/n-2024-an-exclusive-list-of-heartwarming-weddings-youtube-and-vimeo-edition/"><u>[New] In 2024, An Exclusive List of Heartwarming Weddings - Youtube & Vimeo Edition</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/n-2024-craft-compelling-content-essential-youtube-short-video-edits/"><u>[New] In 2024, Craft Compelling Content Essential Youtube Short Video Edits</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-dominate-digital-space-secure-a-chain-of-1k-fansmonth/"><u>[New] In 2024, Dominate Digital Space Secure a Chain of 1K Fans/Month</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-streamlining-zoom-a-chromebook-guide-for-2024/"><u>[New] Streamlining Zoom A Chromebook Guide for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-the-art-of-video-integration-youtube-meets-microsoft-powerpoint/"><u>[Updated] 2024 Approved The Art of Video Integration YouTube Meets Microsoft PowerPoint</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-create-harmonious-hits-a-step-by-step-guide-to-making-youtube-playlists-online-and-app/"><u>[Updated] In 2024, Create Harmonious Hits A Step-by-Step Guide to Making YouTube Playlists Online & App</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-unveiling-the-full-potential-of-powerdirector-24/"><u>[Updated] In 2024, Unveiling the Full Potential of PowerDirector '24</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-unleash-video-magic-top-7-royalty-free-sounds-for-editors/"><u>2024 Approved Unleash Video Magic Top 7 Royalty-Free Sounds for Editors</u></a></li>
-<li><a href="https://win-fantastic.techidaily.com/dynamisches-windows-11-speichermedien-cloning-keine-formatierung-notwendig-schritt-fur-schritt-guide/"><u>Dynamisches Windows-11 Speichermedien Cloning: Keine Formatierung Notwendig – Schritt-Für-Schritt-Guide</u></a></li>
-<li><a href="https://video-capture.techidaily.com/elevate-your-farm-adventure-uncovering-stardews-top-7-mods-for-2024/"><u>Elevate Your Farm Adventure Uncovering Stardew's Top 7 Mods for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/novice-to-notable-top-course-recommendations-for-youtubers/"><u>From Novice to Notable Top Course Recommendations for YouTubers</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/how-to-securely-capture-web-series-every-time-you-watch/"><u>How to Securely Capture Web Series Every Time You Watch</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-content-strategy-mastery-selecting-top-rank-trackers-uncovered/"><u>[New] 2024 Approved Content Strategy Mastery - Selecting Top Rank Trackers Uncovered</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-premiere-pros-approach-to-clearing-iphone-video-overexposure/"><u>[New] 2024 Approved Premiere Pro's Approach to Clearing iPhone Video Overexposure</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/omic-corner-best-funny-content-on-the-planet-web-for-2024/"><u>[New] Comic Corner Best Funny Content on the Planet Web for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-creating-compelling-valorant-thumbnails-for-digital-viewers/"><u>[New] In 2024, Creating Compelling Valorant Thumbnails for Digital Viewers</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/haring-stories-that-resonate-with-a-digital-audience-yt-for-2024/"><u>[New] Sharing Stories that Resonate with a Digital Audience YT. For 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ocial-media-showdown-continues-the-ongoing-debate-on-igtv-and-youtube-for-2024/"><u>[New] Social Media Showdown Continues The Ongoing Debate on IGTV and YouTube for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-hot-tunes-essential-background-scores-for-viral-yt-shorts/"><u>[Updated] 2024 Approved Hot Tunes Essential Background Scores For Viral YT Shorts</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-maximize-visibility-and-views-on-youtube/"><u>[Updated] 2024 Approved Maximize Visibility and Views on YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-premier-popularity-prognosticator-for-video-charts/"><u>[Updated] 2024 Approved Premier Popularity Prognosticator for Video Charts</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-the-editors-edge-advanced-strategies-to-master-in-vimeo-trimming/"><u>[Updated] The Editor's Edge Advanced Strategies to Master in Vimeo Trimming</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-mastering-subscription-the-art-of-positive-engagement/"><u>2024 Approved Mastering Subscription The Art of Positive Engagement</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-quick-guide-to-free-youtube-closure-creation/"><u>2024 Approved Quick Guide to Free YouTube Closure Creation</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-quick-tunes-explore-video-music-characters/"><u>2024 Approved Quick Tunes Explore Video Music Characters</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/analyzing-apples-cutting-edge-ipad-pro-a-new-era-beyond-the-macbook-alternative/"><u>Analyzing Apple's Cutting-Edge iPad Pro: A New Era Beyond the MacBook Alternative</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-resolve-trackpad-malfunctions-on-windows-tips-and-tricks-for-laptops/"><u>How to Resolve TrackPad Malfunctions on Windows: Tips & Tricks for Laptops</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-how-to-illuminate-a-guide-to-great-vlog-images/"><u>In 2024, How to Illuminate A Guide to Great Vlog Images</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/livestream-luminaries-clash/"><u>Livestream Luminaries Clash</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/speaker-recorder-evaluation-tips/"><u>Speaker Recorder Evaluation Tips</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/y-realignment-youtube-videos-for-mac-views-for-2024/"><u>Speedy Realignment YouTube Videos for MAC Views for 2024</u></a></li>
 </ul></div>
 
