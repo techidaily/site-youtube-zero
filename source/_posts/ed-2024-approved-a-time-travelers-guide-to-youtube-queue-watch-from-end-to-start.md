@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  A Time Traveler’s Guide to YouTube Queue  Watch From End to Start\""
-date: 2024-11-30T22:42:29.381Z
-updated: 2024-12-06T19:03:26.668Z
+date: 2024-12-11T19:51:51.420Z
+updated: 2024-12-12T17:18:01.214Z
 tags:
   - ai video
   - ai youtube
@@ -32,7 +32,7 @@ So, keep reading to learn how to reverse a YouTube playlist so you can watch the
 Below we've provided four different solutions to help you reverse your YouTube playlist on your computer:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Using Chrome Web Extension
@@ -45,6 +45,10 @@ Here's how to install the "Iridium for YouTube" extension on your Chrome browser
 Step 1: In the first step, launch a browser on your computer and click the three dots (ellipsis icon) in the top-right corner of the screen. Scroll down, select "More Tools," and click Extensions."
 
 ![access google web store](https://images.wondershare.com/filmora/article-images/accessing-google-web-store.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step 2:
 
@@ -70,7 +74,15 @@ Step 5: Click the "Play All" option in the details section of the playlist and c
 
 ![set iridim for youtube](https://images.wondershare.com/filmora/article-images/setting-iridium-for-youtube-to-reverse-playlist.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 That's about it. You will now be able to watch a YouTube playlist in reverse order.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Using The Third Website
 
@@ -84,11 +96,11 @@ Step 2: In the next step, open a new tab and visit the ["Playlist.Tools"](https:
 
 ![reverse youtube playlist 3rd part](https://images.wondershare.com/filmora/article-images/reversing-youtube-playlist-using-third-party-website.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step 3: Finally, click the "Sort" icon and select descending order to reverse your playlist. You can always return to the original sequence by clicking the "Original Sequence" option in the top right corner of the screen.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Changing the Ordering in Settings
 
@@ -101,10 +113,6 @@ Step 2: Hover over the video, and you will see two horizontal lines next to it. 
 You can also utilize the "Sort" option to reverse the playlist. To do so, click "Sort" at the top of the playlist above the videos and select "Date Published (Oldest)" to change the order.
 
 ![reverse youtube playlist order](https://images.wondershare.com/filmora/article-images/sorting-the-playlist-order-to-reverse-it.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## A Bonus Tip for YouTube Creator: Make Your Own YouTube Channel Trailer
 
@@ -124,19 +132,11 @@ Step 3: Scroll down on your channel's dashboard, select a video, and click the t
 
 ![youtube playlist reverse order](https://images.wondershare.com/filmora/article-images/adding-playlist-to-private-playlist-to-reverse-order.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Next, provide a name, set the privacy settings to "Private," and click "Create."
 
 Step 4: In the final step, head to the Playlist tab, click "View Full Playlist" to open the new playlist, and click the "three dots" in the details area on the left. Next, select "Playlist Settings" and toggle the button next to "Add new videos to top of playlist" to enable it.
 
 You can now add more videos to your playlist, and each one will be added to the top. This method helps you arrange the YouTube playlist as you desire.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## The Bottom Line
 
@@ -165,22 +165,24 @@ So, keep reading to learn how to reverse a YouTube playlist so you can watch the
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-gaming-income-optimization-tips/"><u>[New] 2024 Approved Gaming Income Optimization Tips</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ismantle-bots-elevate-youtube-watch-time/"><u>[New] Dismantle Bots, Elevate YouTube Watch Time</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/mmediate-hit-list-top-10-videos-watched-first-hour-for-2024/"><u>[New] Immediate Hit List Top 10 Videos Watched First Hour for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ookie-riches-profitable-sites-for-beginnere-buyouts/"><u>[New] Rookie Riches Profitable Sites for Beginner'e Buyouts</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-tale-transmogrifiers-guild-elite-eight/"><u>[Updated] 2024 Approved Tale Transmogrifiers Guild – Elite Eight</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-top-11-budget-friendly-recorders-for-vloggers/"><u>[Updated] 2024 Approved Top 11 Budget-Friendly Recorders for Vloggers</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-converting-live-streamed-youtubes-into-animated-gif-formats/"><u>[Updated] Converting Live Streamed YouTubes Into Animated GIF Formats</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-the-ultimate-guide-to-transforming-your-youtube-channel-via-wirecast/"><u>[Updated] In 2024, The Ultimate Guide to Transforming Your Youtube Channel via WireCast</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-top-earning-youtube-star-globally/"><u>[Updated] In 2024, Top Earning YouTube Star Globally</u></a></li>
-<li><a href="https://location-fake.techidaily.com/10-best-fake-gps-location-spoofers-for-vivo-y27s-drfone-by-drfone-virtual-android/"><u>10 Best Fake GPS Location Spoofers for Vivo Y27s | Dr.fone</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-boost-your-budget-a-straightforward-triple-step-method-to-monitor-youtube-revenue/"><u>2024 Approved Boost Your Budget A Straightforward Triple-Step Method to Monitor YouTube Revenue</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/capture-anything-you-can-scroll-through-the-ultimate-method-for-cross-device-screenshots-using-movavi-tools/"><u>Capture Anything You Can Scroll Through: The Ultimate Method for Cross-Device Screenshots Using Movavi Tools</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/constructing-the-ideal-home-computer-for-advanced-video-editing/"><u>Constructing the Ideal Home Computer for Advanced Video Editing</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-do-lava-yuva-2-pro-screen-sharing-drfone-by-drfone-android/"><u>How To Do Lava Yuva 2 Pro Screen Sharing | Dr.fone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-essential-10-history-youtube-feeds-for-learners/"><u>In 2024, Essential 10 History YouTube Feeds For Learners</u></a></li>
-<li><a href="https://techtrends.techidaily.com/step-by-step-guide-how-to-create-an-engaging-pinned-conversation-on-instagram/"><u>Step-by-Step Guide: How to Create an Engaging Pinned Conversation on Instagram</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/outube-yield-comparing-channels-for-peak-performance/"><u>The YouTube Yield Comparing Channels for Peak Performance</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-digital-artisans-gathering-haven/"><u>[New] 2024 Approved Digital Artisans Gathering Haven</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-immersion-station-youtubes-10-best-virtual-reality-films/"><u>[New] 2024 Approved Immersion Station YouTube's 10 Best Virtual Reality Films</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-discover-the-triple-champion-phones-for-high-res-video/"><u>[New] Discover the Triple Champion Phones for High-Res Video</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-best-9-free-youtube-logo-makers/"><u>[New] In 2024, Best 9 Free YouTube Logo Makers</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/itchen-kings-and-queen-top-youtube-gastronomes/"><u>[New] Kitchen Kings & Queen Top YouTube Gastronomes</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ailoring-titles-and-tags-for-top-youtube-performance/"><u>[New] Tailoring Titles and Tags for Top YouTube Performance</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-a-comprehensive-list-of-top-10-video-communication-apps-for-2024/"><u>[Updated] A Comprehensive List of Top 10 Video Communication Apps for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-bridging-soundscapes-and-visuals-essentials-for-innovative-asmr-videos-for-2024/"><u>[Updated] Bridging Soundscapes & Visuals – Essentials for Innovative ASMR Videos for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-audience-centric-video-structure-chapter-addition-for-maximum-viewership-on-youtube/"><u>[Updated] In 2024, Audience-Centric Video Structure Chapter Addition for Maximum Viewership on YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-best-camera-stabilizers-for-youtube/"><u>[Updated] In 2024, Best Camera Stabilizers for YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-crafting-engaging-life-journeys-in-video-formats/"><u>[Updated] In 2024, Crafting Engaging Life Journeys in Video Formats</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-premium-headsets-for-next-gen-drone-pilots/"><u>[Updated] Premium Headsets for Next-Gen Drone Pilots</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/4-easy-ways-for-your-poco-c51-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>4 Easy Ways for Your Poco C51 Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-making-money-on-youtube-a-guide/"><u>In 2024, Making Money on YouTube A Guide</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-step-by-step-guide-to-custom-youtube-thumbnail-sizes/"><u>In 2024, Step-by-Step Guide to Custom YouTube Thumbnail Sizes</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-unlocking-full-potential-zdsoft-screen-recorder/"><u>In 2024, Unlocking Full Potential ZDSoft Screen Recorder</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/new-2024-approved-what-should-be-considered-to-choose-a-nice-gopro-for-vlogging/"><u>New 2024 Approved What Should Be Considered to Choose A Nice GoPro for Vlogging?</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ct-pixels-selecting-best-cameras-for-yt-for-2024/"><u>Perfect Pixels Selecting Best Cameras For YT for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/unleash-the-power-of-alienware-m18-steep-discounts-post-labor-day-on-this-formidable-gaming-machine/"><u>Unleash the Power of Alienware M18: Steep Discounts Post-Labor Day on This Formidable Gaming Machine</u></a></li>
 </ul></div>
 

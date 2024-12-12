@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Capture It Right  Essential Camera Lenses for Video Blogging\""
-date: 2024-12-04T21:02:45.995Z
-updated: 2024-12-06T18:54:00.800Z
+date: 2024-12-11T19:07:29.840Z
+updated: 2024-12-12T22:32:51.316Z
 tags:
   - ai video
   - ai youtube
@@ -61,10 +61,6 @@ With standard lenses or normal lenses, you won’t get the stretched out objects
 
 Out of all the other ranges in focal lengths, telephoto lenses will appear the most zoomed in. This can be beneficial for the shooter who wants to get a closer shot of a scene without having to physically be in close proximity to the scene. Objects that are further away in the background also appear larger and closer than they would appear on wide-angle or standard lenses.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Vlogging With Each Focal Length Group
 
 You can get your talking head footage using lenses from any of the three focal length groups. Depending on how you plan to vlog most of the time, though, one of the three focal lengths might be more suitable for you.
@@ -87,6 +83,10 @@ As telephoto lenses are even more zoomed in, you’ll need to be even further aw
 
   In the above video, Marcos Rocha compares different focal lengths for talking head videos. Which focal length range do you like the look of?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Crop Factor
 
 Focal lengths in camera lenses are measured in millimeters. You can vlog yourself handheld with a 24mm lens on a camera with a full-frame sensor (the sensor is the piece of hardware inside your camera that turns the light it receives into a digital image). But if you use a 24mm lens on a camera with a smaller sensor, like an APS-C sensor or even smaller Micro 4/3 sensor, more of you will get cropped out (see below).
@@ -94,7 +94,7 @@ Focal lengths in camera lenses are measured in millimeters. You can vlog yoursel
  ![Crop Factor](https://images.wondershare.com/filmora/article-images/camera-lenses-crop-factor.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
@@ -119,12 +119,16 @@ This table shows you the focal lengths needed to achieve the same shot between c
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
 
  ![Camera lenses Aperture Range](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture-range.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Because larger aperture lenses let more light in, they need a shorter time for cameras to compose an image. This is why larger aperture lenses are also called “fast” lenses.
 
@@ -146,10 +150,6 @@ But do you even need a fast lens?
 * Moving subjects more likely to get out of focus when shooting with a large aperture
 * Better continuous autofocus performance needed when shooting moving subjects with a large aperture
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Optical Image Stabilization
 
 Finally, you’ll have to decide whether or not you want your lens to have built-in optical image stabilization (OIS).
@@ -165,7 +165,7 @@ If, however, you are shooting most of your vlogs on a tripod, you won’t need a
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -189,20 +189,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/ut-to-perfection-premier-android-editing-software-for-2024/"><u>[New] Cut to Perfection Premier Android Editing Software for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-exploring-new-frontiers-with-vr-game-engines/"><u>[New] Exploring New Frontiers with VR Game Engines</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/n-2024-essential-quick-steps-for-effective-double-take-filming/"><u>[New] In 2024, Essential Quick Steps for Effective Double Take Filming</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/astering-vlogs-the-finest-camera-selections-of-the-year/"><u>[New] Mastering Vlogs The Finest Camera Selections of the Year</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-seamless-techniques-for-effective-iphone-screen-captures-for-2024/"><u>[New] Seamless Techniques for Effective Iphone Screen Captures for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-channeling-success-the-essential-elements-for-profitable-video-trailers/"><u>[Updated] 2024 Approved Channeling Success The Essential Elements for Profitable Video Trailers</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-the-freedom-of-filmmaking-top-android-video-editing-apps-for-2024/"><u>[Updated] The Freedom of Filmmaking Top Android Video Editing Apps for 2024</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/2024-approved-action-reimagined-deep-dive-into-the-t5-thievery-review/"><u>2024 Approved Action Reimagined Deep Dive Into the T5 Thievery Review</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-making-sense-of-creative-commons-licensing-and-usage/"><u>2024 Approved Making Sense of Creative Commons Licensing & Usage</u></a></li>
-<li><a href="https://common-error.techidaily.com/effective-solutions-to-fix-windows-update-error-code-0x80240017/"><u>Effective Solutions to Fix Windows Update Error Code 0X80240017</u></a></li>
-<li><a href="https://driver-download.techidaily.com/improve-network-performance-with-realtek-driver-update-for-windows-10-download/"><u>Improve Network Performance with Realtek Driver Update for Windows 10 [Download]</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-pro-level-7-dslrs-that-transform-your-digital-storytelling/"><u>In 2024, Pro-Level 7 DSLRs That Transform Your Digital Storytelling</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-step-by-step-to-subscription-the-youtube-partner-program-route/"><u>In 2024, Step-by-Step to Subscription The YouTube Partner Program Route</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/updated-2024-approved-make-movies-like-a-pro-16-free-and-easy-to-use-tools/"><u>Updated 2024 Approved Make Movies Like a Pro 16 Free and Easy-to-Use Tools</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/voice-recorder-mac-5-best-voice-recorders-for-mac-devices/"><u>Voice Recorder Mac - 5 Best Voice Recorders for Mac Devices</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-efficient-ways-to-delete-previewed-content-from-youtubes-queue/"><u>[New] 2024 Approved Efficient Ways to Delete Previewed Content From YouTube's Queue</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-efficiently-isolate-key-moments-in-youtube-footage/"><u>[New] 2024 Approved Efficiently Isolate Key Moments in YouTube Footage</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-enhance-your-video-with-these-premium-free-audio-stores/"><u>[New] 2024 Approved Enhance Your Video with These Premium, Free Audio Stores</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-market-precision-strategic-package-interpretations/"><u>[Updated] Market Precision Strategic Package Interpretations</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-voice-over-basics-from-script-to-screen/"><u>2024 Approved Voice-Over Basics From Script to Screen</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/deciphering-disk-type-efficient-hdd-vs-ssd-discovery-techniques/"><u>Deciphering Disk Type: Efficient HDD vs SSD Discovery Techniques</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-against-gravity-reversing-your-vids/"><u>Going Against Gravity Reversing Your Vids</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-xiaomi-redmi-12-drfone-by-drfone-virtual-android/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Xiaomi Redmi 12? | Dr.fone</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/passare-da-vhs-a-dvd-un-passo-passo-guidato-per-la-conversione-su-computer/"><u>Passare Da VHS a DVD: Un Passo-Passo Guidato per La Conversione Su Computer</u></a></li>
 </ul></div>
 

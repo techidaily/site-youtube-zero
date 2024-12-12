@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Old Hollywood Techniques for Modern Filmmakers"
-date: 2024-12-02T20:47:45.970Z
-updated: 2024-12-06T17:17:18.361Z
+date: 2024-12-08T18:12:38.067Z
+updated: 2024-12-12T18:11:27.159Z
 tags:
   - ai video
   - ai youtube
@@ -42,7 +42,7 @@ Here are some [vintage-style video ideas](https://tools.techidaily.com/wondersha
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What to Consider When Shooting a Vintage Video?
@@ -70,7 +70,7 @@ Lots of black points in the video are not ideal for a vintage effect. The suitab
 Bringing down the saturation levels is another tip to create a vintage effect. The old videos are also absent in bright colors. Don't go too crazy about reduction as 20%-30% saturation level is more than enough.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Create a Stunning Vintage Video?
@@ -85,6 +85,10 @@ What you need to get started as both beginner and professional is Wondershare Fi
 
 ![Vintage Videos](https://images.wondershare.com/filmora/article-images/vintage-videos-1.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The very step is to add the video by clicking the + icon. We have added the three **sample videos** from the library of Wondershare Filmora itself. Adjust them in the timeline as per your requirements.
 
 After doing all the essential editing functions, click on the **Effects tab** given at the upper-left corner. Simply type the word Old in the Search tab.
@@ -95,23 +99,19 @@ The Old Video filter will immediately appear in the list of filters. Tap the **"
 
 ![Vintage Videos](https://images.wondershare.com/filmora/article-images/vintage-videos-2.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 The second step is to apply the Black & White filters. Go to the **Effects** tab and explore five Black & White filters available. Each of these filters is quite different and must be applied accordingly. Check the aesthetic of your video clip before any filter application to retro videos.
 
 **Step 3:** Add the Sun Kissed or Sepia Tone Rise Filters to the video clip
 
 ![Vintage Videos](https://images.wondershare.com/filmora/article-images/vintage-videos-3.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 There are various other categories of filters you can apply, such as Retro, Sun Kissed, and Sepia Tone, etc. The features of Filmora also present several subcategories such as Faux Film or Shake.
 
 ![Vintage Videos](https://images.wondershare.com/filmora/article-images/vintage-videos-4.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 On the other hand, the subcategory of Sepia Tone features Sun-Kissed & Rise Filters to stimulate sepia-tinted texture and recreate the old visual style. The Sun Kissed filter presents brown and red colors to give that warm image atmosphere.
 
@@ -123,10 +123,6 @@ Now, you need to desaturate the video clip with Ash & Willow filters. We have ty
 
 ![Vintage Videos](https://images.wondershare.com/filmora/article-images/vintage-videos-6.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Then, we have combined the black & white filter with an overlay of Film Reel Horizontal. It will help you sell the effect and make the video look more authentic. However, the only application of Black & White or Ash & Willow filters is not going to make any creative thing in terms of vintage videos. You have to mix overlays with features such as Random Dust or Film Reel Horizontal.
 
 **Step 5:** Apply Black & White and Old Film Color Correction Presets to the video
@@ -134,6 +130,10 @@ Then, we have combined the black & white filter with an overlay of Film Reel Hor
 You can also access the Advanced color correction Tab of Filmora from the Color button. It also features Preset and Adjusts Tabs to desaturate footage. The Preset presents a variety of options, including Black & White and Old Film. You just need to right-click the particular preset and select the Apply option.
 
 ![Vintage Videos](https://images.wondershare.com/filmora/article-images/filmora9-advance-color-correction.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Tips to Make Your Vintage Videos Stand Out
 
@@ -175,17 +175,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/-easy-youtube-audio-extraction-methods-free-and-secure-for-2024/"><u>[New] 3 Easy YouTube Audio Extraction Methods Free & Secure for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-in-2024-foodie-frenzy-tiktoks-most-shared-meals-and-munchies/"><u>[New] In 2024, Foodie Frenzy TikTok's Most Shared Meals and Munchies</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ink-length-limit-check-out-these-5-youtube-minisizers-for-2024/"><u>[New] Link Length Limit? Check Out These 5 YouTube Minisizers for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-direct-guide-to-modifying-macs-default-snapshots/"><u>[Updated] 2024 Approved Direct Guide to Modifying Mac's Default Snapshots</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-the-essence-of-earnings-a-3-step-expedient-to-measure-your-youtube-profitability/"><u>[Updated] 2024 Approved The Essence of Earnings A 3-Step Expedient to Measure Your YouTube Profitability</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-leveraging-youtubes-cc-for-high-quality-video-creation/"><u>[Updated] Leveraging YouTube’s CC for High-Quality Video Creation</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/beijings-frost-touched-games-highlights-from-2022/"><u>Beijing's Frost-Touched Games, Highlights From 2022</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/did-your-iphone-15-passcode-change-itself-unlock-it-now-by-drfone-ios/"><u>Did Your iPhone 15 Passcode Change Itself? Unlock It Now</u></a></li>
-<li><a href="https://fox-access.techidaily.com/dissecting-alternatives-to-the-well-known-vlc-for-2024/"><u>Dissecting Alternatives to the Well-Known VLC for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-unlimited-christmas-classics-9-films-available-for-no-charge/"><u>In 2024, Unlimited Christmas Classics 9 Films Available for No Charge</u></a></li>
-<li><a href="https://review-topics.techidaily.com/mkv-to-xiaomi-redmi-13c-5g-converter-convert-mkv-for-xiaomi-redmi-13c-5g-by-aiseesoft-video-converter-play-mkv-on-android/"><u>MKV to Xiaomi Redmi 13C 5G converter - convert MKV for Xiaomi Redmi 13C 5G</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/soundbots-newest-creation-the-sb210-top-notch-winter-audio-experience-when-active/"><u>Soundbot's Newest Creation, The SB210 - Top Notch Winter Audio Experience When Active</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/our-shorts-are-here-no-more-waiting-game/"><u>[New] Your Shorts Are Here – No More Waiting Game</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-maximizing-engagement-ideal-youtube-thumbnail-dimensions/"><u>[Updated] 2024 Approved Maximizing Engagement Ideal YouTube Thumbnail Dimensions</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-compliance-in-recording-video-streams-on-youtube-for-2024/"><u>[Updated] Compliance in Recording Video Streams on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-editcanvas-solutions/"><u>[Updated] EditCanvas Solutions</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-a-step-by-step-approach-to-professional-video-sharing/"><u>[Updated] In 2024, A Step-by-Step Approach to Professional Video Sharing</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-nextgen-android-for-immersive-3d-viewing/"><u>[Updated] In 2024, NextGen Android for Immersive 3D Viewing</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-perfecting-live-broadcasts-with-streamlabs-obs-tips/"><u>[Updated] Perfecting Live Broadcasts with Streamlabs OBS Tips</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-a-guide-to-infusing-movement-into-images-in-illustrator/"><u>2024 Approved A Guide to Infusing Movement Into Images in Illustrator</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-beyond-mainstream-a-list-of-6-exclusive-icon-and-logo-providers/"><u>2024 Approved Beyond Mainstream A List of 6 Exclusive Icon & Logo Providers</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/downloading-insta-videos-in-two-simple-ways-for-2024/"><u>Downloading Insta Videos in Two Simple Ways for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/t-tips-on-jump-cuts-for-dynamic-video-editing/"><u>Expert Tips on Jump Cuts for Dynamic Video Editing</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/get-cold-pay-less-secure-arctics-high-efficiency-liquid-freezer-ii-aioldii-for-only-74-bucks/"><u>Get Cold, Pay Less: Secure Arctic's High-Efficiency Liquid Freezer II (AIOLDII) for Only 74 Bucks</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/navigating-safe-mode-and-pip-features-on-iphone-ipad-and-macos-for-2024/"><u>Navigating Safe Mode and PIP Features on iPhone, iPad & MacOS for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ize-engagement-and-analytics-harnessing-tubebuddys-insights-for-2024/"><u>Optimize Engagement & Analytics - Harnessing TubeBuddy's Insights for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ssional-level-youtube-editing-techniques-you-need-to-know/"><u>Professional-Level Youtube Editing Techniques You Need To Know</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/top-tips-for-zoom-on-chrome-devices-for-2024/"><u>Top Tips for Zoom on Chrome Devices for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/ultimate-road-watch-select-automotive-cams/"><u>Ultimate Road Watch Select Automotive Cams</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ling-video-capabilities-dslr-or-mirrorless-in-2024/"><u>Unveiling Video Capabilities DSLR or Mirrorless, In 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>Ways to trade pokemon go from far away On Apple iPhone X? | Dr.fone</u></a></li>
 </ul></div>
 

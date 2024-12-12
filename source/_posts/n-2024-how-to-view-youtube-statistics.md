@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, How to View YouTube Statistics"
-date: 2024-12-02T20:07:49.209Z
-updated: 2024-12-06T21:56:06.941Z
+date: 2024-12-06T17:40:50.218Z
+updated: 2024-12-12T21:55:49.588Z
 tags:
   - ai video
   - ai youtube
@@ -41,7 +41,7 @@ The information available for each video includes how many new subscribers it at
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Making Better YouTube Videos with Filmora to Get More Views
@@ -51,13 +51,13 @@ As one of the best video editing software for YouTube, [Filmora](https://tools.t
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 [![Get free YouTube Subscribers Guide Banner](https://images.wondershare.com/filmora/article-images/get-free-youtube-subs-banner.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to View Your YouTube Statistics
@@ -67,6 +67,10 @@ In order to view your YouTube Analytics, sign in to your YouTube account and go 
 In order to check which of your videos are performing the best, click on **Watch time** under **Watch time reports**. At the top of the page there’ll be a graph of your watch time in general, and if you scroll down you’ll see a list of your videos ranked by watch time. The best performing ones will be at the top and, to see more stats related to these high-performing videos, simply click on their titles. Afterwards, you’ll be able to click around the different sections in your Analytics and see reports relating to the specific video you clicked on.
 
 The two main types of analytics reports are Watch Time Reports and Interaction Reports.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1. Interpreting YouTube Watch Time Reports
 
@@ -81,10 +85,6 @@ Alongside watch time you can see the average duration individual viewers are wat
 In the watch time reports for individual videos, you will be able to see data on where your views are coming from and which demographics are watching the most. Where your viewers are watching, in terms of desktop or mobile, is also interesting data that is available in this section.
 
 Click here for more tips on[increasing your views](https://www.filmora.io/community-blog/12-proven-ways-to-increase-youtube-views-315.html).
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2. Interpreting YouTube Interaction Reports
 
@@ -110,6 +110,10 @@ Interaction reports can be broken down into several different reports that can h
 
 **7\. 360 heat map reports:** A heat map report works specifically with 360° videos if you are choosing to engage your audience with this type of content. Viewing YouTube video statistics for 360° heat maps will help to show the areas on your video that viewers are most interested in.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to View Other Peoples YouTube Statistics
 
 If you want to check out the statistics of rival YouTube channels ([including the most subscribed channels on YouTube](https://www.filmora.io/community-blog/youtube-subscriber-chart---the-5-most-subscribed-youtube-channels-320.html)), or channels you’re a fan of, try using [Social Blade](http://www.socialblade.com). Social Blade is one of the most trusted sources of YouTube data, and it may actually be easier to check your own basic stats there than in the Creator Studio sometimes due to their simple layout. To get started all you need to do is type the name of any YouTube channel into the search bar. You’ll be able to see reports on daily views, channel growth, and even estimated ad revenue ([learn more about how to view a channel's ad revenue here](https://www.filmora.io/community-blog/youtube-view-calculators---calculate-youtube-money%21-322.html)).
@@ -117,10 +121,6 @@ If you want to check out the statistics of rival YouTube channels ([including th
 Now that you know how to view YouTube statistics, what will you do with them?
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -143,18 +143,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-clearer-streams-youtube-video-borderless-adjustment/"><u>[New] 2024 Approved Clearer Streams YouTube Video Borderless Adjustment</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/reating-compelling-sports-content-from-the-ground-up/"><u>[New] Creating Compelling Sports Content From the Ground Up</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ow-to-make-your-youtube-animated-subscribe-button-easily-with-filmora-for-2024/"><u>[New] How to Make Your YouTube Animated Subscribe Button Easily With Filmora for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-sharpen-your-videography-skills-converting-standard-definition-to-hdr-excellence/"><u>[New] Sharpen Your Videography Skills Converting Standard Definition to HDR Excellence</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-effortless-pc-sound-logging-with-x-recorder-software/"><u>[Updated] 2024 Approved Effortless PC Sound Logging with X-Recorder Software</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-rallying-towards-partnership-reach-the-critical-10k-view-target-quickly/"><u>2024 Approved Rallying Towards Partnership Reach the Critical 10K View Target Quickly</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/te-your-watchlist-experience-with-youtubes-av1-settings/"><u>Elevate Your Watchlist Experience with YouTube's AV1 Settings</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/harnessing-iphone-downloads-top-podcast-strategies/"><u>Harnessing iPhone Downloads Top Podcast Strategies</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-demystifying-youtubes-keyword-power-play/"><u>In 2024, Demystifying YouTube's Keyword Power Play</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-synergistic-videos-to-skyrocket-your-follower-count/"><u>In 2024, Synergistic Videos to Skyrocket Your Follower Count</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211455180-9781956198355-the-practitioner-handbook-for-spiritual-mind-healing-4th-ed/"><u>The Practitioner Handbook for Spiritual Mind Healing (4th ed.) | Free Book</u></a></li>
-<li><a href="https://win-able.techidaily.com/troubleshoot-and-fix-persistent-crashes-of-black-desert-on-your-computer/"><u>Troubleshoot & Fix: Persistent Crashes of Black Desert on Your Computer</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/1723014046394-troubleshooting-disconnects-in-fallout-76-for-windows-users-get-back-online/"><u>Troubleshooting Disconnects in Fallout 76 for Windows Users – Get Back Online</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-skyrocket-visibility-mastering-google-analytics-for-youtubers/"><u>[New] 2024 Approved Skyrocket Visibility Mastering Google Analytics for YouTubers</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/haracters-that-captivate-key-growth-strategies-for-2024/"><u>[New] Characters That Captivate Key Growth Strategies for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nnovation-hub-for-youtube-gurus/"><u>[New] Innovation Hub for YouTube Gurus</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-discover-the-best-15-youtube-science-think-tanks/"><u>[Updated] In 2024, Discover the Best 15 YouTube Science Think Tanks</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-views-that-pay-the-bills-the-youtube-metric/"><u>2024 Approved Views That Pay the Bills The Youtube Metric</u></a></li>
+<li><a href="https://fox-that.techidaily.com/easy-steps-to-correct-camera-distortion-in-whatsapp-video-calls/"><u>Easy Steps to Correct Camera Distortion in WhatsApp Video Calls</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/exploring-hardware-innovations-with-toms-technological-review/"><u>Exploring Hardware Innovations with Tom's Technological Review</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ssing-video-magic-channel-creation-wizardry/"><u>Harnessing Video Magic Channel Creation Wizardry</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/in-2024-best-online-vimeo-video-downloaders/"><u>In 2024, Best Online Vimeo Video Downloaders</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-fix-icloud-lock-from-your-apple-iphone-11-pro-max-and-ipad-by-drfone-ios/"><u>In 2024, How to fix iCloud lock from your Apple iPhone 11 Pro Max and iPad</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-the-best-8-vpn-hardware-devices-reviewed-on-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, The Best 8 VPN Hardware Devices Reviewed On Apple iPhone 7 Plus | Dr.fone</u></a></li>
+<li><a href="https://discover-excellent.techidaily.com/iphone-update-process-hangs-solving-itunes-download-issues/"><u>IPhone Update Process Hangs: Solving iTunes Download Issues</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ts-to-effortlessly-posting-youtube-on-fb/"><u>Secrets to Effortlessly Posting YouTube on FB</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/stepping-into-business-mode-register-as-an-instagram-corp-page/"><u>Stepping Into Business Mode Register as an Instagram Corp Page</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/streamlined-driver-installation-for-hp-envy-5055-download-now-effortlessly/"><u>Streamlined Driver Installation for HP Envy 5055: Download Now Effortlessly</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/the-verdict-on-amazon-luna-an-unexpectedly-fluid-video-game-platform/"><u>The Verdict on Amazon Luna - An Unexpectedly Fluid Video Game Platform</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/king-youtubes-earning-potential-in-the-new-year/"><u>Unlocking YouTube's Earning Potential in the New Year</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] The Steps YouTube Takes Once a Video Is Submitted for Viewing"
-date: 2024-12-01T19:05:45.291Z
-updated: 2024-12-06T22:19:53.162Z
+date: 2024-12-08T18:13:57.992Z
+updated: 2024-12-12T21:37:51.357Z
 tags:
   - ai video
   - ai youtube
@@ -29,7 +29,7 @@ You use YouTube to watch videos, post your own content, and build up a following
 This article will explain what goes on behind the scenes when you upload a video, where that video really goes, and what happens when somebody clicks play.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How Does YouTube Work
@@ -45,7 +45,7 @@ If uploading takes a long time for you it probably has nothing to do with YouTub
 ![how youtube works](https://images.wondershare.com/filmora/article-images/how-youtube-works.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 As it is owned by Google YouTube uses Google's 'Bigtable', a compressed data storage system which allows it to store the 500+ hours of video uploaded to its servers every minute. Bigtable is software, though, not hardware. YouTube and Google both have massive amounts of data and it needs to be physically housed somewhere.
@@ -53,7 +53,7 @@ As it is owned by Google YouTube uses Google's 'Bigtable', a compressed data sto
 ![videos uploaded to youtube](https://images.wondershare.com/filmora/article-images/videos-uploaded-to-youtube.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Google has Modular Data Centers all over the world where it keeps its servers. These centers could cost as much as $600 million dollars each and consume huge amounts of electricity. There are six of them in the United States, three in Europe, two in Asia, and one is South America.
@@ -67,7 +67,7 @@ If videos take a long time to load for you then there are a few things you can d
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -91,16 +91,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-automate-playlist-retrieval-from-youtube-directly/"><u>[New] 2024 Approved Automate Playlist Retrieval From YouTube Directly</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-elevating-creative-content-vimeo-vs-youtubes-approach/"><u>[New] 2024 Approved Elevating Creative Content Vimeo vs YouTube's Approach</u></a></li>
-<li><a href="https://extra-information.techidaily.com/new-compelling-book-trail-creations/"><u>[New] Compelling Book Trail Creations</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-explore-these-innovative-5-iphone-apps-transforming-podcasts/"><u>[Updated] 2024 Approved Explore These Innovative 5 iPhone Apps Transforming Podcasts</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-jake-paul-from-dabbing-to-dominance-youtube-triumph/"><u>[Updated] 2024 Approved Jake Paul From Dabbing to Dominance - YouTube Triumph</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-reach-a-millennium-of-youtube-followers-fast/"><u>[Updated] In 2024, Reach a Millennium of YouTube Followers Fast</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-fresh-film-views-ranked-alternatives-1-7/"><u>2024 Approved Fresh Film Views Ranked Alternatives #1-7</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-fix-oneplus-ace-2-pro-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>How to Fix OnePlus Ace 2 Pro Find My Friends No Location Found? | Dr.fone</u></a></li>
-<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-6s-to-other-iphone-15-pro-max-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone 6s to other iPhone 15 Pro Max devices? | Dr.fone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-tailoring-content-to-trends-organic-growth-strategies-for-youtubers/"><u>In 2024, Tailoring Content to Trends Organic Growth Strategies for YouTubers</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-the-roadmap-to-increasing-traffic-top-techniques-for-fb-video-ads/"><u>In 2024, The Roadmap to Increasing Traffic Top Techniques for FB Video Ads</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-content-creation-battleground-choosing-between-vimeo-youtube-dailymotion/"><u>[New] 2024 Approved Content Creation Battleground Choosing Between Vimeo, YouTube, DailyMotion</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-decoding-the-mystery-of-where-are-my-youtube-comments/"><u>[New] 2024 Approved Decoding the Mystery of Where Are My YouTube Comments?</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-editessence-system/"><u>[New] 2024 Approved EditEssence System</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-revolutionary-tools-for-downloading-facebook-content-on-firefox-updated/"><u>[New] 2024 Approved Revolutionary Tools for Downloading Facebook Content on Firefox, Updated</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-broadcasting-showdown-deciding-between-obs-and-twitch-studio/"><u>[Updated] 2024 Approved Broadcasting Showdown Deciding Between OBS and Twitch Studio</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-tech-tips-streamlining-your-overwatch-video-recordings/"><u>[Updated] 2024 Approved Tech Tips Streamlining Your Overwatch Video Recordings</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-windows-users-take-note-camcorders-guide-ahead-for-2024/"><u>[Updated] Windows Users, Take Note Camcorders Guide Ahead for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-review-the-ultimate-4k-action-recorder/"><u>2024 Approved Review The Ultimate 4K Action Recorder</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-vlogging-ideas-what-to-talk-about-while-vlogging/"><u>Daily Vlogging Ideas What to Talk About While Vlogging?</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/how-to-import-music-to-inshot-video-editor/"><u>How to Import Music to Inshot Video Editor?</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-to-use-ispoofer-on-samsung-galaxy-s21-fe-5g-2023-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Samsung Galaxy S21 FE 5G (2023)? | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-technique-coding-images-for-youtube-channel-thumbnails-for-2024/"><u>Swift Technique Coding Images for YouTube Channel Thumbnails for 2024</u></a></li>
 </ul></div>
 

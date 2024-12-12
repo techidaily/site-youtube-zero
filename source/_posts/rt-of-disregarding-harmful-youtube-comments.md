@@ -1,7 +1,7 @@
 ---
 title: "The Art of Disregarding Harmful YouTube Comments"
-date: 2024-08-16T04:25:14.614Z
-updated: 2024-08-17T04:25:14.614Z
+date: 2024-12-10T16:32:25.750Z
+updated: 2024-12-12T16:23:47.144Z
 tags:
   - ai video
   - ai youtube
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/de901a9dfeb58de3e9633af24cac79c38827e6567
  Mar 27, 2024• Proven solutions
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
 
@@ -54,20 +58,21 @@ thumbnail: https://thmb.techidaily.com/de901a9dfeb58de3e9633af24cac79c38827e6567
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -76,9 +81,17 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-guide-to-animating-scenes-with-windows-movie-maker/"><u>[New] In 2024, Guide to Animating Scenes with Windows Movie Maker</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/astering-keywords-the-best-7-no-cost-youtube-taggers/"><u>[New] Mastering Keywords The Best 7 No-Cost Youtube Taggers</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-teamwork-in-video-production-boosting-channel-size/"><u>[Updated] 2024 Approved Teamwork in Video Production, Boosting Channel Size</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-channel-conversion-secrets-yt-vs-igtv/"><u>[Updated] Channel Conversion Secrets YT Vs IGTV</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-amplify-video-impact-leading-trackers-for-youtube-ranks/"><u>2024 Approved Amplify Video Impact Leading Trackers for YouTube Ranks</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/disabled-iphone-12-pro-max-how-to-unlock-a-disabled-iphone-12-pro-max-by-drfone-ios/"><u>Disabled iPhone 12 Pro Max How to Unlock a Disabled iPhone 12 Pro Max?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/enjoy-virtual-reality-with-plex-streaming-on-oculus-quest-the-ultimate-guide/"><u>Enjoy Virtual Reality with Plex Streaming on Oculus Quest: The Ultimate Guide</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-odyssey-of-gaming-the-ultimate-list-of-freeware-mmorpgs/"><u>In 2024, Odyssey of Gaming The Ultimate List of Freeware MMORPGs</u></a></li>
+<li><a href="https://driver-error.techidaily.com/seamless-sync-mouse-and-window-harmony/"><u>Seamless Sync: Mouse & Window Harmony</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/yac530-yamahaaturbosound-ii-sound-module-based-on-the-ymf764ymu764-dsp-plus-midi-synthesizer-plus-codec-and-128-mb-of-spiram-for-sample-storage-instead-of-r77/"><u>YAC530 - Yamaha'aturboSound II Sound Module Based on the YMF764/YMU764 (DSP + MIDI Synthesizer + Codec) and 128 MB of SPIRAM for Sample Storage Instead of ROM. It Also Includes a Second Audio Input Connector</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->

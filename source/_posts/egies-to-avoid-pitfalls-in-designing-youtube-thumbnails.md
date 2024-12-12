@@ -1,7 +1,7 @@
 ---
 title: "Strategies to Avoid Pitfalls in Designing YouTube Thumbnails"
-date: 2024-11-29T18:38:34.725Z
-updated: 2024-12-06T16:28:12.749Z
+date: 2024-12-05T16:19:09.743Z
+updated: 2024-12-12T17:27:01.015Z
 tags:
   - ai video
   - ai youtube
@@ -44,10 +44,6 @@ Here are the Dos and Don’ts of YouTube Channel Art.
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: What Kind of Background Should I Use?
 
 #### _DO: High-Quality Photos_
@@ -61,6 +57,10 @@ When choosing great photos for your background, pick ones that are high quality 
 Using patterns for the background of your channel banner can help your channel look super creative and stand out from others. However, if you use a pattern that is chaotic and hard on the eyes, you may not attract many subscribers. When using patterns, choose patterns that are not heavy in color and have too many lines or shapes. There should be an evenness to the shapes and negative space within the pattern itself. Try to stay away from patterns that are 3D which can conflict with the viewer’s eyesight and make them dizzy.
 
 ![ YouTube Channel Banner Background](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-background.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: Should I Use My Face?
 
@@ -78,16 +78,12 @@ That doesn’t mean you have to hire a photographer to take pictures for your ch
 
 It is always best to use a current photo of yourself. Many times viewers will go and follow you on social media as well. If they see that you have current photos on your social media but not on your channel, they are become confused and perhaps lose interest.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 3: What Should I Write on My Banner?
 
 ![ YouTube Channel Banner writing](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-write.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### _Do: Include Your Channel Name_
@@ -109,6 +105,10 @@ Social media accounts are important to include in your channel art because we li
 Including social media icons in your channel art lets people know where they can find you. Another good reason to include your current social media in your banner is that sometimes you might join a new platform or quit an old one. You may be using Twitter for months and then decide that you like Facebook better. Your current social media handles keep subscribers from having to guess which one to follow you on.
 
 ![ YouTube Channel Banner Safe Area](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-safe-area.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 _Make sure everything important fits in the safe area!_
 
@@ -143,7 +143,7 @@ _Joshelle is a YouTuber from Atlanta, GA. She has a YouTube channel called [Elle
 Now that you know how to make a good YouTube banner, what will you do next?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Touch Up YouTube Videos with Filmora
@@ -153,7 +153,7 @@ Now that you know how to make a good YouTube banner, what will you do next?
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -179,16 +179,15 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-budget-friendly-asmr-solutions-premium-quality-mics-awaiting-you/"><u>[New] Budget-Friendly ASMR Solutions Premium Quality Mics Awaiting You</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/he-ultimate-virtual-reality-experience-playlist-for-2024/"><u>[New] The Ultimate Virtual Reality Experience Playlist for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-unlock-retro-classics-on-android-choose-the-best-ps2-emulators-for-2024/"><u>[New] Unlock Retro Classics on Android – Choose the Best PS2 Emulators for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-solvedhow-to-blur-faces-or-objects-in-youtube-videos/"><u>[Updated] 2024 Approved Solved How to Blur Faces or Objects in YouTube Videos</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-elevating-success-channel-ideas-to-spark-momentum/"><u>[Updated] In 2024, Elevating Success Channel Ideas to Spark Momentum</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-amplify-your-channels-evading-synthetic-watchers/"><u>2024 Approved Amplify Your Channels Evading Synthetic Watchers</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-premier-gopro-hero5-black-batteries-with-certified-chargers/"><u>2024 Approved Premier GoPro Hero5 Black Batteries with Certified Chargers</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-instasnap-upload-essentials/"><u>In 2024, InstaSnap Upload Essentials</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-quick-fix-mac-compatible-youtube-video-resize/"><u>In 2024, Quick Fix Mac-Compatible YouTube Video Resize</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/mac-users-ultimate-tutorial-how-to-convert-and-save-songs-from-cds/"><u>Mac Users' Ultimate Tutorial: How to Convert and Save Songs From CDs</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/nokia-72-review-an-exceptional-contender-in-the-crowded-mid-range-phone-market/"><u>Nokia 7.2 Review: An Exceptional Contender in the Crowded Mid-Range Phone Market</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-master-the-art-of-repeating-iphones-videos/"><u>[New] 2024 Approved Master the Art of Repeating iPhones Videos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-quick-and-clean-video-extraction-for-all-screens/"><u>[New] 2024 Approved Quick and Clean Video Extraction for All Screens</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-comprehensive-tutorial-for-youtube-customization-tools/"><u>[New] A Comprehensive Tutorial for YouTube Customization Tools</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-effective-team-videos-boosting-channelnode-growth-rate/"><u>[Updated] In 2024, Effective Team Videos Boosting Channelnode Growth Rate</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-smaller-brands-bigger-impacts-infographics/"><u>[Updated] Smaller Brands, Bigger Impacts (Infographics)</u></a></li>
+<li><a href="https://blog-min.techidaily.com/4-ways-to-transfer-music-from-oppo-k11-5g-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>4 Ways to Transfer Music from Oppo K11 5G to iPhone | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-anomaly-top-disruptive-music-apps-for-iosandroid-for-2024/"><u>Audio Anomaly Top Disruptive Music Apps for iOS/Android for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-check-distance-and-radius-on-google-maps-for-your-zte-axon-40-lite-drfone-by-drfone-virtual-android/"><u>How to Check Distance and Radius on Google Maps For your ZTE Axon 40 Lite | Dr.fone</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-how-to-forge-an-impeccable-vr-self-representation/"><u>In 2024, How to Forge an Impeccable VR Self-Representation</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/resolving-frame-drops-and-lag-in-aoe-iv-a-step-by-step-guide/"><u>Resolving Frame Drops and Lag in AoE IV: A Step-by-Step Guide</u></a></li>
 </ul></div>
 
