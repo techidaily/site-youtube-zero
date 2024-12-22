@@ -1,7 +1,7 @@
 ---
 title: Quick Solutions When Your Laptop's Audio Output Fails
-date: 2024-12-14T16:00:34.960Z
-updated: 2024-12-21T16:07:19.952Z
+date: 2024-12-15T20:17:57.002Z
+updated: 2024-12-22T04:07:42.354Z
 tags:
   - win11
   - win10
@@ -24,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/9b6869e231e2667ce5b62099e4b236daaa6b93b4b
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Try these fixes**
 
  Here’s a list of fixes that have resolved this problem for other HP laptop users. You don’t have to try them all. Just work your way through the list until you find the one that does the trick for you.
@@ -36,6 +40,10 @@ thumbnail: https://thmb.techidaily.com/9b6869e231e2667ce5b62099e4b236daaa6b93b4b
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **Fix 1: Run Windows audio playback troubleshooter**
 
  This might be one of the easiest fixes to try. The built-in Windows audio playback troubleshooter is a useful tool that can help you resolve audio playback issues. Here is how to do it:
@@ -47,7 +55,7 @@ thumbnail: https://thmb.techidaily.com/9b6869e231e2667ce5b62099e4b236daaa6b93b4b
 3. Follow the on-screen instructions to troubleshoot the audio playback issue.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  When it is completed, play a song on your HP laptop to see if you resolved the no sound issue. If not, try the next fix, below.
@@ -87,32 +95,29 @@ thumbnail: https://thmb.techidaily.com/9b6869e231e2667ce5b62099e4b236daaa6b93b4b
 2. Navigate to**the Playback tab** .**Right-click** anywhere on the Playback tab of the Sound window, and make sure you select**Show Disabled Devices** and**Show Disconnected Devices** options.  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/snap000237-2.png)
 3. If your laptop speaker is disabled,**right-click** your laptop speaker and select**Enable** .  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/snap000236.png)
 4. Select the speaker / headphone you’re using and  click **Set Default** .  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/Snap442-1.jpg)
 5. Click**OK** to save the changes.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 6. On your desktop,   **right-click**  **the speaker icon**  on the lower-right corner, and then select**Open Volume Mixer**  .  
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/snap000233.png)
 7. If you see some application is muted, click**the speaker icon** under that application to unmute it.  
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/snap000235-2.png)
 8. Play a song on your laptop to see if you fixed the no sound issue. If not, move on to the next step.
@@ -121,11 +126,11 @@ thumbnail: https://thmb.techidaily.com/9b6869e231e2667ce5b62099e4b236daaa6b93b4b
 10. In Device Manager,**double-click** **Sound, video and game controllers** to expand the list. If you see**a downward arrow** next to your audio device,**right-click** it then select**Enable device** to enable it.  
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/snap000240.png)
 
- Play a song on your HP laptop to see if the no sound issue is resolved. If not, try the next fix to restart Windows audio service.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ Play a song on your HP laptop to see if the no sound issue is resolved. If not, try the next fix to restart Windows audio service.
 
 ### **Fix 4: Restart Windows audio service**
 
@@ -134,10 +139,6 @@ thumbnail: https://thmb.techidaily.com/9b6869e231e2667ce5b62099e4b236daaa6b93b4b
 1. On your keyboard, press **the Windows logo key**   and **R**   at the same time to open the Run dialog. Type **services.msc**   and press **Enter** . You’ll be prompted for permission. Click **Yes**   to open **Services** .![](https://images.drivereasy.com/wp-content/uploads/2018/10/Snap190-5.png)
 2. Scroll down to locate **Windows Audio** . **Right-click**   it and select **Properties** .![](https://images.drivereasy.com/wp-content/uploads/2018/10/Snap193-5.png)
 3. Under the **General**   tab, if the service is disabled, click **Star**   to enable it. For **Startup type** , select **Automatic** .  
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/Snap194-5.png)
 4. Navigate to the **Recovery**   tab. For **First failure** , select **Restart the Service** . Then click **OK**   to save the changes.  
@@ -148,7 +149,7 @@ thumbnail: https://thmb.techidaily.com/9b6869e231e2667ce5b62099e4b236daaa6b93b4b
  See if you fix this issue after restarting Windows audio service. If it works, congratulations! This issue is fixed.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **Fix 5: Troubleshoot hardware issues**
@@ -181,16 +182,19 @@ thumbnail: https://thmb.techidaily.com/9b6869e231e2667ce5b62099e4b236daaa6b93b4b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-a-review-of-the-goofy-movie-vhs/"><u>[New] 2024 Approved A Review of The Goofy Movie VHS</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/aximize-visibility-a-guide-to-constructing-youtube-backlinks-for-2024/"><u>[New] Maximize Visibility A Guide to Constructing YouTube Backlinks for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/nline-platforms-embedding-video-playlists-from-youtube-for-2024/"><u>[New] Online Platforms Embedding Video Playlists From YouTube for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-how-to-add-custom-youtube-shorts-thumbnails-with-ease/"><u>[Updated] 2024 Approved How to Add Custom YouTube Shorts Thumbnails with Ease?</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-the-essential-guide-to-youtube-earnings-on-any-device/"><u>[Updated] In 2024, The Essential Guide to YouTube Earnings on Any Device</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-stand-out-on-youtube-with-these-20-top-font-choices-for-2024/"><u>[Updated] Stand Out on YouTube with These 20 Top Font Choices for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-the-palettes-power-in-film-editing-techniques/"><u>2024 Approved The Palette's Power in Film Editing Techniques</u></a></li>
-<li><a href="https://article-helps.techidaily.com/enhancing-photo-views-in-windows-11-filter-plus-music-integration-for-2024/"><u>Enhancing Photo Views in Windows 11 Filter + Music Integration for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/script-to-screen-youtube-video-creation-made-simple/"><u>From Script to Screen YouTube Video Creation Made Simple</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-simulate-gps-movement-in-ar-games-on-tecno-spark-10c-drfone-by-drfone-virtual-android/"><u>In 2024, How to Simulate GPS Movement in AR games On Tecno Spark 10C? | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/merry-christmas-or-merry-xmas-in-different-languages/"><u>Merry Christmas Or Merry Xmas In Different Languages</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-essential-online-spots-for-digitized-artwork/"><u>[New] Essential Online Spots for Digitized Artwork</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-fusing-film-and-frequencies-win11-edition/"><u>[New] Fusing Film & Frequencies Win11 Edition</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-how-to-make-your-youtube-moments-come-alive-creating-dynamic-gifs/"><u>[New] In 2024, How to Make Your YouTube Moments Come Alive Creating Dynamic GIFs</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/aster-the-art-of-streaming-pick-from-the-leading-6-cost-free-and-on-demand-short-video-downloads-for-2024/"><u>[New] Master the Art of Streaming Pick From the Leading 6 Cost-Free & On-Demand Short Video Downloads for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-amass-1000-visionary-supporters-fast-track-style/"><u>[Updated] 2024 Approved Amass 1,000 Visionary Supporters Fast-Track Style</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-perfecting-professional-productions-using-vimeos-tools/"><u>[Updated] Perfecting Professional Productions Using Vimeo's Tools</u></a></li>
+<li><a href="https://win-forum.techidaily.com/efficiently-clearing-windows-11-system-crash-dumps-a-how-to-tutorial/"><u>Efficiently Clearing Windows 11 System Crash Dumps: A How-To Tutorial</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-master-your-image-transformation-with-complete-facetune-guide/"><u>In 2024, Master Your Image Transformation with Complete Facetune Guide</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-the-future-of-titles-an-innovators-playbook-for-videos/"><u>In 2024, The Future of Titles An Innovator's Playbook for Videos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-uncovering-histories-student-favored-youtubes-on-historic-events/"><u>In 2024, Uncovering Histories Student-Favored YouTubes on Historic Events</u></a></li>
+<li><a href="https://win-answers.techidaily.com/resolving-your-games-endgame-glitches-fixing-the-constant-pc-malfunctions/"><u>Resolving Your Game's Endgame Glitches: Fixing the Constant PC Malfunctions</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/phone-camera-accessories-vloggers-should-try-to-improve-recording/"><u>Smartphone Camera Accessories Vloggers Should Try to Improve Recording</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/the-ultimate-companion-of-asus-network-driver-downloads-and-install-guides-tailored-for-windows-users/"><u>The Ultimate Compan#ion of Asus Network Driver Downloads & Install Guides – Tailored for Windows Users</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/unlock-pip-in-edge-for-a-superior-browsing-experience/"><u>Unlock PIP in Edge for a Superior Browsing Experience</u></a></li>
 </ul></div>
 

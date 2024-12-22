@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Starting Up YouTube - Your First Gear List\""
-date: 2024-12-17T16:01:00.886Z
-updated: 2024-12-21T16:01:17.766Z
+date: 2024-12-17T18:07:08.197Z
+updated: 2024-12-21T19:54:50.887Z
 tags:
   - ai video
   - ai youtube
@@ -44,7 +44,7 @@ The smartest way to get started is to go through a list of **necessary equipment
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## YouTube Cameras
@@ -60,7 +60,7 @@ On one end of the spectrum, you have basic smartphone cameras and web cameras, w
 If you already have a DSLR camera then it’s a good idea to familiarize yourself with it. You have far more freedom to adjust the settings and achieve a professional look for your videos with a DSLR, but that does mean it’ll take some time to become an expert at using it. Ultra-high resolution is not required for YouTube, but it certainly won’t hurt to have additional sharpness and more detail in the scene. If you’re shopping for a DSLR, look for one with a flip screen that allows you to quickly check what your viewers see.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## YouTube Microphone and Audio
@@ -85,10 +85,6 @@ If you have the budget available to get some lighting equipment, you can find so
 
 Another useful piece of lighting equipment to have is a reflector. A reflector is usually a piece of white, silver, or gold fabric stretched over a frame. You can use it to bounce light from one light source back towards yourself (this is a great way to fill shadows cast by your main light). Reflectors tend to be inexpensive, but you can also use white cardboard or tinfoil in place of purchasing a reflector.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Tripods and Camera Stands
 
 **The short version:** You need something to hold your camera. If you mostly film in your own home that can be a desk or a stack of books, but if you make a lot of videos while you're on the go you probably need a tripod or gimbal. Heavier cameras need heavier tripods.
@@ -104,7 +100,7 @@ Even if you are using a phone or a webcam to record YouTube videos, you should c
 ![Smartphone Camera Gear](https://images.wondershare.com/filmora/article-images/smartphone-camera-gear.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **The short version:** There's a lot of gear out there designed with smartphone photos and videos in mind, including clip-on lenses, tripod mounts, phone-mounted LED lights, and inexpensive microphones that plug into the audio jack.
@@ -115,15 +111,19 @@ On the flip side, smartphone cameras typically perform poorly in low light. It i
 
 Another common downside of smartphone cameras is that most of them use digital zoom, which is vastly inferior to optical zoom. If you intend to shoot anything that’s further away than a few feet, you need a clip-on lens that goes on top of the built-in camera. This inexpensive device will give you a lot of freedom to work in space, and allow you to make spectacular shots even without high-end YouTube equipment.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Equipment with Easy-to-Use Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -146,19 +146,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-ps4-broadcasting-basics-with-a-focus-on-obs-integration/"><u>[New] In 2024, PS4 Broadcasting Basics with a Focus on OBS Integration</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-infographic-forecast-the-2023-social-landscape/"><u>[Updated] 2024 Approved Infographic Forecast The 2023 Social Landscape</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-transforming-viewers-into-loyalists-with-essential-youtube-tips/"><u>[Updated] 2024 Approved Transforming Viewers Into Loyalists with Essential YouTube Tips</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-crafting-kingdom-the-path-to-youtube-mastery/"><u>2024 Approved Crafting Kingdom The Path to YouTube Mastery</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-mastering-quick-video-pace-adjustments-on-youtube/"><u>2024 Approved Mastering Quick Video Pace Adjustments on YouTube</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-top-2-directors-cut-downloads/"><u>2024 Approved Top 2 Director's Cut Downloads</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/lating-final-fact-finding-flourishes/"><u>Formulating Final Fact-Finding Flourishes</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-lock-your-honor-80-pro-straight-screen-edition-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>In 2024, Lock Your Honor 80 Pro Straight Screen Edition Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ating-the-new-norm-earnings-in-vlogging/"><u>Navigating the New Norm Earnings in Vlogging</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/96160646-9780750987295-paranormal-encounters-on-britains-roads/"><u>Paranormal Encounters on Britain's Roads | Free Book</u></a></li>
-<li><a href="https://review-topics.techidaily.com/possible-solutions-to-restore-deleted-messages-from-motorola-moto-g84-5g-by-fonelab-android-recover-messages/"><u>Possible solutions to restore deleted messages from Motorola Moto G84 5G</u></a></li>
-<li><a href="https://howto.techidaily.com/spotify-keeps-crashing-a-complete-list-of-fixes-you-can-use-on-vivo-y78t-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Spotify Keeps Crashing A Complete List of Fixes You Can Use on Vivo Y78t | Dr.fone</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/swiftly-assemble-a-stunning-google-image-mosaic-with-ease-for-2024/"><u>Swiftly Assemble a Stunning Google Image Mosaic with Ease for 2024</u></a></li>
-<li><a href="https://solve-info.techidaily.com/win11zip/"><u>Win11中重新打開被删除的ZIP文件——免费修复指南</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-efficient-techniques-to-record-on-vimeo/"><u>[Updated] 2024 Approved Efficient Techniques to Record on Vimeo</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-enhancing-viewer-experience-with-immersive-360-video-content-for-youtube/"><u>[Updated] 2024 Approved Enhancing Viewer Experience with Immersive 360 Video Content for YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-dissecting-the-income-from-a-million-on-youtube/"><u>[Updated] In 2024, Dissecting the Income From a Million on YouTube</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-the-impactful-power-of-customer-testimonials-on-sales/"><u>[Updated] In 2024, The Impactful Power of Customer Testimonials on Sales</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-youtubes-edge-and-dailymotions-charms-an-in-depth-look/"><u>2024 Approved YouTube's Edge & Dailymotion's Charms An In-Depth Look</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-youtubers-unite-with-these-17-top-tier-lights/"><u>2024 Approved Youtubers Unite with These 17 Top-Tier Lights</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/and-paid-video-game-opening-mastery-rank-the-best-of-yt-makers-for-2024/"><u>Free & Paid Video Game Opening Mastery Rank the Best of YT Makers for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/gopros-deep-sea-capturing-unforgettable-underwater-scenes-for-2024/"><u>GoPro's Deep Sea Capturing Unforgettable Underwater Scenes for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-the-power-play-joining-a-music-company-network-in-the-age-of-streaming/"><u>In 2024, The Power Play Joining a Music Company Network in the Age of Streaming</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/new-from-still-to-motion-the-8-best-tools-to-animate-your-photos/"><u>New From Still to Motion The 8 Best Tools to Animate Your Photos</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/quick-fixes-enhancing-images-in-windows-10s-photos-editor/"><u>Quick Fixes Enhancing Images in Windows 10'S Photos Editor</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/quintessential-scripting-spectrum-8-cinematic-classes-for-2024/"><u>Quintessential Scripting Spectrum 8 Cinematic Classes for 2024</u></a></li>
 </ul></div>
 

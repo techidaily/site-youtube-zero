@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Optimizing YouTube Closures  A Comprehensive Guide to Crafting Effective End Screens and Cards\""
-date: 2024-08-08T15:44:31.323Z
-updated: 2024-08-09T15:44:31.323Z
+date: 2024-12-16T21:35:48.643Z
+updated: 2024-12-21T16:24:54.817Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/ae43e169f6c755c4c2193b461c421a8ddcf3ffe94
 
 # How to Add YouTube End Screen and Cards Effectively
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -36,15 +33,17 @@ The traditional annotation’s features are replaced by its successor YouTube Ca
 [Wondershare Filmstock Gaming Video Editing Skils](https://images.wondershare.com/filmora/article-images/learn-gaming-video-editing-skills-banner.png)](https://filmstock.wondershare.com/creative-theme-game?source%5Fchannel=seo%5Farticle&spm=rs.filmora%5Fweb)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 1: Why You Need to Add End Screens and Cards to Videos
 
 There are several reasons that make the YouTube end screen and cards a great tool when added to the videos. The new channel builtin features, donation choices, embedded polls and more are some of the best interactive and powerful features of YouTube end screen that’s when added to the video can drive in users to your channel. It is a strong tool to build viewership of your channel. When you use YouTube end screen at the end of the video, it helps in directing the users to other channels, playlists, and videos and also helps in promoting crowdfunding campaigns, merchandise and website. The YouTube end screen is a part of the video and to have an end screen on your video, it must be around 25seconds long.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2: How To Use Youtube End Screen
 
 Do you wish to add YouTube end screen to your video? Just follow the steps and get going.
@@ -73,6 +72,10 @@ YouTube Cards is more interactive. Users can add images and other linkes. Here a
 * Choose the cards type you want to make on "Add Card" drop down menu.
 * Click “create” button. Select the timeline. In the end, apply.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### The types of YouTube cards
 
 * **Video or playlist**: links to other videos/the complete palylist on YouTube related or non-related to that specific videolinks to further purchase websites or specific product.
@@ -81,8 +84,9 @@ YouTube Cards is more interactive. Users can add images and other linkes. Here a
 * **Link**: links to a website which compliments whatever content is in the video.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 4 Tips for Using YouTube Cards
 
 **1\.** You might be used to pointing to the part of your screen where you intend to put an annotation, but when you use YouTube Cards they might switch locations depending on what device a viewer is watching on.
@@ -93,17 +97,15 @@ YouTube Cards is more interactive. Users can add images and other linkes. Here a
 
  **4.** The end of your video is always a great place to link viewers to another of your videos, whether you use a card or an end screen. If somebody liked your video enough to watch until the end they’ll probably welcome a chance to consume similar content.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
 Now, that you are aware how to add YouTube end screen to your video, make use of the amazing features of YouTube end screen and cards and let driving in traffic to your site be easy and fruitful.
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -111,14 +113,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -127,4 +126,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/omplete-guide-what-does-unlisted-mean-on-youtube/"><u>[New] Complete Guide What Does Unlisted Mean on YouTube</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-humorhub-imagery-mememagic-inc-for-2024/"><u>[New] HumorHub Imagery MemeMagic Inc for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/solved-intel-rst-service-is-not-running-on-windows-10/"><u>[Solved] Intel RST Service Is Not Running on Windows 10</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-what-everyone-needs-to-know-about-asmr-videos/"><u>[Updated] 2024 Approved What Everyone Needs to Know About ASMR Videos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-elevate-video-consumption-constructing-an-ideal-watch-later-list-on-youtube-for-2024/"><u>[Updated] Elevate Video Consumption Constructing an Ideal 'Watch Later' List on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-earning-power-through-engagement-ajays-success-on-youtube-monetization/"><u>2024 Approved Earning Power Through Engagement Ajay’s Success on YouTube Monetization</u></a></li>
+<li><a href="https://video-capture.techidaily.com/8-most-reliable-screen-snappers/"><u>8 Most Reliable Screen Snappers</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/cing-youtube-visibility-with-featured-channels-techniques-for-2024/"><u>Enhancing YouTube Visibility with Featured Channels Techniques for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-location-on-facebook-dating-for-your-oppo-f25-pro-5g-drfone-by-drfone-virtual-android/"><u>How to Change Location On Facebook Dating for your Oppo F25 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-forgot-locked-iphone-6s-plus-password-learn-the-best-methods-to-unlock-drfone-by-drfone-ios/"><u>In 2024, Forgot Locked iPhone 6s Plus Password? Learn the Best Methods To Unlock | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-process-of-screen-sharing-xiaomi-13t-pro-to-pc-detailed-steps-drfone-by-drfone-android/"><u>In 2024, Process of Screen Sharing Xiaomi 13T Pro to PC- Detailed Steps | Dr.fone</u></a></li>
+<li><a href="https://win-ratings.techidaily.com/simplest-methods-for-zipping-files-on-windows-insights-from-yl-computings-expertise/"><u>Simplest Methods for Zipping Files on Windows - Insights From YL Computing's Expertise</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-streaming-budget-buy-the-ns-4nsiaga-fire-tv-edition-smart-high-definition-and-affordable/"><u>The Ultimate Streaming Budget Buy: The NS-4nsiaga Fire TV Edition - Smart, High Definition, and Affordable</u></a></li>
+</ul></div>
 

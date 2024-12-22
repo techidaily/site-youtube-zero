@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Stand Out with YT Shorts  Essential Guidelines to Follow\""
-date: 2024-08-08T15:41:10.278Z
-updated: 2024-08-09T15:41:10.278Z
+date: 2024-12-16T17:35:53.138Z
+updated: 2024-12-21T20:55:34.749Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/13322664753ec1bcb9b951122efdf005d8bc61a3a
 
 # 10 Expert Suggestions to Make Your YT Shorts Stand Out
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -33,6 +30,10 @@ Ideally, any YouTube user can find the Shorts option on the app to watch interes
 
 If you also want to go viral, then get to know about these **YouTube Shorts tips** that every content creator should follow.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## YouTube Shorts Feature and Shorts Fund: Things to Know
 
 Before we make you familiar with all kinds of **YouTube Shorts tips and tricks**, let’s cover some basics. Ideally, YouTube has recently come up with the Shorts feature to focus on short-length videos (and to rival Instagram Reels and TikTok).
@@ -43,9 +44,6 @@ You can now find the Shorts icon at the bottom panel on the YouTube app. Using i
 
 The interface would let you record multiple videos at different intervals and add sound to your clips as well. Later, you can post these short clips on your channel to get more views on YouTube.
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ### YouTube Shorts Fund
 
 YouTube Shorts already hosts a massive number of more than 6 billion daily views as of now. To promote it, Google has come up with a YouTube Shorts Fund of **$100M** that would be rewarded to various content creators each month.
@@ -53,23 +51,17 @@ YouTube Shorts already hosts a massive number of more than 6 billion daily views
 That is, a “Shorts Bonus” would be added to the account of content creators to appreciate their viral content.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Top 10 Tips for YouTube Shorts That You Must Follow
 
 Now when we have covered all the basics, let’s get to know about some effective **YouTube Shorts tricks** that would help you come up with interesting content and get more audience for it.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
-<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
-<!-- affiliate ads end -->
 ### Tip 1: Learn How to Shoot YouTube Shorts
 
 Before you start posting videos on YouTube Shorts, you should know how the feature works. Ideally, you can find a dedicated option for Shorts from the bottom panel on the updated YouTube app. From here, you can watch Shorts or simply choose to create them as well.
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-tips-2.jpg)
 
 You can give YouTube access to your smartphone camera before you start recording. To record anything, you can just tap and hold the red button (the recording icon) on the interface.
@@ -82,7 +74,15 @@ To have a consistent growth of audience on YouTube shorts, you should stick to a
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-tips-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Most of the prominent content creators already apply these **YouTube Shorts tips** in which they first identify their target audience. Based on that, you can work on the type of content that you want to create and share to attain consistent growth on YouTube.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Tip 3: Add Appropriate Background Music to Your Short Videos
 
@@ -96,6 +96,10 @@ Now, YouTube will automatically load all kinds of trending music that you can us
 
 As you would select a track, it will automatically be loaded as the background music for your video. Though, you can also select a specific segment of the track and clip it accordingly to place it on your videos the way you like.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Tip 4: Insert Captions and Text Effects on Your Shorts
 
 Apart from music, you can also add all kinds of text effects to make your YouTube Shorts videos appealing. After you have recorded a video, you can just tap on the text option from the bottom/side panel of the app.
@@ -105,8 +109,9 @@ Apart from music, you can also add all kinds of text effects to make your YouTub
 You can now type anything and place it on the video to make it more interesting. If you want, you can also implement these **YouTube Shorts tips** to add subtitles or pre/post video captions without any hassle.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Tip 5: Adjust the Playback Speed of YouTube Shorts
 
 Since a lot of content creators are coming up with YouTube Shorts, you would have to walk an extra mile to make them more appealing. In these **YouTube Shorts tricks**, I would recommend adjusting the playback speed of the video.
@@ -115,18 +120,22 @@ Since a lot of content creators are coming up with YouTube Shorts, you would hav
 
 After recording the video, you can tap on the speed icon from the bottom/side panel. Here, you can make your videos play in slow motion or fast forward (in a range of 0.3x to 3x). This will add seamless speed control features to your videos without any technical issues.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Tip 6: Consider the Overall Length of Your Shorts Video
 
 Even though the maximum length of the YouTube Shorts videos is 60 seconds, you don’t have to make it so long. If you look at most of the popular videos on YouTube Shorts, then you will find that they are of less than 30 seconds in length.
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-tips-7.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Remember, your goal is to come up with crisp and interesting content via YouTube Shorts. To implement these **YouTube Shorts tips**, you can consider the ideal length of 30-45 seconds and only have essential content in your videos.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ### Tip 7: Use the Timer Feature to Shoot Your Videos Correctly
 
 A lot of people make the rookie mistake of shooting their videos for too long in Shorts. Therefore, if you want to implement these **YouTube Shorts tips and tricks**, then consider using the timer feature of the app.
@@ -136,22 +145,17 @@ A lot of people make the rookie mistake of shooting their videos for too long in
 Before shooting the video, you can tap on the timer button from the bottom and set up a preferred duration for it (like 10 or 15 seconds). In this way, you can be sure that you won’t go overboard and keep your videos short automatically.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Tip 8: Set a Preferred Target Audience for YouTube Shorts
 
 Great! Now when you have recorded and edited your video by applying these **tips for YouTube Shorts**, you are ready to post them. While posting your videos, you would be asked whether the video is targeted at kids or not. If the video is made for kids, then you should select the relevant prompt, as YouTube would improve the overall visibility of your videos in this case.
 
-<!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-tips-9.jpg)
 
 Though, if your videos are targeted at adults, then you should go with the second option instead. This would help you reach out to your target audience on YouTube easily.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Tip 9: Post Your YouTube Shorts the Right Way
 
 Apart from setting the audience preferences of your YouTube Shorts videos, you should also take care of a couple of other things. For instance, you can consider making the visibility of your final video “Public” so that anyone on YouTube can watch it.
@@ -160,10 +164,6 @@ Apart from setting the audience preferences of your YouTube Shorts videos, you s
 
 Besides that, it is also recommended to have the keyword “#Shorts” in the title of the video. You can also make the title of the video attractive and can even add a short description that would make your audience click on your YouTube video for sure.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ### Tip 10: Promote Your YouTube Shorts Video on Other Places
 
 Lastly, posting the YouTube Shorts video is not enough, as you should also promote it to get more views. One of the best **YouTube Shorts tips** for promotion would be posting the snippet of the video as your Stories on YouTube.
@@ -176,9 +176,6 @@ You can also post your YouTube Shorts on other popular social media platforms li
 
 As you can see after going through these **YouTube Shorts tricks** that the native tool of the app has limited editing options. Therefore, if you want to come up with better videos, then consider using a professional tool like [**Wondershare Filmora**](https://tools.techidaily.com/wondershare/filmora/download/).
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 [![Download Filmora Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 The desktop [video editing tool](https://tools.techidaily.com/wondershare/filmora/download/) has hundreds of filters, transitions, captions, stickers, and other effects to elevate the overall visual appeal of your videos. You can also access numerous AI-integrated features in Filmora and can directly export your videos in YouTube-compatible formats.
@@ -189,9 +186,6 @@ That’s a wrap, everyone! I’m sure that after following these expert **YouTub
 
 Though, if you want to make your videos even more appealing, then consider using a reliable and smart video editor like Wondershare Filmora.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -200,14 +194,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -216,4 +207,22 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/rom-novice-to-pro-how-to-evade-the-most-critical-8-mistakes-on-youtube/"><u>[New] From Novice to Pro How to Evade the Most Critical 8 Mistakes on YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-discovering-video-producers-digital-command-center/"><u>[Updated] 2024 Approved Discovering Video Producers' Digital Command Center</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-making-a-channels-story-visible-in-snippets/"><u>[Updated] 2024 Approved Making a Channel's Story Visible in Snippets</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-prime-selections-securing-entry-level-channel-monetization-sites/"><u>[Updated] 2024 Approved Prime Selections Securing Entry-Level Channel Monetization Sites</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-unveiling-the-power-of-picture-in-picture-on-apple-devices/"><u>[Updated] 2024 Approved Unveiling the Power of Picture-in-Picture on Apple Devices</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-discover-the-joy-of-real-time-broadcasting-with-fb-and-roku/"><u>[Updated] Discover the Joy of Real-Time Broadcasting with FB & Roku</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-cutting-the-cord-on-costs-select-best-free-yt-title-makers/"><u>[Updated] In 2024, Cutting the Cord on Costs - Select Best-Free YT Title Makers</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-seamless-media-conversion-from-avis-to-striking-gif-images-via-filmora-software-windowsmacos/"><u>[Updated] In 2024, Seamless Media Conversion From AVIs to Striking GIF Images via Filmora Software (Windows/macOS)</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-blogging-basics-for-business-beginnings/"><u>2024 Approved Blogging Basics for Business Beginnings</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-voice-command-technology-for-efficient-ppt-creation/"><u>2024 Approved Voice Command Technology for Efficient PPT Creation</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/re-8-leading-youtube-growth-strategies/"><u>Explore 8 Leading Youtube Growth Strategies</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-factory-unlock-your-telstra-iphone-xr-by-drfone-ios/"><u>How To Factory Unlock Your Telstra iPhone XR</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-splitcam-examination-camera-quality-showdown/"><u>In 2024, SplitCam Examination - Camera Quality Showdown?</u></a></li>
+<li><a href="https://common-error.techidaily.com/unlock-hidden-touchpad-in-device-managers-depths/"><u>Unlock Hidden Touchpad in Device Manager's Depths!</u></a></li>
+<li><a href="https://win11.techidaily.com/unlocking-windows-11-user-management-interface/"><u>Unlocking Windows 11 User Management Interface</u></a></li>
+</ul></div>
 

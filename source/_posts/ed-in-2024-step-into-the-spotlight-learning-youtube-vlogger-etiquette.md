@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Step Into the Spotlight  Learning YouTube Vlogger Etiquette\""
-date: 2024-08-08T15:44:45.477Z
-updated: 2024-08-09T15:44:45.477Z
+date: 2024-12-20T19:28:48.809Z
+updated: 2024-12-21T20:12:48.978Z
 tags:
   - ai video
   - ai youtube
@@ -30,6 +30,10 @@ For most people, vlogging is not something that comes naturally. Like any skill,
 
 When we watch the most popular YouTubers, the traits that make them successful are often invisible, because we are so consumed by their vlog. In this article, I’ll highlight 8 tips from the most accomplished vloggers on the Internet, so that you can vlog confidently and make the best YouTube videos.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **1\. Be Authentic**
 
 People opt to watch vlogs because they want to see something real.
@@ -50,9 +54,6 @@ Once all the pieces of the story are captured — including your storytelling, b
 
 Take a look at this example from [Tiffany Alvord](https://www.youtube.com/user/TiffanyAlvord) and notice how there are jump cuts both to skip information that can be assumed by the audience and add the tension to the story she’s telling.
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **3\. Surprise and Delight Your Audience**
 
 There is a saying that a great ending to a story is that it is [surprising, yet inevitable](https://www.huffingtonpost.com/david-kudler/writing-the-inevitable-bu%5Fb%5F1630419.html).
@@ -60,6 +61,10 @@ There is a saying that a great ending to a story is that it is [surprising, yet 
 The ending needs to be justified even if there is a twist. Everything before that had worked to build up the tension and when it concludes it needs to be logical. However, the ending cannot be something that the audience can guess. Remember those mystery movies where you know who the murderer is after the first few scenes? Yeah… those aren’t satisfying. A good story ends with a surprise, and with everything prior leading up to it.
 
 The gold standard example of a surprising, yet inevitable end is Casey Neistat's bike lane video. Everything in the video is leading up to the end, but when you watch it the first time it’s unexpected, and that’s why it’s so good.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **4\. Be Inviting**
 
@@ -69,10 +74,6 @@ Unlike being invited to a party, there is no obligation when it comes to YouTube
 
 The opposite of inviting is rejecting, and when you are a vlogger, you don’t want to reject anyone from enjoying your videos.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## **5\. Compose the Shot**
 
 Vlogging is a visual medium, and while the story is important, what is captured in the frame will play an impactful role in the video as well.
@@ -85,14 +86,6 @@ Check out this example from [Rosanna Pansino](https://www.youtube.com/channel/UC
 
  The camera follows her fluidly throughout the video, but it is her eyes that guide both the camera moves and what she wants our attention to be directed to. Don’t hesitate to let the viewer know what you want them to see.
 
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **6\. Be Prepared**
 
 While you can pick up a camera and start vlogging on the fly, being prepared enables you to produce the best video possible. Take a few minutes before you hit record simply to outline the key points you want to talk about and how the video will end, ensuring that after filming you haven’t forgotten a crucial part.
@@ -102,6 +95,10 @@ Additionally, knowing what to say makes you a better host for your vlog. Watch y
 Good preparation includes having all your gear ready for filming when you need it. There is nothing worse than being set to shoot and running out of battery or memory.
 
 Take a look at [Ashley Nichole](https://www.youtube.com/channel/UC8GTe3Wn7dtWXf3B%5Fv5gm9w) in this vlog and notice that although she sounds spontaneous, it is also evident that she knows what she is going to talk about next.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **7\. Be Expressive**
 
@@ -113,9 +110,6 @@ Consider your audience: they are coming home from school or work, where there we
 
 Want to see a vlogger that is awesome at being expressive on camera? Check out [Emma Chamberlain](https://www.youtube.com/channel/UC78cxCAcp7JfQPgKxYdyGrg), if you haven’t already. Every word she says in her video is layered with emotion. We know exactly how she feels.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **8\. Stay Organized**
 
 The same way you should prepare before filming, it’s also important to be organized comes the editing phase. Editing is arguably the most time-consuming part of the vlogging process, so have a system for categorizing and finding your footages.
@@ -138,15 +132,17 @@ Do you have any vlogging tricks of your own? Leave a comment below.
 
 If you want to find a video editing solution that empowers your imagination and creativity yet takes less effort, please try this robust and user-friendly video editing software **Wondershare Filmora**, which will definitely enhance your productivity and helps you to make money by making videos much easier.
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -154,14 +150,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -170,4 +163,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-efficiently-edit-your-youtube-videos-using-sony-vegas/"><u>[New] In 2024, Efficiently Edit Your YouTube Videos Using Sony Vegas</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-insights-into-huawei-p10s-software-optimization-and-updates/"><u>[New] Insights Into Huawei P10’s Software Optimization and Updates</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/astering-youtube-playlist-creation-tips-and-tricks-for-2024/"><u>[New] Mastering YouTube Playlist Creation Tips and Tricks for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-guide-to-the-top-10-historical-education-channels/"><u>[Updated] 2024 Approved Guide to the Top 10 Historical Education Channels</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-real-vs-counterfeit-deciphering-authentic-youtube-supports/"><u>[Updated] 2024 Approved Real Vs. Counterfeit Deciphering Authentic YouTube Supports</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-how-to-double-down-on-your-youtube-success-in-a-month/"><u>[Updated] How to Double Down on Your YouTube Success in a Month</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-easy-paths-to-profitable-youtube-business-channels-top-10-list/"><u>[Updated] In 2024, Easy Paths to Profitable YouTube Business Channels, Top 10 List!</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-numbers-game-estimating-income-from-viral-content/"><u>[Updated] The Numbers Game Estimating Income From Viral Content</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-bringing-anime-characters-to-life-jujutsu-kaisen-for-tiktok/"><u>2024 Approved Bringing Anime Characters to Life Jujutsu Kaisen for TikTok</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/gs-finest-top-10-gpu-picks-for-clear-online-broadcasts-for-2024/"><u>Gaming's Finest Top 10 GPU Picks for Clear Online Broadcasts for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-settled-unseen-videos-a-fix/"><u>In 2024, Settled Unseen Videos - A Fix</u></a></li>
+<li><a href="https://solve-hot.techidaily.com/printer-stuck-how-to-fix-no-print-issues-with-professional-advice-from-yl-software/"><u>Printer Stuck? How to Fix No-Print Issues with Professional Advice From YL Software</u></a></li>
+<li><a href="https://games-able.techidaily.com/sony-controllers-meet-the-joy-con-world-on-switch/"><u>Sony Controllers Meet the Joy-Con World on Switch</u></a></li>
+<li><a href="https://fake-location.techidaily.com/spoofing-life360-how-to-do-it-on-lava-blaze-2-pro-drfone-by-drfone-virtual-android/"><u>Spoofing Life360 How to Do it on Lava Blaze 2 Pro? | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/the-artisans-path-learning-photoshops-powerful-distortion-effects/"><u>The Artisan’s Path Learning Photoshop's Powerful Distortion Effects</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/top-apps-and-online-tools-to-track-realme-narzo-n53-phone-withwithout-imei-number-by-drfone-android/"><u>Top Apps and Online Tools To Track Realme Narzo N53 Phone With/Without IMEI Number</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/wiidvd/"><u>Wiiを使ってDVDを視聴する方法：初めてのユーザーもわかりやすいガイド</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Optimize Your Channels  An Introduction to YouTube Statistics\""
-date: 2024-08-08T15:43:07.915Z
-updated: 2024-08-09T15:43:07.915Z
+date: 2024-12-17T03:25:38.490Z
+updated: 2024-12-21T19:56:27.742Z
 tags:
   - ai video
   - ai youtube
@@ -36,22 +36,21 @@ The information available for each video includes how many new subscribers it at
 * **[How to View Other People's YouTube Statistics](#otherpeople)**
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Making Better YouTube Videos with Filmora to Get More Views
 
 As one of the best video editing software for YouTube, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) provides lots of templates and effects with an intuitive interface, which saves much time. After editing, you can upload the video to YouTube directly when export. Download the free trial version below and start making YouTube videos with Filmora.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 [![Get free YouTube Subscribers Guide Banner](https://images.wondershare.com/filmora/article-images/get-free-youtube-subs-banner.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to View Your YouTube Statistics
 
 In order to view your YouTube Analytics, sign in to your YouTube account and go to your Creator Studio. From there, click into the Analytics tab in the menu on the left of your screen.
@@ -61,8 +60,9 @@ In order to check which of your videos are performing the best, click on **Watch
 The two main types of analytics reports are Watch Time Reports and Interaction Reports.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 1. Interpreting YouTube Watch Time Reports
 
 To find **Watch time reports** you just need to log into your Google account, go to the **Creator studio**, click the analytics tab, and then click on **watch time**. You can see the watch time of every video on your channel, which is important data to have because watch time is the most important factor when it comes to ranking your video in search results.
@@ -102,18 +102,20 @@ Interaction reports can be broken down into several different reports that can h
 **7\. 360 heat map reports:** A heat map report works specifically with 360° videos if you are choosing to engage your audience with this type of content. Viewing YouTube video statistics for 360° heat maps will help to show the areas on your video that viewers are most interested in.
 
 <!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to View Other Peoples YouTube Statistics
 
 If you want to check out the statistics of rival YouTube channels ([including the most subscribed channels on YouTube](https://www.filmora.io/community-blog/youtube-subscriber-chart---the-5-most-subscribed-youtube-channels-320.html)), or channels you’re a fan of, try using [Social Blade](http://www.socialblade.com). Social Blade is one of the most trusted sources of YouTube data, and it may actually be easier to check your own basic stats there than in the Creator Studio sometimes due to their simple layout. To get started all you need to do is type the name of any YouTube channel into the search bar. You’ll be able to see reports on daily views, channel growth, and even estimated ad revenue ([learn more about how to view a channel's ad revenue here](https://www.filmora.io/community-blog/youtube-view-calculators---calculate-youtube-money%21-322.html)).
 
 Now that you know how to view YouTube statistics, what will you do with them?
 
-<!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -121,14 +123,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -137,4 +136,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-spotlight-on-10-rapidly-expanding-youtube-talks-of-inspiration/"><u>[New] 2024 Approved Spotlight on 10 Rapidly Expanding YouTube Talks of Inspiration</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-elite-recommendations-top-10-high-end-video-card-models/"><u>[New] In 2024, Elite Recommendations Top 10 High-End Video Card Models</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ro-video-gear-the-ultimate-stabilizers-selection/"><u>[New] Pro Video Gear – The Ultimate Stabilizers Selection</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/peedy-tactics-for-disorganized-youtube-song-listings-for-2024/"><u>[New] Speedy Tactics for Disorganized YouTube Song Listings for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/upercharge-your-content-editing-and-enhancing-youtube-tags-for-2024/"><u>[New] Supercharge Your Content Editing and Enhancing YouTube Tags for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-elevate-your-profits-youtubes-studio-monetization-simplified/"><u>[Updated] 2024 Approved Elevate Your Profits YouTube's Studio Monetization Simplified</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-collaborate-for-success-video-strategies/"><u>[Updated] Collaborate for Success Video Strategies</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-navigate-with-precision-the-complete-guide-to-idevice-podcast-downloads/"><u>[Updated] Navigate with Precision The Complete Guide to iDevice Podcast Downloads</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-social-broadcast-battleground-fb-live-yt-live-twitvision/"><u>[Updated] Social Broadcast Battleground FB Live, YT Live, TwitVision</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-channel-identity-made-simple-discover-the-10-best-banner-maker-apps/"><u>2024 Approved Channel Identity Made Simple Discover the 10 Best Banner Maker Apps</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-the-ultimate-playbook-for-professional-looking-live-youtube-videos/"><u>2024 Approved The Ultimate Playbook for Professional-Looking Live YouTube Videos</u></a></li>
+<li><a href="https://howto.techidaily.com/fixing-persistent-pandora-crashes-on-samsung-galaxy-s23-tactical-edition-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixing Persistent Pandora Crashes on Samsung Galaxy S23 Tactical Edition | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-your-apple-iphone-11-pro-max-passcode-4-easy-methods-with-or-without-itunes-by-drfone-ios/"><u>How to Unlock Your Apple iPhone 11 Pro Max Passcode 4 Easy Methods (With or Without iTunes)</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-techniques-to-transfer-data-from-oppo-find-x7-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Techniques to Transfer Data from Oppo Find X7 to iPhone 15/14/13/12 | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-unleash-creativity-crafting-your-own-youtube-shorts-thumbnails/"><u>In 2024, Unleash Creativity Crafting Your Own YouTube Shorts Thumbnails</u></a></li>
+<li><a href="https://fox-sure.techidaily.com/mastering-the-art-of-clean-images-a-step-by-step-guide-on-using-apowersofts-background-eraser-on-ios-devices/"><u>Mastering the Art of Clean Images: A Step-by-Step Guide on Using Apowersoft's Background Eraser on iOS Devices</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/the-authoritative-review-of-recuva-mastering-effective-digital-file-reclamation-techniques/"><u>The Authoritative Review of Recuva - Mastering Effective Digital File Reclamation Techniques</u></a></li>
+<li><a href="https://win11.techidaily.com/unlock-potential-with-easy-integration-of-msix-packages/"><u>Unlock Potential with Easy Integration of MSIX Packages</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/rships-value-to-creators-understanding-revenue-per-stream/"><u>Viewership's Value to Creators Understanding Revenue per Stream</u></a></li>
+</ul></div>
 

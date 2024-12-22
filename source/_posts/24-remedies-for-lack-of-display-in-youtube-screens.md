@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Remedies for Lack of Display in YouTube Screens"
-date: 2024-08-08T15:44:05.278Z
-updated: 2024-08-09T15:44:05.278Z
+date: 2024-12-18T20:02:32.900Z
+updated: 2024-12-22T01:58:56.044Z
 tags:
   - ai video
   - ai youtube
@@ -56,13 +56,14 @@ Every time you visit a website, its DNS (Domain Name System) record is automatic
 
 As it is with Windows itself, even the graphic card driver must be updated regularly to maintain your PC’s health. If an updated version of the display driver is not installed on your Windows computer, you may experience **YouTube black screen**.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: How to Fix YouTube Video Black Screen \[\*Quick Way\]
 
 Depending on the root cause of the issue, the solutions to fix the **YouTube video black screen** issue may differ. Nevertheless, some of the most effective remedies are discussed below in detail:
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### 1\. Web Browser Solution(s)
 
 **Solution 1: Update Your Web Browser**
@@ -91,11 +92,12 @@ After launching the web browser (Google Chrome is used here for example), go to 
 
 ![clear google chrome cache](https://images.wondershare.com/filmora/article-images/clear-google-chrome-cache.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Switch between the **Basic** and **Advanced** tabs on the **Clear browsing data** box to choose the records that you want to delete, and then choose your preferred duration of the records from the **Time range** drop-down list.
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![clear google chrome browsing data](https://images.wondershare.com/filmora/article-images/clear-browsing-data-chrome.jpg)
 
 Click **Clear data** from the bottom-right corner to clear browsing caches.
@@ -108,10 +110,6 @@ Launch Google Chrome and go to the **Customize and control Google Chrome** menu,
 
 Turn off the switch for each of the installed extensions to check if the issue is fixed.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![disable google chrome extension](https://images.wondershare.com/filmora/article-images/disable-google-chrome-extensions.jpg)
 
 **Note:** If this solution works, you can try enabling the extensions one at a time, and check turning on which one causes **YouTube video black screen**. Once the culprit extension is found, you can click **Remove** to get rid of it altogether.
@@ -127,6 +125,10 @@ If the video is visible on a different web browser, probably the default one tha
 • Click to select the browser from the list of installed apps (Google Chrome here) and select **Uninstall** from above the list.
 
 • Follow the on-screen instructions from there to remove the web browser from your PC. Next, use Microsoft Edge (or any other browser) to download and install a fresh copy of Google Chrome and see if the issue is fixed
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. ISP or Internet Speed Solution(s)
 
@@ -152,9 +154,6 @@ Type **CMD** in the **Cortana** search box, and click **Run as administrator** f
 
 Click **Yes** on the **User Account Control** confirmation box, and in the **Command Prompt** window, type **IPCONFIG /FLUSHDNS** and press Enter
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![use command to fix YouTube black screen](https://images.wondershare.com/filmora/article-images/use-command-to-fix-youtube-black-screen.jpg)
 
 Try opening the YouTube video again and see if the issue is fixed
@@ -167,21 +166,19 @@ Right-click **Start** and go to **Device Manager** from the context menu
 
 Expand the **Display adapters** tree on the **Device Manager** snap-in, and right-click the graphics card from the list and select **Update driver** from the context menu.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![upgrade graphic card to fix YouTube black screen](https://images.wondershare.com/filmora/article-images/upgrade-graphic-card-to-fix-youtube-video-black-screen.jpg)
 
 Click **Search automatically for drivers** from the next screen that appears and follow the on-screen instructions from there to update the graphic card driver.
 
 **Note:** If your PC has multiple graphic cards installed in it, you will have to follow this procedure for each of them individually.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
-<!-- affiliate ads end -->
 ## Part 3: How to Troubleshoot YouTube Black Screen on Mobile?
 
 If you wish to watch online videos on your smartphone, but experience **YouTube video black screen**, the process of fixing the issue on the phones is comparatively simple. The steps that are given below explain the procedure:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How to Troubleshoot YouTube Black Screen on Android
 
@@ -191,9 +188,6 @@ Go to **Settings** and then tap **Apps** from the **Settings** Go to YouTube and
 
 Tap it and then select **Clear data and Clear cache**. Relaunch YouTube and see if the issue is fixed.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![fix YouTube black screen on Android](https://images.wondershare.com/filmora/article-images/fix-youtube-video-black-screen-android.jpg)
 
 ### How to Troubleshoot YouTube Black Screen On iOS
@@ -204,20 +198,21 @@ Long-tap the YouTube app on your iOS device, and then tap **Remove App**, and th
 
 ![fix YouTube black screen on iPhone](https://images.wondershare.com/filmora/article-images/delete-youtube-from-iphone.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Go to **App Store** and download and install a fresh copy of YouTube, and see if the problem is resolved.
 
 **Conclusion**
 
 There could be several reasons for **YouTube black screen**, and depending on the root cause of the issue, the troubleshooting methods may vary. While some inconsistencies can be fixed from within the web browser itself, at times you may need to tweak your operating system to get an accurate solution. Likewise, while using an Android smartphone, you can clear YouTube data and cache; and remove and reinstall the app altogether when on an iOS device.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -226,4 +221,17 @@ There could be several reasons for **YouTube black screen**, and depending on th
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/ost-effective-recording-devices-the-ultimate-list-for-2024/"><u>[New] Cost-Effective Recording Devices The Ultimate List for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-reclaim-your-view-2-ways-to-access-deleted-youtube/"><u>[Updated] 2024 Approved Reclaim Your View 2 Ways to Access Deleted YouTube</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-unlocking-financial-potential-how-to-earn-with-youtube-shorts/"><u>[Updated] In 2024, Unlocking Financial Potential How to Earn with YouTube Shorts</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-how-to-loop-youtube-videos-on-tv/"><u>2024 Approved How to Loop YouTube Videos on TV</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/correct-primes-textual-missteps-on-windows-11-desktops/"><u>Correct Prime's Textual Missteps on Windows 11 Desktops</u></a></li>
+<li><a href="https://article-files.techidaily.com/in-2024-expert-advice-on-creating-impactful-hdr-portraits/"><u>In 2024, Expert Advice on Creating Impactful HDR Portraits</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-i-transferred-messages-from-huawei-p60-to-iphone-12xs-max-in-seconds-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How I Transferred Messages from Huawei P60 to iPhone 12/XS (Max) in Seconds | Dr.fone</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-mastering-youtubes-video-editor-integrating-tracks-into-your-videos/"><u>In 2024, Mastering YouTube's Video Editor Integrating Tracks Into Your Videos</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-optimal-chuckle-inducing-layout/"><u>In 2024, Optimal Chuckle-Inducing Layout</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/or-top-youtube-videos-select-rank-trackers-guide-for-2024/"><u>Monitor Top YouTube Videos - Select Rank Trackers Guide for 2024</u></a></li>
+</ul></div>
 

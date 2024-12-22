@@ -1,7 +1,7 @@
 ---
 title: "[New] Understanding Fair Use and Infringement on YouTube"
-date: 2024-08-08T15:41:14.553Z
-updated: 2024-08-09T15:41:14.553Z
+date: 2024-12-20T00:04:11.872Z
+updated: 2024-12-22T01:01:08.902Z
 tags:
   - ai video
   - ai youtube
@@ -38,9 +38,6 @@ Remember that everything discussed in this article is only best practices and sh
 
 Now that we are set, let’s dive in:
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 1: What is Fair Use?
 
 When we talk about YouTube copyright, we have to talk about fair use.
@@ -50,8 +47,9 @@ Without fair use, there wouldn’t be any flexibility for creators. There wouldn
 Think of fair use as exceptions to copyright rules.
 
 <!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2: What YouTube Considers Fair Use
 
 There are a few aspects YouTube looks at when it comes to determining whether creators are using copyrighted content that meets the fair use exceptions.
@@ -60,9 +58,6 @@ There are a few aspects YouTube looks at when it comes to determining whether cr
 2. Are there more original content used than copyrighted content in the video?
 3. Will your video benefit the original copyrighted content?
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ## Part 3: Types of Content That Meet Fair Use
 
 Some acceptable styles of videos that allow you to exercise fair use are:
@@ -97,6 +92,10 @@ So what should you do? Here are the steps to take after you receive a copyright 
 
 ![YouTube Copyright notice](https://images.wondershare.com/filmora/article-images/youtube-copyright-notice.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Click on the “Copyright Strike” link beside the flagged video to see details
 2. Decide how to respond to the strike:  
    1. Allow the strike to expire after 90 days and complete the [YouTube’s copyright school](https://www.youtube.com/copyright%5Fschool)  
@@ -104,6 +103,14 @@ So what should you do? Here are the steps to take after you receive a copyright 
    3. Dispute the claim with a counter notification
 
 ![Dispute YouTube Copyright Claims](https://images.wondershare.com/filmora/article-images/dispute-youtube-copyright-claim.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 5: 5 Ways to Avoid Copyright Strike
 
@@ -125,9 +132,6 @@ In this example from Screen Prism, we see scenes from Wes Anderson movies all th
 
 **5\. Keep it short.** There is no precise number of seconds or ratio of copyrighted to original footage you should have in your video to qualify as fair use. But generally, if the copyrighted clip is short and/or broken up, then it stands a better chance at being approved by YouTube.
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 6: What to Do When Other YouTubers Are Copying Your Content
 
 As a new YouTuber, it’s a little freaky to think that someone is taking your content and republishing it or using your creations in their video without your permission.
@@ -143,9 +147,6 @@ If you ever notice that your content is being copied without your approval — i
 
 1. Select “Infringes my rights” in the pop up window and click “infringes my copyright” in the dropdown options.
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![report copyright infringement](https://images.wondershare.com/filmora/article-images/infringe-my-copyright-report.jpg)
 
 1. Supply additional information to the report form, including the URL of the video infringing your copyrighted content and the URL of your own video.
@@ -161,9 +162,6 @@ In 2018, YouTube launched a new feature called **Copyright Match Tool**, which a
 
 \- You can report the video to YouTube for removal.
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Key Takeaways
 
 I hope this article has clarified what you can and cannot do with copyrighted content. Here is a quick summary of what we touched on in this post:
@@ -182,10 +180,11 @@ I hope this article has clarified what you can and cannot do with copyrighted co
 
 Got any questions on YouTube copyright? Leave a comment below and we’ll help you answer it.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -193,14 +192,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -209,4 +205,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-innovating-with-ideas-constructing-your-unique-tiktok-sequence/"><u>[New] 2024 Approved Innovating with Ideas Constructing Your Unique TikTok Sequence</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ow-to-gauge-if-an-mcn-is-right-for-your-youtube-journey/"><u>[New] How to Gauge if an MCN Is Right for Your YouTube Journey</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-boosting-visuals-mastering-youtubes-video-enhancement-tools/"><u>[New] In 2024, Boosting Visuals Mastering YouTube's Video Enhancement Tools</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-the-ultimate-guide-to-ioss-best-psp-gaming-tools-for-2024/"><u>[New] The Ultimate Guide to iOS's Best PSP Gaming Tools for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-apocalypse-alert-the-ultimate-list-of-thrilling-zombie-games/"><u>[Updated] Apocalypse Alert The Ultimate List of Thrilling Zombie Games</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-demystifying-youtube-premium-membership-benefits-for-2024/"><u>[Updated] Demystifying YouTube Premium Membership Benefits for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-expert-strategies-for-effective-zoom-sharing/"><u>[Updated] In 2024, Expert Strategies for Effective Zoom Sharing</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-game-capture-without-xboxs-intrusive-game-bar/"><u>[Updated] In 2024, Game Capture without Xbox’s Intrusive Game Bar</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-mastering-youtube-channel-building-essentials/"><u>[Updated] In 2024, Mastering YouTube Channel-Building Essentials</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-navigating-the-creator-space-a-comprehensible-guide/"><u>2024 Approved Navigating the Creator Space A Comprehensible Guide</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-android-to-apple-how-to-transfer-photos-from-tecno-spark-10-pro-to-ipad-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Android to Apple How To Transfer Photos From Tecno Spark 10 Pro to iPad Easily | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/ringtone-revolution-transforming-your-ios-sound/"><u>Ringtone Revolution Transforming Your iOS Sound</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ess-addition-youtube-videos-into-google-slides-for-2024/"><u>Seamless Addition YouTube Videos Into Google Slides for 2024</u></a></li>
+</ul></div>
 

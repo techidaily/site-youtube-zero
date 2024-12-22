@@ -1,7 +1,7 @@
 ---
 title: "[New] Apex Artists Among Online Video Titans"
-date: 2024-12-17T16:02:54.592Z
-updated: 2024-12-21T16:06:13.246Z
+date: 2024-12-21T02:02:00.245Z
+updated: 2024-12-22T05:35:53.384Z
 tags:
   - ai video
   - ai youtube
@@ -60,7 +60,7 @@ In this article, we will take you through the 5 most popular creator channels on
 ![PewDiePie](https://images.wondershare.com/filmora/article-images/pew-die-pie.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 YouTube's most well-known superstar Felix Arvid Ulf Kjellberg was born 1989 in Gothenburg. PewDiePie’s channel has made this Swedish comedian, Vlogger, and gamer based in Brighton, England, a global celebrity whose videos have reached record audiences. Felix created his YouTube channel in 2010 and in only six short years the PewDiePie YouTube channel received over 16 billion views and it is currently among the most viewed channels ever.
@@ -71,12 +71,16 @@ The most common videos on Felix's channel are gaming videos in which he comments
 
 ![HolaSoyGerman](https://images.wondershare.com/filmora/article-images/hola-soy-german.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 At the age of 27, Germán Alejandro Garmendia Aranis is the owner of the second most subscribed channel on YouTube with more than 32 million subscribers. Furthermore, HolaSoyGerman’s channel is the most subscribed Spanish-speaking channel today. Germán's second YouTube channel JuegaGerman has made him the only YouTuber ever to receive two diamond play buttons for having over 40 million subscribers on his two channels.
 
 The Chilean YouTube superstar uploaded his first YouTube video in 2011 and by October 2012 his channel has reached 1 million subscribers. Recently, German has lent his voice to a character in the Spanish version of Ice Age: Collision Course. He finds inspiration for his comic YouTube videos in everyday life and topics like ex-girlfriends, school, and phobias are frequently covered in videos published on the HolaSoyGerman channel. In 2014 and 2015 German won the 'Icon of the Year' prize from MTV Millennial Awards.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ###  3\.  ElrubiusOMG
@@ -97,12 +101,16 @@ Most channels that have one viral video do not go on to have sustained success o
 
 In 2017, Anthony Padilla chose to leave Smosh to focus on his own solo YouTube channel.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 5\.  Fernanfloo
 
 ![Fernanfloo](https://images.wondershare.com/filmora/article-images/fernan-floo.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Yet another enormously popular YouTuber that comes from a Spanish speaking country whose channel attracted millions of subscribers. A 24-year-old Salvadoran named Luis Fernando Flores Alvarado is the man behind one of the most subscribed YouTube channels of all time. The Fernanfloo channel was created in 2011, and in February 2014 it had only 100,000 subscribers. By August 2014, Alvarado's channel reached 1 million subscribers, making him one of YouTube's biggest success stories. The videos featured on Feranfloo channel mostly cover gaming topics, but with a touch of comedy which makes Alvarado's videos unique.
@@ -113,19 +121,11 @@ At the end of 2015, Alvarado launched the Fenanfloo mobile app that had 2.3 mill
 
 Looking for a live [YouTube subscriber chart](https://tools.techidaily.com/wondershare/filmora/download/)?
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Edit YouTube Videos with Full-Featured Video Editing Software
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -148,22 +148,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-heroic-hurdles-the-ultimate-10-role-playing-journeys/"><u>[New] 2024 Approved Heroic Hurdles The Ultimate 10 Role-Playing Journeys</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/31876430-new-2024-approved-thumbnail-tailoring-for-youtube-a-practical-guide-to-image-resizing-and-customization/"><u>[New] 2024 Approved Thumbnail Tailoring for YouTube A Practical Guide to Image Resizing and Customization</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ushing-past-plateaus-the-strategic-guide-for-youtube-success/"><u>[New] Pushing Past Plateaus The Strategic Guide for Youtube Success</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/uperior-microphones-for-livestreaming-for-2024/"><u>[New] Superior Microphones for Livestreaming for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-the-comprehensive-blueprint-for-vimeo-video-logging-for-2024/"><u>[New] The Comprehensive Blueprint for Vimeo Video Logging for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-how-to-turn-youtube-shorts-into-a-money-machine-key-requirements-and-income-potential/"><u>[Updated] In 2024, How to Turn YouTube Shorts Into a Money Machine Key Requirements & Income Potential</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-quick-and-efficient-ipad-screen-recording-techniques-unveiled-for-2024/"><u>[Updated] Quick & Efficient iPad Screen Recording Techniques Unveiled for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-enhancing-youtube-videos-for-superior-quality/"><u>2024 Approved Enhancing YouTube Videos for Superior Quality</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-strategies-for-adequate-lighting-in-youtube-videos/"><u>2024 Approved Strategies for Adequate Lighting in YouTube Videos</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/boost-visibility-with-a-bespoke-youtube-channel-url/"><u>Boost Visibility with a Bespoke YouTube Channel URL</u></a></li>
-<li><a href="https://howto.techidaily.com/cellular-network-not-available-for-voice-calls-on-samsung-galaxy-s24plus-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Cellular Network Not Available for Voice Calls On Samsung Galaxy S24+ | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/change-location-on-yik-yak-for-your-vivo-y36-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>Change Location on Yik Yak For your Vivo Y36 to Enjoy More Fun | Dr.fone</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/from-zero-to-timer-hero-3-essential-fcpx-steps/"><u>From Zero to Timer Hero 3 Essential FCPX Steps</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-change-your-samsung-galaxy-s24plus-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How to Change Your Samsung Galaxy S24+ Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/o-spark-interest-with-unique-channel-names/"><u>How to Spark Interest With Unique Channel Names</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-ultimate-movie-watchlists-for-efficient-screen-time/"><u>In 2024, Ultimate Movie Watchlists for Efficient Screen Time</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/in-2024-your-ultimate-guide-to-youtube-shorts/"><u>In 2024, Your Ultimate Guide to YouTube Shorts</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-navigating-the-nuances-of-premieres-fullscreen-mode/"><u>[New] 2024 Approved Navigating the Nuances of Premiere's Fullscreen Mode</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-bypassing-watermarks-for-photographic-needs-for-2024/"><u>[New] Bypassing Watermarks for Photographic Needs for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/conomical-embellishments-free-youtube-template-packs/"><u>[New] Economical Embellishments FREE YouTube Template Packs</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-delightful-digests-a-list-of-top-food-channels/"><u>[New] In 2024, Delightful Digests A List of Top Food Channels</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-snapseed-essentials-conquering-image-enhancement/"><u>[New] Snapseed Essentials Conquering Image Enhancement</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/he-essential-tutorial-for-youtube-studio-editor-use/"><u>[New] The Essential Tutorial for YouTube Studio Editor Use</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-streaming-success-seekers-deciphering-the-platform-winner-vimeo-vs-youtubeplusdailymotion/"><u>[Updated] In 2024, Streaming Success Seekers Deciphering The Platform Winner - Vimeo vs YouTube+Dailymotion?</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/access-strongest-passwords-effortlessly-with-these-7-free-generators/"><u>Access Strongest Passwords Effortlessly With These 7 Free Generators</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/breaking-through-solving-nba-2k21s-endless-black-screen-dilemma-for-gamers/"><u>Breaking Through: Solving NBA 2K21's Endless Black Screen Dilemma for Gamers</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-exploring-the-landscape-of-music-and-intellectual-property-on-insta/"><u>In 2024, Exploring the Landscape of Music & Intellectual Property on Insta</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-the-ultimate-guide-to-flawless-sound-engineering-in-audacity/"><u>In 2024, The Ultimate Guide to Flawless Sound Engineering in Audacity</u></a></li>
+<li><a href="https://win11.techidaily.com/techniques-for-separating-concentrated-pc-icons/"><u>Techniques for Separating Concentrated PC Icons</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ltimate-playbook-for-a-thriving-youtube-gaming-platform/"><u>The Ultimate Playbook for a Thriving YouTube Gaming Platform</u></a></li>
 </ul></div>
 

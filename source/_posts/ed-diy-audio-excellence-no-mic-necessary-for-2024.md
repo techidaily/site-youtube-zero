@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] DIY Audio Excellence  No Mic Necessary for 2024\""
-date: 2024-12-14T16:10:56.921Z
-updated: 2024-12-21T16:08:48.746Z
+date: 2024-12-21T03:47:19.485Z
+updated: 2024-12-21T21:24:16.270Z
 tags:
   - ai video
   - ai youtube
@@ -44,6 +44,10 @@ Luckily, there are a lot of easy, free, things you can do to protect the quality
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Keep Your Camera Close (like, really close)
 
 The biggest problem with the mic built into any camera or phone is just that, since it’s with the camera, it’s usually too far away from you. Built-in mics can record decent audio up close, but usually, your camera will be set up farther away from you than an external mic would be.
@@ -52,10 +56,6 @@ For example, your camera’s mic might be just as good as a clip-on LAV, but tha
 
 Moving your camera/smartphone physically closer to you will make it hard to include anything besides your head and shoulders in your shot, but it will get you significantly better audio.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 2.Shoot Somewhere Quiet
 
 The best way to limit the amount of background noise you pick up in your sound recording is to shoot somewhere where there’s no background noise. That probably seems really basic, but it’s something a lot of people just don’t do. It’s easy to default to recording in your home office, even though it’s right next to the kitchen where your family is bustling around, or in your bedroom even though there’s a busy street right outside your window.
@@ -63,7 +63,7 @@ The best way to limit the amount of background noise you pick up in your sound r
 Sometimes the best thing you can do for your audio is simply to scout out a quiet room in your house where the sound recording conditions are better. Speaking of recording conditions…
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. Pick a Good Room
@@ -73,6 +73,10 @@ There’s more that goes into picking a good room than how quiet it is. If you t
 You should also pay attention to what’s in the room you’re recording in. Avoid hard, reflective, surfaces like appliances and mirrors which your voice will bounce off of. The same conditions that make you sound great when you sing in the shower will – like recording in a small space -make your voiceover unpleasantly echo-y.
 
 Look for a room that has a lot of soft things in it, like beds and sofas.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4\. Protect your Built-In Mic from Wind
 
@@ -88,13 +92,13 @@ If your built-in mic is on top of your camera you can get something called a ‘
 
 ![Record better audio from wind with micromuff](https://images.wondershare.com/filmora/article-images/record-better-audio-from-wind.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 _You use the adhesive backing to attach the base velcro to your camera. The other side of the velcro has your fluff attached to the back._
 
 The only thing about a micromuff is that it costs about $30, and if you’re going to spend $30 on audio equipment then you could just buy yourself an inexpensive LAV mic. I only bring up the micromuff because it’s a very simple design you can probably DIY – you just need velcro with adhesive backing and any of the fluff-sources we just discussed.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 5\. Use a Free Audio App
 
@@ -103,10 +107,6 @@ If you’re recording on a smartphone, you can download a free app that will let
 Even if you’re not recording video from your smartphone, it might be a good idea to use your phone as your mic and record a separate audio file. You’ll be able to use an app to fine-tune your recording, and you can set your phone up closer to you the way you would an external mic while keeping your camera back a bit farther.
 
 Free audio apps: Hi-Q MP3 Voice Recorder (Android), RecForge II (Android), Smart Voice Recorder (Android), Audio Memos (iOS), and Recorder Plus (iOS).
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 6\. Do a Sound Check
 
@@ -123,7 +123,7 @@ As one of the most widely used video editing software in YouTube video editing, 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -149,20 +149,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-making-insta-videos-audio-the-ultimate-transformation/"><u>[New] 2024 Approved Making Insta Videos Audio The Ultimate Transformation</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/rtisans-shaping-virtual-marvel-universes-for-2024/"><u>[New] Artisans Shaping Virtual Marvel Universes for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ioneer-productions-leading-free-editors-on-android/"><u>[New] Pioneer Productions Leading Free Editors on Android</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/he-ultimate-guide-to-live-recording-best-15-video-resources-for-2024/"><u>[New] The Ultimate Guide to Live Recording - Best 15 Video Resources for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/isual-anonymous-how-to-make-faces-and-objects-invisible-for-2024/"><u>[New] Visual Anonymous How to Make Faces and Objects Invisible for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-channel-flair-free-download-templates/"><u>[Updated] 2024 Approved Channel Flair Free Download Templates</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-the-ultimate-resource-powerdirector-users/"><u>[Updated] The Ultimate Resource PowerDirector Users</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-best-free-youtube-ending-creators-top-6-picks/"><u>2024 Approved Best Free YouTube Ending Creators - Top 6 Picks!</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/future-proofing-filmmaking-with-green-tools-for-2024/"><u>Future-Proofing Filmmaking with Green Tools for 2024</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-tiktok-to-see-more-content-on-your-apple-iphone-13-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Change Location on TikTok to See More Content On your Apple iPhone 13 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-music-from-realme-narzo-60-pro-5g-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Music from Realme Narzo 60 Pro 5G to iPod | Dr.fone</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-transform-viewing-experience-adding-subtitles-on-windows-media-player/"><u>In 2024, Transform Viewing Experience Adding Subtitles on Windows Media Player</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/cting-pics-and-videos-on-iphones-and-androids-with-best-apps/"><u>Perfecting Pics & Videos on iPhones and Androids with Best Apps</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ess-video-to-text-best-ones-online-at-your-fingertips-for-2024/"><u>Seamless Video-to-Text Best Ones Online at Your Fingertips for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/wi-fi-qt-online-movavi/"><u>무료 Wi-Fi용 QT 모항을 바꿀 수 있는 Online 도구 - Movavi</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/5-ultimate-android-and-ios-downloading-tools-reviewed/"><u>[New] 25 Ultimate Android & iOS Downloading Tools Reviewed</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/eamless-video-to-text-best-ones-online-at-your-fingertips/"><u>[New] Seamless Video-to-Text Best Ones Online at Your Fingertips</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-streamline-entertainment-incorporating-subtitles-into-wmp/"><u>[Updated] Streamline Entertainment Incorporating Subtitles Into WMP</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/earning-through-online-beauty-networks-for-2024/"><u>Earning Through Online Beauty Networks for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/your-way-the-insider-guide-to-youtube-video-management-hub/"><u>Find Your Way The Insider Guide to YouTube Video Management Hub</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/how-to-record-teams-video-meeting/"><u>How to Record Teams Video Meeting?</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-swiftly-piece-together-a-stunning-google-photo-collage/"><u>In 2024, Swiftly Piece Together a Stunning Google Photo Collage</u></a></li>
+<li><a href="https://program-issues.techidaily.com/troubleshooting-guide-for-steams-difficulty-in-reaching-its-online-services/"><u>Troubleshooting Guide for Steam's Difficulty in Reaching Its Online Services</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/el-time-on-your-screen-fresh-perspectives-to-watch-youtube-backwards/"><u>Unravel Time on Your Screen Fresh Perspectives to Watch YouTube Backwards</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-superior-performance-of-dji-air-2s-your-definitive-guide/"><u>Unveiling the Superior Performance of DJI Air 2S - Your Definitive Guide</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-from-footage-to-film-how-to-edit-gopro-videos-with-ease-on-macbook-for-2024/"><u>Updated From Footage to Film How to Edit GoPro Videos with Ease on MacBook for 2024</u></a></li>
 </ul></div>
 

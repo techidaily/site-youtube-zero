@@ -1,7 +1,7 @@
 ---
 title: "[New] Achieving High Clickthrough Rates with YT Thumbnails"
-date: 2024-12-20T16:17:20.774Z
-updated: 2024-12-21T16:17:17.337Z
+date: 2024-12-16T16:43:15.056Z
+updated: 2024-12-21T23:40:09.477Z
 tags:
   - ai video
   - ai youtube
@@ -43,6 +43,10 @@ You must have heard the phrase, Never judge a book by its cover. But actually, w
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Best YouTube Thumbnail Size
 
 Being a content creator, you never know which device is being used by the viewer to watch your videos. It can be a smartphone, laptop, pc, or smart TV. It is very important to keep all these devices in mind while choosing a Youtube thumbnail size. For the best possible results, consider the following points while making a thumbnail for your Youtube videos.
@@ -64,10 +68,6 @@ Custom Thumbnail is a tool through which the viewers can understand everything a
 
 ---
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Best Practice From Experiences
 
 Now, since we know the importance of having a custom thumbnail, it is important to know how to make a thumbnail for Youtube look perfect, appealing, and eye-catching at the same time. There are some points to be considered while creating a thumbnail for Youtube. We will provide you with the best practices that we have learned throughout our journey of using Youtube and growing it from zero.
@@ -87,7 +87,7 @@ With your face, it is necessary to put some text on your Youtube thumbnail to le
 ![simple-fonts-recommended](https://images.wondershare.com/filmora/article-images/simple-fonts-recommended.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. #### Use Phrases, not sentence
@@ -96,10 +96,14 @@ If you have ever noticed, Youtube thumbnails are very small in size, making it h
 
 ![piechart-youtube-watchtime-percentage](https://images.wondershare.com/filmora/article-images/piechart-youtube-watchtime-percentage.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![use-phrases-not-sentences](https://images.wondershare.com/filmora/article-images/use-phrases-not-sentences.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. #### Put every stuff on left side
@@ -107,10 +111,6 @@ If you have ever noticed, Youtube thumbnails are very small in size, making it h
 When we navigate to a Youtube thumbnail and place the cursor on it, it shows us two icons, "Watch Later" and "Add to Queue," located on its right size. Come on, you don’t want your beautiful thumbnail that cost you a few hours be covered. To avoid these icons from hiding your important stuff of thumbnail, make sure to put everything on the right side of your thumbnail.
 
 ![put-stuff-on-left](https://images.wondershare.com/filmora/article-images/put-stuff-on-left.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 1. #### Have a unique and Consistent style
 
@@ -123,10 +123,6 @@ Try to make all your thumbnails follow the same style. Following the same style 
 To make your Youtube thumbnail more appealing to the viewers, add circles and arrows to grab viewers' attention to something very important in the video. It will increase the curiosity in the viewers and make them click your videos to learn more.
 
 ![use-elements-to-grab-attention](https://images.wondershare.com/filmora/article-images/use-elements-to-grab-attention.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 1. #### Choose the right tool
 
@@ -143,7 +139,7 @@ Do you know that Youtube can show a 3-second preview of your video when someone 
 ![choose-preview-wisely](https://images.wondershare.com/filmora/article-images/choose-preview-wisely.gif)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ---
@@ -168,10 +164,6 @@ Many of you might be interested in how to make a fortnite thumbnail, so here it 
 
 ![ make-fortnite-thumbnail-step4](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step4.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 1. Place it into the timeline to start working on it.
 
 ![ make-fortnite-thumbnail-step5](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step5.jpg)
@@ -179,6 +171,10 @@ Many of you might be interested in how to make a fortnite thumbnail, so here it 
 1. Now to separate the character from the background, go to the Effects. Under effects, you can find a tab named AI Portraits. Click on AI Portrait. Now drag the Human Segmentation and drop it on the screenshot in the timeline.
 
 ![ make-fortnite-thumbnail-step6](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step6.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 1. It will ask you to purchase it. But there is no need to do that. Just hit Try It.
 
@@ -196,10 +192,6 @@ Many of you might be interested in how to make a fortnite thumbnail, so here it 
 
 ![ make-fortnite-thumbnail-step10](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step10.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 1. To make it more attractive, we can add icons and other elements from Filmora's Element tab. You can also download the stickers from the internet and use them.
 
 ![ make-fortnite-thumbnail-step11](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step11.jpg)
@@ -207,6 +199,10 @@ Many of you might be interested in how to make a fortnite thumbnail, so here it 
 1. After completing the thumbnail, click on the Snapshot icon located below the preview tab of Filmora. Or press "CTRL+ALT+S". It will save a screenshot into the media panel of Filmora.
 
 ![ make-fortnite-thumbnail-step12](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step12.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 1. Right-click on the screenshot and navigate to "Reveal in Explorer". It will open the folder that contains all the screenshots taken from Filmora. Now you can use it as a Fortnite Thumbnail.
 
@@ -227,12 +223,16 @@ Once you have successfully created a custom thumbnail, you can use it in your vi
 ![how-to-add-custom-youtube-thumbnail-to-video-step2](https://images.wondershare.com/filmora/article-images/how-to-add-custom-youtube-thumbnail-to-video-step2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. The thumbnail will be uploaded and attached to the video. Now you can process all the settings and publish the video.
 
 ![how-to-add-custom-youtube-thumbnail-to-video-step3](https://images.wondershare.com/filmora/article-images/how-to-add-custom-youtube-thumbnail-to-video-step3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -240,11 +240,11 @@ Thumbnail is the first thing that helps the viewer decide whether to click on a 
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 Benjamin Arango
 
@@ -267,15 +267,24 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-camera-woes-over-obs-now-functioning/"><u>[New] 2024 Approved Camera Woes Over OBS Now Functioning</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/n-2024-crafting-perfect-thumbnails-for-higher-clickthrough-rates/"><u>[New] In 2024, Crafting Perfect Thumbnails for Higher Clickthrough Rates</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-boosting-channel-earnings-the-step-by-step-famebit-guide-to-affiliates/"><u>[Updated] 2024 Approved Boosting Channel Earnings The Step-by-Step FameBit Guide to Affiliates</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-how-to-see-your-subscribers-on-youtube/"><u>[Updated] 2024 Approved How to See Your Subscribers on YouTube</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-how-to-verify-your-youtube-account/"><u>[Updated] 2024 Approved How to Verify Your YouTube Account?</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-profit-strategies-in-youtube-marketing-for-2024/"><u>[Updated] Profit Strategies in YouTube Marketing for 2024</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/ensuring-optimal-functionality-free-epson-xp-310-driver-download-and-update-instructions/"><u>Ensuring Optimal Functionality: Free Epson XP 310 Driver Download & Update Instructions</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-frp-on-xiaomi-redmi-note-12r-by-drfone-android/"><u>How to Bypass FRP on Xiaomi Redmi Note 12R?</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-the-ultimate-guide-to-synchronized-screen-time-on-yt/"><u>In 2024, The Ultimate Guide to Synchronized Screen Time on YT</u></a></li>
-<li><a href="https://win11.techidaily.com/muting-unsolicited-system-suggestions-in-windows-11/"><u>Muting Unsolicited System Suggestions in Windows 11</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-best-mobile-film-and-picture-capture-tools-for-iphones-and-androids/"><u>[New] In 2024, Best Mobile Film & Picture Capture Tools for iPhones & Androids</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-try-this-groundbreaking-free-valorant-audio-swap-tech/"><u>[New] In 2024, Try This Groundbreaking, Free Valorant Audio Swap Tech</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-master-the-art-of-video-presentations-with-these-themes-for-2024/"><u>[New] Master the Art of Video Presentations with These Themes for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/op-10-youtube-business-channels-and-how-to-create-one-easily-for-2024/"><u>[New] Top 10 YouTube Business Channels and How to Create One Easily for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-enhance-visibility-youtube-thumbnails-made-simple/"><u>[Updated] 2024 Approved Enhance Visibility YouTube Thumbnails Made Simple</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-skyrocket-your-channels-reach-secure-a-10k-views-milestone/"><u>[Updated] 2024 Approved Skyrocket Your Channel's Reach Secure a 10K Views Milestone</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-unlocking-the-full-potential-of-obs-for-your-mac/"><u>[Updated] 2024 Approved Unlocking the Full Potential of OBS for Your Mac</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-boosting-youtube-productions-best-mac-mp4-editors-guide/"><u>[Updated] Boosting YouTube Productions Best Mac MP4 Editors Guide</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-finding-superior-hashtags-for-your-youtube-content/"><u>[Updated] Finding Superior Hashtags for Your YouTube Content</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-cut-to-the-chase-techniques-for-tightening-youtube-content/"><u>2024 Approved Cut to the Chase Techniques for Tightening YouTube Content</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/plified-techniques-to-embed-youtube-content-in-powerpoint-for-2024/"><u>4 Simplified Techniques to Embed YouTube Content in PowerPoint for 2024</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/best-free-mov-file-joining-solutions/"><u>Best Free MOV File Joining Solutions</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/chromebook-and-hp-beginners-guide-to-webcam-recordings-for-2024/"><u>Chromebook & HP Beginner’s Guide to Webcam Recordings for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/discovering-apple-vision-pros-potential-a-weekend-review-with-key-findings-for-tech-enthusiasts-zdnet/"><u>Discovering Apple Vision Pro's Potential: A Weekend Review with Key Findings for Tech Enthusiasts | ZDNET</u></a></li>
+<li><a href="https://techtrends.techidaily.com/easy-steps-for-creating-a-new-account-on-your-oculus-quest-or-quest-2-device/"><u>Easy Steps for Creating a New Account on Your Oculus Quest or Quest 2 Device</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-flawless-photo-management-on-iphone-size-adjustment-basics/"><u>In 2024, Flawless Photo Management on iPhone Size Adjustment Basics</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/rds-that-catapult-hashtag-hacks-in-gameplay-videos-for-2024/"><u>Keywords that Catapult Hashtag Hacks in Gameplay Videos for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/step-by-step-tutorial-on-android-phone-cloud-migration-using-an-external-storage-device/"><u>Step-by-Step Tutorial on Android Phone Cloud Migration Using an External Storage Device</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/top-5-gaming-monitors-to-perfect-ps5-and-xbox-experience-for-2024/"><u>Top 5 Gaming Monitors to Perfect PS5 and Xbox Experience for 2024</u></a></li>
 </ul></div>
 

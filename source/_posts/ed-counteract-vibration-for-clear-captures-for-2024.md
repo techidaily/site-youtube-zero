@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Counteract Vibration for Clear Captures for 2024"
-date: 2024-12-15T16:08:21.873Z
-updated: 2024-12-21T16:07:15.378Z
+date: 2024-12-19T18:38:37.536Z
+updated: 2024-12-21T16:08:39.752Z
 tags:
   - ai video
   - ai youtube
@@ -34,7 +34,7 @@ When you’re trying to grow a channel on YouTube it can feel like equipment is 
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### DIY Your Video with Wondershare Filmora
@@ -43,7 +43,15 @@ Wondershare Filmora has the best video stabilization tool is your videos have a 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Here are 3 of our favorite DIY tripods.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **DIY smartphone tripod using binder clips or hair clips**
 
@@ -59,17 +67,21 @@ Here it is with binder clips:
 
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **DIY adjustable tripod using books and a towel**
 
@@ -88,10 +100,6 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -99,10 +107,6 @@ Gorillapod’s are cool because you can use them like normal tripods, carry them
 Your wire should be fairly stiff and you’ll need three pieces the same length, which should be at least 10 inches. Old clothes hangers work well. This needs to be something strong enough to support the weight of your camera, but soft enough that it’s not impossible for you to bend.
 
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
 
@@ -126,10 +130,6 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -151,19 +151,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/reakdown-of-the-top-9-free-branding-platforms-for-youtube-channels/"><u>[New] Breakdown of the Top 9 Free Branding Platforms for YouTube Channels</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-top-free-youtube-rippers-reviewed/"><u>[Updated] 2024 Approved Top Free YouTube Rippers Reviewed</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-acquire-high-quality-sounds-for-media-creators-in-2024/"><u>[Updated] Acquire High-Quality Sounds for Media Creators, In 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-empowering-videos-with-your-cellphones-camera-function-for-2024/"><u>[Updated] Empowering Videos with Your Cellphone's Camera Function for 2024</u></a></li>
-<li><a href="https://windows11.techidaily.com/9-ways-to-fix-the-0x8004def5-onedrive-error-code-on-windows-11/"><u>9 Ways to Fix the 0X8004def5 OneDrive Error Code on Windows 11</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/automating-microsoft-word-docs-via-chatgpt-a-comprehensive-guide/"><u>Automating Microsoft Word Docs via ChatGPT - A Comprehensive Guide</u></a></li>
-<li><a href="https://driver-download.techidaily.com/download-and-install-updated-drivers-for-enhanced-performance-with-nvidias-gtx-1650-super-on-windows-11/"><u>Download & Install Updated Drivers for Enhanced Performance with NVIDIA's GTX 1650 Super on Windows 11</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/from-observing-to-involved-the-tiktok-life-journey-for-2024/"><u>From Observing to Involved The TikTok Life Journey for 2024</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-5-solutions-for-realme-unlock-without-password-by-drfone-android/"><u>In 2024, 5 Solutions For Realme Unlock Without Password</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-a-guide-asus-rog-phone-8-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>In 2024, A Guide Asus ROG Phone 8 Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-does-apple-iphone-6-plus-have-find-my-friends-drfone-by-drfone-virtual-ios/"><u>In 2024, Does Apple iPhone 6 Plus Have Find My Friends? | Dr.fone</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-ready-for-screen-talent-access-agreement/"><u>In 2024, Ready for Screen Talent Access Agreement</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ique-to-implement-youtube-playlists-smoothly-into-web-pages/"><u>Technique to Implement YouTube Playlists Smoothly Into Web Pages</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ssential-guide-to-professional-thumbnail-dimensions-for-youtube/"><u>The Essential Guide to Professional Thumbnail Dimensions for YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-building-a-powerhouse-business-channel-in-under-5-minutes/"><u>[New] In 2024, Building a Powerhouse Business Channel in Under 5 Minutes</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-comparative-study-of-youtubes-and-dailymentions/"><u>[Updated] 2024 Approved Comparative Study of YouTubes and DailyMentions</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-launching-into-the-world-of-web-flipping-videos-from-mac/"><u>[Updated] In 2024, Launching Into the World of Web-Flipping Videos From Mac</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-expert-voice-editing-software-for-video-content-makers/"><u>2024 Approved Expert Voice Editing Software for Video Content Makers</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/circular-innovator-box/"><u>Circular Innovator Box</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/elevate-your-instagram-game-scouting-the-8-top-post-schedulers-for-2024/"><u>Elevate Your Instagram Game Scouting the 8 Top Post Schedulers for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-deal-with-the-vivo-s17e-screen-black-but-still-works-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Deal With the Vivo S17e Screen Black But Still Works? | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-honor-90-gt-drfone-by-drfone-virtual-android/"><u>In 2024, Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Honor 90 GT? | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-pulse-picking-playbacks-character-beats-unveiled/"><u>In 2024, Pulse-Picking Playbacks Character Beats Unveiled</u></a></li>
+<li><a href="https://driver-download.techidaily.com/install-the-newest-hd-graphics-drivers-from-amd-on-windows-7-systems/"><u>Install the Newest HD Graphics Drivers From AMD on Windows #7 Systems</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/seamless-chat-integration-adding-bing-ai-to-your-android-keyboard-guide/"><u>Seamless Chat Integration: Adding Bing AI to Your Android Keyboard Guide</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/tales-of-trial-by-fire-vs-innovative-challenges/"><u>Tales of Trial by Fire Vs. Innovative Challenges</u></a></li>
 </ul></div>
 

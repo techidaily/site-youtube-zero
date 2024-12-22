@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, DIY Tripods| How to Stabilize Your Camera without Buying a Tripod"
-date: 2024-12-14T16:01:38.376Z
-updated: 2024-12-21T16:02:42.136Z
+date: 2024-12-17T03:14:16.169Z
+updated: 2024-12-21T17:31:20.178Z
 tags:
   - ai video
   - ai youtube
@@ -33,10 +33,6 @@ When you’re trying to grow a channel on YouTube it can feel like equipment is 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### DIY Your Video with Wondershare Filmora
 
 Wondershare Filmora has the best video stabilization tool is your videos have a bad frame or were recorded in dim lights. If a video is shot in bad weather or unfriendly situation where you don’t have all the equipment required for a quality recording, Wondershare Filmora can help you in the background to edit your videos like a pro. And it has all the relevant tools like effects, transitions, background removal, overlays, and background music that could turn your normal video to a professional one.
@@ -60,7 +56,7 @@ Here it is with binder clips:
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 And here it is with hair clips:
@@ -68,12 +64,16 @@ And here it is with hair clips:
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **DIY adjustable tripod using books and a towel**
 
@@ -93,7 +93,7 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
@@ -103,6 +103,10 @@ Gorillapod’s are cool because you can use them like normal tripods, carry them
 Your wire should be fairly stiff and you’ll need three pieces the same length, which should be at least 10 inches. Old clothes hangers work well. This needs to be something strong enough to support the weight of your camera, but soft enough that it’s not impossible for you to bend.
 
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
 
@@ -126,10 +130,6 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -151,20 +151,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/uditing-for-accuracy-youtube-monetization-compliance/"><u>[New] Auditing for Accuracy YouTube Monetization Compliance</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/uzzing-tracks-ultimate-backdrops-for-youtube-shorts/"><u>[New] Buzzing Tracks Ultimate Backdrops for YouTube Shorts</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ow-to-edit-your-video-with-youtube-studio-editor-for-2024/"><u>[New] How to Edit Your Video with YouTube Studio Editor for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-jumpstarting-video-communication-a-3-step-guide-for-snapchat-users/"><u>[New] In 2024, Jumpstarting Video Communication A 3-Step Guide for Snapchat Users</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/everse-engineering-a-youtube-ban-for-2024/"><u>[New] Reverse Engineering a YouTube Ban for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-visual-purity-how-to-exclude-backgrounds-in-recordings/"><u>[New] Visual Purity How to Exclude Backgrounds in Recordings</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-harness-the-power-of-your-mobile-content-on-youtube-starting-now/"><u>[Updated] Harness the Power of Your Mobile Content on YouTube, Starting Now</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-from-aspect-ratio-woes-to-winning-instagram-square-video/"><u>[Updated] In 2024, From Aspect Ratio Woes to Winning Instagram Square Video</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-virtual-journeys-ultimate-listing-of-10-free-mmorpg-games/"><u>[Updated] Virtual Journey's Ultimate Listing of 10 Free MMORPG Games</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/a-comprehensive-walkthrough-for-windows-11-webcam-driver-updates/"><u>A Comprehensive Walkthrough for Windows 11 Webcam Driver Updates</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/final-cut-pro-sound-design-how-to-source-free-sound-effects-online/"><u>Final Cut Pro Sound Design How to Source Free Sound Effects Online</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/hp-laptops-silent-restore-sound-functionality-with-these-windows-11-fixes/"><u>HP Laptops Silent? Restore Sound Functionality with These Windows 11 Fixes</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/in-2024-leading-6-digital-sound-snipping-applications/"><u>In 2024, Leading 6 Digital Sound Snipping Applications</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ating-video-submission-from-pcmobile-devices-to-youtube-shorts/"><u>Navigating Video Submission From PC/Mobile Devices to YouTube Shorts</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/transform-microsoft-windows-settings-dollar-to-euro-conversion-tutorial/"><u>Transform Microsoft Windows Settings - Dollar to Euro Conversion Tutorial</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/est-15-sci-fi-and-educational-youtube-hubs/"><u>[New] Best 15 Sci-Fi & Educational YouTube Hubs</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/oosting-engagement-perfect-time-stamping-techniques-for-videos-for-2024/"><u>[New] Boosting Engagement Perfect Time-Stamping Techniques for Videos for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/astery-in-youtube-ads-thumbnails-and-banners-for-2024/"><u>[New] Mastery in YouTube Ads Thumbnails & Banners for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-the-experts-choice-top-10-tools-for-spotify-recordings/"><u>[New] The Expert's Choice Top 10 Tools for Spotify Recordings</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ransform-videos-affordable-high-quality-effs-for-2024/"><u>[New] Transform Videos - Affordable, High-Quality Effs for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-maximizing-screen-time-selecting-an-mcn-wisely/"><u>[Updated] 2024 Approved Maximizing Screen Time Selecting an MCN Wisely</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-maximizing-your-youtube-clicks-with-optimal-dimensions/"><u>[Updated] 2024 Approved Maximizing Your YouTube Clicks with Optimal Dimensions</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-amplify-your-iphones-secrets-to-great-silhouettes/"><u>[Updated] Amplify Your iPhones Secrets to Great Silhouettes</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-arcade-alpha-check-in-gamers-thoughts/"><u>[Updated] ARCADE ALPHA CHECK-IN Gamers' Thoughts</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-game-console-sound-amplification-and-modifications-for-ps4ps5/"><u>[Updated] Game Console Sound Amplification and Modifications for PS4/PS5</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-innovating-interaction-beyond-vidcon-conclaves/"><u>[Updated] In 2024, Innovating Interaction Beyond VidCon Conclaves</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-screencast-o-matic-review/"><u>[Updated] Screencast-O-Matic Review</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-a-new-dawn-for-screen-capturing-apeaksoft-reviewed/"><u>2024 Approved A New Dawn for Screen Capturing Apeaksoft Reviewed</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ing-the-ultimate-youtube-musical-collection/"><u>Building the Ultimate YouTube Musical Collection</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/te-your-youtube-gaming-content-with-key-freefire-hashtags/"><u>Elevate Your YouTube Gaming Content With Key FreeFire Hashtags</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/equitable-engagement-ais-artistic-trial-and-judgement/"><u>Equitable Engagement: AI's Artistic Trial and Judgement</u></a></li>
+<li><a href="https://program-issues.techidaily.com/1722998072967-fix-the-crashing-issue-in-elite-dangerous-on-your-computer-today/"><u>Fix the Crashing Issue in Elite Dangerous on Your Computer Today!</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/the-secrets-of-writing-impressive-podcast-summaries-for-2024/"><u>The Secrets of Writing Impressive Podcast Summaries for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/think-twice-before-whispering-confidentials-to-chatgpt/"><u>Think Twice Before Whispering Confidentials to ChatGPT</u></a></li>
 </ul></div>
 

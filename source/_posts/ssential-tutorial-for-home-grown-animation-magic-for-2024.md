@@ -1,7 +1,7 @@
 ---
 title: "\"The Essential Tutorial for Home-Grown Animation Magic for 2024\""
-date: 2024-12-16T16:01:28.282Z
-updated: 2024-12-21T16:09:15.237Z
+date: 2024-12-20T01:56:30.004Z
+updated: 2024-12-22T00:36:01.130Z
 tags:
   - ai video
   - ai youtube
@@ -52,7 +52,7 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Mt. Mograph](https://www.youtube.com/channel/UCSUSgx9qc%5FNydrOL59xbJIA)**
@@ -70,7 +70,7 @@ Lynda isn’t free, but the 10-day free trial period is definitely long enough f
 What’s great about this course is that it assumes you have no animation experience, and it walks you through the main thing a lot of YouTubers want to learn animation for – creating an animated logo.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Bloop Animation](https://www.bloopanimation.com/)**
@@ -78,7 +78,7 @@ What’s great about this course is that it assumes you have no animation experi
  Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Video Copilot](http://www.videocopilot.net/)**
@@ -88,7 +88,7 @@ This site has a huge number of free After Effects tutorials. There are basic int
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -112,16 +112,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/ecrets-to-an-effective-youtube-closure-for-2024/"><u>[New] Secrets to an Effective YouTube Closure for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-step-by-step-to-easy-nft-crafting/"><u>[New] Step-by-Step to Easy NFT Crafting</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-simplified-approach-to-removing-youtube-comments-with-ease/"><u>[Updated] In 2024, Simplified Approach to Removing YouTube Comments with Ease</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-premier-10-decibel-boosters-macos-to-mobile-devices/"><u>2024 Approved Premier 10 Decibel Boosters MacOS to Mobile Devices</u></a></li>
-<li><a href="https://location-fake.techidaily.com/6-ways-to-change-spotify-location-on-your-realme-gt-5-pro-drfone-by-drfone-virtual-android/"><u>6 Ways to Change Spotify Location On Your Realme GT 5 Pro | Dr.fone</u></a></li>
-<li><a href="https://win-outstanding.techidaily.com/1728498398632-aomei-image-deploy/"><u>安全點亮 AOMEI Image Deploy：您的鏡像部署視頻教程</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/o-completely-erase-youtube-shorts-footprint-for-2024/"><u>How To Completely Erase YouTube Shorts Footprint for 2024</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-iphone-15-plus-without-passcode-4-easy-methods-drfone-by-drfone-ios/"><u>In 2024, How To Unlock iPhone 15 Plus Without Passcode? 4 Easy Methods | Dr.fone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-youtubes-highest-paying-content-creator/"><u>In 2024, YouTube's Highest Paying Content Creator</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/journey-from-gifs-to-stickers-perfect-instructions-for-all-chat-platforms/"><u>Journey From GIFs to Stickers Perfect Instructions for All Chat Platforms</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ate-guide-7-prime-free-video-tag-extractors/"><u>Ultimate Guide 7 Prime Free Video Tag Extractors</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/eginning-your-blog-journey-for-financial-gain-for-2024/"><u>[New] Beginning Your Blog Journey for Financial Gain for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/etailed-explanation-of-youtubes-operation-after-a-video-goes-live/"><u>[New] Detailed Explanation of YouTube's Operation After a Video Goes Live</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-elevate-your-tiktok-must-know-editing-insights/"><u>[New] In 2024, Elevate Your TikTok Must-Know Editing Insights</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-master-the-art-of-video-sending-from-youtube-to-dailymotion/"><u>[New] Master the Art of Video Sending From YouTube to Dailymotion</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-choosing-youtube-downloader-apps-on-your-android-device/"><u>[Updated] Choosing YouTube Downloader Apps on Your Android Device</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/discover-unparalleled-performance-in-depth-review-of-hyte-thicc-q60-quietest-and-strongest-240mm-aio-cooler/"><u>Discover Unparalleled Performance: In-Depth Review of Hyte THICC Q60 Quietest & Strongest 240MM AIO Cooler</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/expert-guide-correcting-260nci-wi-fi-adapters-usb-connection-error/"><u>Expert Guide: Correcting 260nCi Wi-Fi Adapter's USB Connection Error</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-bring-your-ideas-to-life-a-practical-guide-to-screen-recording-on-macos/"><u>In 2024, Bring Your Ideas to Life A Practical Guide to Screen Recording on MacOS</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-excellence-exchange-global-creators/"><u>In 2024, Excellence Exchange Global Creators</u></a></li>
+<li><a href="https://fox-access.techidaily.com/parting-pleasantries-free-and-paid-outro-snippets/"><u>Parting Pleasantries Free & Paid Outro Snippets</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/windows-desktop-recording-techniques-no-cost/"><u>Windows Desktop Recording Techniques - No Cost</u></a></li>
 </ul></div>
 
