@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Building Confidence Against YouTube Critiques"
-date: 2024-08-16T04:16:38.028Z
-updated: 2024-08-17T04:16:38.028Z
+date: 2024-12-16T17:40:32.898Z
+updated: 2024-12-20T16:14:46.517Z
 tags:
   - ai video
   - ai youtube
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/f999915018347bdff47350b20a165acd94706d7ed
  Mar 27, 2024• Proven solutions
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
 
@@ -54,20 +58,21 @@ thumbnail: https://thmb.techidaily.com/f999915018347bdff47350b20a165acd94706d7ed
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -76,8 +81,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/aming-insiders-youtube-channels-you-should-see/"><u>[New] Gaming Insiders' YouTube Channels You Should See</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-leading-edge-headsets-for-drone-vr-use/"><u>[New] Leading Edge Headsets for Drone VR Use</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-5-tips-to-get-more-views-with-youtube-optimization/"><u>[Updated] 2024 Approved 5 Tips to Get More Views with YouTube Optimization</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-elevating-online-presence-how-to-flawlessly-transmit-upside-down-videos-on-youtube/"><u>[Updated] 2024 Approved Elevating Online Presence How to Flawlessly Transmit Upside-Down Videos on Youtube</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-how-to-design-an-eye-catching-logo-for-podcasts/"><u>[Updated] How to Design an Eye-Catching Logo for Podcasts</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/rt-with-precision-10-leading-tools-from-flv-to-youtube-platforms/"><u>Convert with Precision 10 Leading Tools From Flv to YouTube Platforms</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/o-add-logo-or-watermark-to-youtube-video/"><u>How to Add Logo or Watermark to YouTube Video</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-8-best-apps-for-screen-mirroring-motorola-moto-g34-5g-pc-drfone-by-drfone-android/"><u>In 2024, 8 Best Apps for Screen Mirroring Motorola Moto G34 5G PC | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-oneplus-open-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from OnePlus Open to Other Android Devices Devices? | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/by-step-guide-to-custom-youtube-thumbnail-sizes/"><u>Step-by-Step Guide to Custom YouTube Thumbnail Sizes</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/tailoring-youtube-shorts-thumbnails-made-simple-for-2024/"><u>Tailoring Youtube Shorts Thumbnails Made Simple for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-verdict-on-criacrs-bluetooth-fm-transmitter-cp24-review-reveals-a-small-package-with-big-issues/"><u>The Verdict on Criačr's Bluetooth FM Transmitter: CP24 Review Reveals a Small Package with Big Issues</u></a></li>
+<li><a href="https://win-workspace.techidaily.com/yl-computing-analysis-key-figures-signing-the-nanjing-treaty-in-1842-unveiled/"><u>YL Computing Analysis: Key Figures Signing the Nanjing Treaty in 1842 Unveiled</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

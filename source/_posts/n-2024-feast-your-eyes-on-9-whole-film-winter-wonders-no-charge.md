@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Feast Your Eyes on 9 Whole-Film Winter Wonders  No Charge\""
-date: 2024-12-05T16:09:33.512Z
-updated: 2024-12-12T16:25:31.721Z
+date: 2024-12-14T00:59:37.851Z
+updated: 2024-12-21T12:34:16.847Z
 tags:
   - ai video
   - ai youtube
@@ -31,21 +31,21 @@ If you are looking for Christmas entertainment this season you may be quick to l
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1. The nutcracker 1990
 
 The Nutcracker is a holiday classic that many people seek out every year on the stage. This family ballet classic was filmed by the Pacific Northwest ballet in a huge and lavish version of the production in 1986\. This still stands as one of the best versions of the Nutcracker ever captured on film and you can watch it for free on YouTube. You can find the Nutcracker at :
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2. A smoky mountain Christmas
 
 A Smoky Mountain Christmas is a film from 1986 directed by Harry Winkler and starring Lee Majors and Dolly Parton. The full musical fairy tale can be found online on YouTube and it's about a country singer who is trying to spend a quiet Christmas holiday at home. She suddenly becomes involved with a mysterious mountain man, an evil witch and is forced to protect seven orphans over the holidays. This film can be found at:
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 3. Ernest saves Christmas
 
@@ -60,7 +60,7 @@ A Christmas story has long been one of the favorite Christmas movies for many fa
 In this film from 1998 we hear the story of the richest kid in the world on Christmas. In this film we see the richest in the world wishing that he had never been born with the wish coming true. Richie needs to find himself a new wishing machine and a way out of the parallel universe he gets stuck in to get back to his family. You can find this film at:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 6. On the second day of Christmas
@@ -68,12 +68,16 @@ In this film from 1998 we hear the story of the richest kid in the world on Chri
 This film stars the hulk Mark Ruffalo in one of his earlier roles as a store employee who catches a con woman trying to steal from a department store on Christmas. His character agrees to be responsible for the con woman and her niece over the holidays to prevent them from staying with social services. A romance develops! This 1997 film can be found at:
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 7. Santa Who?
 
 Santa who is a film from the year 2000 starring Leslie Nielsen. In this holiday classic Santa suffers a severe case of amnesia on Christmas Eve and needs to recover for Christmas day in order to make it through and deliver presents to all of the good children of the world. See if Santa gets his Christmas memories back by watching Santa Who here:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 8. A Christmas Carol
 
@@ -84,10 +88,6 @@ In this film from 1984 George C Scott brings to life the role of Ebenezer Scroog
 In this recreation of the original film from 1947 this shortened full-length version from 1955 per trade is the classic story of santa on trial. A department store Santa suggests that he's the real santa and goes on trial to prove it. In this version of miracle on 34th Street starring Thomas Mitchell and Macdonald Carey we learn who really believes in Santa Claus. You can find this classic film here:
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -110,20 +110,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-connecting-players-and-friends-stream-xbox-to-fb-for-2024/"><u>[New] Connecting Players & Friends Stream Xbox to FB for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/levate-your-marketing-game-free-50-youtube-adornments-here-in-2024/"><u>[New] Elevate Your Marketing Game - Free 50 YouTube Adornments Here, In 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/outube-producers-favorite-cameras-and-lenses/"><u>[New] YouTube Producers' Favorite Cameras & Lenses</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-creative-camerawork-innovative-techniques-for-video-savvy-youtubers-for-2024/"><u>[Updated] Creative Camerawork Innovative Techniques for Video-Savvy YouTubers for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-maximizing-profits-the-guide-to-gainful-youtube-endeavors-sans-ads/"><u>[Updated] In 2024, Maximizing Profits The Guide to Gainful YouTube Endeavors Sans Ads</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-increase-viewership-fairly-insights-for-video-marketers/"><u>[Updated] Increase Viewership Fairly Insights for Video Marketers</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-mastering-zoom-audio-production-comprehensive-tips-and-techniques-for-professionals/"><u>[Updated] Mastering ZOOM Audio Production Comprehensive Tips and Techniques for Professionals</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-seamless-integration-of-srt-files-in-windows-macos-for-2024/"><u>[Updated] Seamless Integration of SRT Files in Windows, MacOS for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-budget-friendly-sponsorship-blueprint-for-youtube-enthusiasts/"><u>2024 Approved Budget-Friendly Sponsorship Blueprint for YouTube Enthusiasts</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/breakthrough-tools-an-analysis-of-the-top-10-cost-effective-video-design-schools-on-youtube/"><u>Breakthrough Tools An Analysis of the Top 10 Cost-Effective Video Design Schools on YouTube</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ring-video-realms-significant-post-vidcon-conclaves/"><u>Exploring Video Realms Significant Post-VidCon Conclaves</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-change-netflix-location-to-get-more-country-version-on-motorola-edge-2023-drfone-by-drfone-virtual-android/"><u>How to Change Netflix Location to Get More Country Version On Motorola Edge 2023 | Dr.fone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-what-is-filmora-certified-creative-program-and-how-to-become-an-fcc/"><u>In 2024, What Is Filmora Certified Creative Program and How to Become an FCC?</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/tokyoloader-tl/"><u>TokyoLoader ユーザガイド: ダウンロードから始める TL 利用方法とトラブルシューティング</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/updated-the-ultimate-movie-making-blueprint-easy-and-fast-for-2024/"><u>Updated The Ultimate Movie Making Blueprint Easy and Fast for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-the-professionals-handbook-to-video-editing-in-youtube-studio/"><u>[New] In 2024, The Professional's Handbook to Video Editing in YouTube Studio</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-breaking-the-myth-of-color-standards-z32x-reviewed/"><u>[Updated] Breaking the Myth of Color Standards Z32X Reviewed</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-how-to-extract-youtube-media-directly/"><u>[Updated] How to Extract YouTube Media Directly</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-free-software-less-method-to-save-youtube-videos/"><u>2024 Approved Free Software-Less Method to Save YouTube Videos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-the-pulse-of-printed-words-2-methods-of-bouncing-text/"><u>2024 Approved The Pulse of Printed Words 2 Methods of Bouncing Text</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/tive-cornerstones-essential-educational-content-yt/"><u>Cognitive Cornerstones Essential Educational Content YT</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/crack-the-code-to-crystal-clear-sounds-in-cod-warzone-pc-solutions/"><u>Crack the Code to Crystal Clear Sounds in COD: Warzone - PC Solutions</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/vering-the-top-8-truly-efficient-advancement-services-for-2024/"><u>Discovering the Top 8 Truly Efficient Advancement Services for 2024</u></a></li>
+<li><a href="https://driver-install.techidaily.com/gaomon-s620-drivers-installation-made-simple/"><u>Gaomon S620 Drivers Installation Made Simple</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-spotify-location-after-moving-to-another-country-on-infinix-hot-30-5g-drfone-by-drfone-virtual-android/"><u>How to Change Spotify Location After Moving to Another Country On Infinix Hot 30 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-youtubes-easy-guide-to-exceptional-thumbnails/"><u>In 2024, YouTube's Easy Guide to Exceptional Thumbnails</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138580207-9781462061181-lucid-death/"><u>Lucid Death | Free Book</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/omplete-users-manual-to-youtube-editing-via-finalcut-pro/"><u>The Complete User's Manual to YouTube Editing via FinalCut Pro</u></a></li>
 </ul></div>
 

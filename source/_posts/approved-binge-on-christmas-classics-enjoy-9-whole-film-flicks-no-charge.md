@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Binge on Christmas Classics  Enjoy 9 Whole-Film Flicks No Charge\""
-date: 2024-08-16T04:17:13.379Z
-updated: 2024-08-17T04:17:13.379Z
+date: 2024-12-18T07:55:31.481Z
+updated: 2024-12-20T16:39:22.689Z
 tags:
   - ai video
   - ai youtube
@@ -34,16 +34,10 @@ The Nutcracker is a holiday classic that many people seek out every year on the 
 
 A Smoky Mountain Christmas is a film from 1986 directed by Harry Winkler and starring Lee Majors and Dolly Parton. The full musical fairy tale can be found online on YouTube and it's about a country singer who is trying to spend a quiet Christmas holiday at home. She suddenly becomes involved with a mysterious mountain man, an evil witch and is forced to protect seven orphans over the holidays. This film can be found at:
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 3. Ernest saves Christmas
 
 This film from 1989 features Jim Varney and his most famous character Ernest in a holiday Christmas movie that is an instant classic. This film is very funny and a favorite amongst some of the Ernest films for many. This Christmas movie from 1989 can be found at:
 
-<!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 4. A Christmas story
 
 A Christmas story has long been one of the favorite Christmas movies for many families. In this film from 1983 we travel back in time to a traditional 1940s Christmas. In this film we follow the nine-year-old Ralphie who is looking for the famous red Ryder BB gun for Christmas and will stop at absolutely nothing to get it. A Christmas story can be found at:
@@ -53,33 +47,41 @@ A Christmas story has long been one of the favorite Christmas movies for many fa
 In this film from 1998 we hear the story of the richest kid in the world on Christmas. In this film we see the richest in the world wishing that he had never been born with the wish coming true. Richie needs to find himself a new wishing machine and a way out of the parallel universe he gets stuck in to get back to his family. You can find this film at:
 
 <!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 6. On the second day of Christmas
 
 This film stars the hulk Mark Ruffalo in one of his earlier roles as a store employee who catches a con woman trying to steal from a department store on Christmas. His character agrees to be responsible for the con woman and her niece over the holidays to prevent them from staying with social services. A romance develops! This 1997 film can be found at:
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 7. Santa Who?
 
 Santa who is a film from the year 2000 starring Leslie Nielsen. In this holiday classic Santa suffers a severe case of amnesia on Christmas Eve and needs to recover for Christmas day in order to make it through and deliver presents to all of the good children of the world. See if Santa gets his Christmas memories back by watching Santa Who here:
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 8. A Christmas Carol
 
 In this film from 1984 George C Scott brings to life the role of Ebenezer Scrooge from the perspective of the Charles Dickens novel. This is heavily been regarded as one of the most accurate versions to the Charles Dickens story. Although it may not have all of the special effects of some of the other versions of a Christmas carol this is still one of the favored versions of the story out there. You can watch this 1984 film here:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 9. Miracle on 34th street
 
 In this recreation of the original film from 1947 this shortened full-length version from 1955 per trade is the classic story of santa on trial. A department store Santa suggests that he's the real santa and goes on trial to prove it. In this version of miracle on 34th Street starring Thomas Mitchell and Macdonald Carey we learn who really believes in Santa Claus. You can find this classic film here:
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -88,14 +90,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -104,4 +103,24 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-vlc-and-mx-showdown-for-media-loading/"><u>[New] 2024 Approved VLC and MX Showdown for Media Loading</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/oost-your-gaming-presence-with-these-top-14-video-ideas-for-2024/"><u>[New] Boost Your Gaming Presence with These Top 14 Video Ideas for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/arnessing-youtubes-true-potential-in-studio-for-2024/"><u>[New] Harnessing YouTube's True Potential in Studio for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/he-ultimate-guide-to-pre-recorded-yoga-on-youtube-for-2024/"><u>[New] The Ultimate Guide to Pre-Recorded Yoga on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-sifting-commentary-on-youtube/"><u>[Updated] Sifting Commentary on YouTube</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/accessing-ai-dialogue-bashscripting-and-shellgpt-integration/"><u>Accessing AI Dialogue: BashScripting and ShellGPT Integration</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ving-visual-excellence-aspect-ratio-mastery-on-youtube/"><u>Achieving Visual Excellence ASPECT RATIO Mastery on YOUTUBE</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/cing-creativity-and-monetization-in-youtube-shorts/"><u>Balancing Creativity and Monetization in YouTube Shorts</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/ces-2023-highlights-from-day-two-top-tech-unveilings-featured-by-zdnet/"><u>CES 2023 Highlights From Day Two: Top Tech Unveilings Featured by ZDNet</u></a></li>
+<li><a href="https://fox-pages.techidaily.com/come-eseguire-il-backup-delle-cartelle-di-microsoft-outlook-con-questa-guida-completa/"><u>Come Eseguire Il Backup Delle Cartelle Di Microsoft Outlook Con Questa Guida Completa</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/e-imagination-crafting-engaging-content-themes-for-2024/"><u>Ignite Imagination Crafting Engaging Content Themes for 2024</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-remove-find-my-iphone-without-apple-id-from-your-iphone-6-by-drfone-ios/"><u>In 2024, How to Remove Find My iPhone without Apple ID From your iPhone 6?</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-master-higher-rankings-on-yt-the-best-seo-tips-and-tricks-1-11/"><u>In 2024, Master Higher Rankings on YT The Best SEO Tips and Tricks (1-11)</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-tracking-the-financial-success-of-carryminati-ajey/"><u>In 2024, Tracking the Financial Success of CarryMinati (Ajey)</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/pro-tips-for-efficient-message-reactions-on-discord/"><u>Pro Tips for Efficient Message Reactions on Discord</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210913663-9780717194018-the-truth-about-love/"><u>The Truth About Love | Free Book</u></a></li>
+<li><a href="https://program-issues.techidaily.com/ultimate-guide-troubleshooting-and-resolving-paladins-game-crashes/"><u>Ultimate Guide: Troubleshooting & Resolving Paladins Game Crashes</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Shedding Light  Techniques for Improving YouTube Video Quality for 2024\""
-date: 2024-08-16T04:15:48.937Z
-updated: 2024-08-17T04:15:48.937Z
+date: 2024-12-16T22:05:30.401Z
+updated: 2024-12-21T09:13:01.254Z
 tags:
   - ai video
   - ai youtube
@@ -50,21 +50,17 @@ Window lighting for me was especially difficult to work with because I live in a
 Above are two freeze frames from one of Daniel's past window-lit vlogs. Although these two frames are both from the same vlog, you can see that the image on the right looks brighter due to clearer skies at that moment. These varying amounts of light is what you will have to deal with if you choose to light your YouTube video with window lighting.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 2. Home Lighting
 
 Home lighting is another source of light that many new YouTubers use. In the past, when my window light wasn’t strong enough to light my video recording space, I would turn on the ceiling light.
 
 ![Mixed Lighting](https://images.wondershare.com/filmora/article-images/home-lighting-for-youtube-videos.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
-
- It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
-
-  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
-
-  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Notice how the color of Daniel's skin looks much more orange here (above) than the color of the skin in the two side-by-side window lighting examples? The side of the face also appears to look bluer. This all happened because he mixed up different color temperatures shining out of the two lights (cooler window light and warmer ceiling light).
@@ -74,15 +70,13 @@ Most home lighting is warmer in its color temperature. If you want to use your h
 Ceiling lights are also typically situated in the center of a room in order to light an entire room evenly. This is not likely to be the best location for your filming video. Since the ceiling light was directly above the face in the above example, you can see harder shadows beneath his cheeks.
 
 <!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2: Home Studio Lighting
 
 If you rather not deal with all the window and home lighting challenges, you can set up studio lighting in your home.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### 1. Light Control
 
 The first thing you’ll want to do to set up studio lighting in your home is to pick a room to film in and eliminate as much external lighting as you can. Use blinds, curtains, towels, or any thick fabric to block sunlight from shining into your room.
@@ -92,6 +86,10 @@ The first thing you’ll want to do to set up studio lighting in your home is to
 The most common setup for studio lighting is 3-point lighting. For this kind of lighting you’ll need three lights: a key light, a fill light, and a back light (also called a hair light).
 
 ![3-Point Lighting](https://images.wondershare.com/filmora/article-images/youtube-lighting-3-point-lighting.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Out of the three lights, the key light should be the brightest. When it is positioned to the left of you (as shown in the diagram above) your right side will have shadows.
 
@@ -112,14 +110,12 @@ For more information on lighting equipment, check out my [Top 17 Video Lighting 
 [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is one of the best video editing software for YouTube beginners to start the YouTube channel. So, if you find the lighting isn't perfect after recording, you can use the Auto Color Enhancement feature in Filmora to adjust the color with one-click. Or, you can change the white balance, Light, color, and HSL manually. Filmora also features some presets and [LUTs templates](https://tools.techidaily.com/wondershare/filmora/download/), which allows you to apply pre-programmed effects to video for color correction faster.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
 <!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -127,14 +123,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -143,4 +136,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/new-android-recording-at-your-fingertips-explore-our-top-8-free-choices/"><u>[New] Android Recording at Your Fingertips – Explore Our Top 8 Free Choices</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ive-into-making-youtube-shorts-comprehensive-video-guide-for-2024/"><u>[New] Dive Into Making YouTube Shorts Comprehensive Video Guide for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/xpert-director-of-visuals-and-music-for-2024/"><u>[New] Expert Director of Visuals and Music for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-incorporate-no-cost-tunes-to-boost-your-vlogs/"><u>[Updated] 2024 Approved Incorporate No-Cost Tunes to Boost Your Vlogs</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-how-to-brand-your-youtube-channel-to-get-more-subscribers/"><u>[Updated] How to Brand Your YouTube Channel to Get More Subscribers</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-free-guide-perfecting-your-youtube-audio-to-text-conversion/"><u>[Updated] In 2024, Free Guide Perfecting Your YouTube Audio-to-Text Conversion</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-streaming-giants-rivalry-facebook-vs-youtube-and-spaces/"><u>[Updated] Streaming Giants' Rivalry Facebook Vs. YouTube & Spaces</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-unveiling-the-complete-image-enhancement-capabilities-with-polarr-for-2024/"><u>[Updated] Unveiling the Complete Image Enhancement Capabilities with Polarr for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-real-time-aspect-ratio-modification-tips/"><u>2024 Approved Real-Time Aspect Ratio Modification Tips</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/2024-approved-secrets-of-crafting-an-exclusive-identifier-on-tiktok/"><u>2024 Approved Secrets of Crafting an Exclusive Identifier on TikTok</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2581647-9780008205317-cancer-2017-your-personal-horoscope/"><u>Cancer 2017: Your Personal Horoscope | Free Book</u></a></li>
+<li><a href="https://some-tips.techidaily.com/cost-effective-yet-questionable-accuracy-a-comprehensive-review-of-the-thermopro-tp67/"><u>Cost-Effective Yet Questionable Accuracy: A Comprehensive Review of the ThermoPro TP67</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/interest-to-action-formulating-video-topics-with-google-trends-for-2024/"><u>From Interest to Action Formulating Video Topics with Google Trends for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/2622874-9781936740277-imperfect-spirituality/"><u>Imperfect Spirituality | Free Book</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-transforming-your-vlog-video-structure-with-jump-cuts/"><u>In 2024, Transforming Your Vlog Video Structure with Jump Cuts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/keywords-made-simple-oxford-and-mondlys-way/"><u>Keywords Made Simple: Oxford & Mondly's Way</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/roduction-meets-post-production-premiere-and-youtube-for-2024/"><u>Pre-Production Meets Post-Production Premiere and YouTube for 2024</u></a></li>
+</ul></div>
 

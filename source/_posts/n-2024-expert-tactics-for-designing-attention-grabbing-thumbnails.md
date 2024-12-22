@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Expert Tactics for Designing Attention-Grabbing Thumbnails\""
-date: 2024-12-08T19:39:24.038Z
-updated: 2024-12-12T22:14:29.210Z
+date: 2024-12-18T10:12:31.351Z
+updated: 2024-12-21T08:04:50.094Z
 tags:
   - ai video
   - ai youtube
@@ -42,7 +42,7 @@ Viewers click on thumbnails that both standout and feel relevant to their search
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: How to Make a YouTube Thumbnail
@@ -52,10 +52,6 @@ In order to create a custom video thumbnail, you’ll need a program to put it t
 Here are some examples of popular thumbnail styles.
 
  ![Popular YouTube Thumbnail Layout](https://images.wondershare.com/filmora/article-images/popular-youtube-thumbnail-layout.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. The Classic Thumbnail (Photo or Screenshot)
 
@@ -91,10 +87,6 @@ The three main elements of the Emotional Laser thumbnail are a background (usual
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### #1. Ham It Up (Take Your Reaction Photo)
 
 Take a high-quality photograph of yourself conveying strong emotion. Generally, you want to look extremely excited, disgusted, angry, or shocked depending on the theme of the video.
@@ -117,6 +109,10 @@ In your thumbnail maker or a program like Photoshop, you’ll need to put your p
 
 If instead of an object you plan to fill the other side of your thumbnail with text, question marks, emojis, or some other graphic element then now is the time to add it.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: How to Upload a YouTube Thumbnail
 
 When you upload a new video to YouTube, you will see a **Custom thumbnail** option under **Video thumbnails** after your upload is complete.
@@ -134,6 +130,10 @@ YouTube recommends that thumbnail images have a resolution of **1280x720px**, an
 
 Make sure that all of your thumbnails adhere to YouTube’s Community guidelines. Anything sexually suggestive, violent, or otherwise graphic could result in your video being age-restricted.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: YouTube Thumbnail Makers
 
 You don’t have to go out and buy a photo editor like Photoshop to make custom video thumbnails (although it’s a good thing to use if you already have it). Here are two free online programs you can use instead:
@@ -149,7 +149,7 @@ You can make changes to the colors in your Spark thumbnail easily by selecting a
 Click to check more [YouTube thumbnail makers](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: How to Make Thumbnails That Get Clicks (Without Clickbait!)
@@ -190,10 +190,6 @@ Type your video’s title or topic into the search engine on YouTube and look at
 
 Generally, if most of the thumbnails have the same layout, you’ll want to mimic that layout. Where you can break from the crowd is in the colors, fonts, and graphics you use.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 5: Animated YouTube Thumbnails
 
 Whether or not you upload a custom thumbnail to YouTube, YouTube’s A.I will choose what it thinks are the 3 juiciest seconds of your video (you cannot choose for yourself) and play them as a GIF-like animation when people mouseover your video thumbnails.
@@ -207,6 +203,10 @@ Alright, now that you know everything about YouTube thumbnails, go make one! Tel
 As one of the most widely used video editing software in YouTube video editing, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) provides lots of templates and effects with an intuitive interface. Download the free trial version and get started now.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -231,17 +231,15 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/uilding-a-professional-online-brand-as-a-game-vlogger-for-2024/"><u>[New] Building a Professional Online Brand as a Game Vlogger for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-twitter-vids-deep-dive-a-comprehensive-handbook/"><u>[New] In 2024, Twitter Vids Deep Dive A Comprehensive Handbook</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-transform-your-viewership-with-immersive-360-livestreams-on-youtube/"><u>[Updated] 2024 Approved Transform Your Viewership with Immersive 360° Livestreams on YouTube</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-shegames-legends-youtubes-number-one-ten/"><u>[Updated] In 2024, SheGames Legends YouTube's Number One Ten</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-photosynth-pros-a-quick-snapchat-peek-for-2024/"><u>[Updated] Photosynth Pros A Quick Snapchat Peek for 2024</u></a></li>
-<li><a href="https://win-cheats.techidaily.com/download-the-latest-lyrx-17-upgrade-new-feature-includes-user-friendly-karaoke-request-functionality/"><u>Download the Latest LYRX 1.7 Upgrade: New Feature Includes User-Friendly Karaoke Request Functionality</u></a></li>
-<li><a href="https://techtrends.techidaily.com/fix-d3dx-library-not-found-d3dx933dll-expert-tips-and-solutions/"><u>Fix D3DX Library Not Found (d3dx9_33.dll): Expert Tips and Solutions</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/guide-to-perfect-images-the-no-money-way-for-2024/"><u>Guide to Perfect Images The No-Money Way for 2024</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-vivo-v27-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Additional Tips About Sinnoh Stone For Vivo V27 Pro | Dr.fone</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/in-2024-finding-the-perfect-screen-recorder-for-games/"><u>In 2024, Finding the Perfect Screen Recorder for Games</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-tecno-spark-go-2023-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Tecno Spark Go (2023)? | Dr.fone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-instagram-integration-with-youtube-video-sharing/"><u>In 2024, Instagram Integration with YouTube Video Sharing</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/rom-vision-to-visuals-craft-your-story-with-youtube-editor/"><u>[New] From Vision to Visuals Craft Your Story with YouTube Editor</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-effortless-music-playlist-creation-for-youtube-anywhere-webmobile/"><u>[New] In 2024, Effortless Music Playlist Creation for YouTube, Anywhere (Web/Mobile)</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-securing-social-media-memories-the-latest-on-downloading-fb-statuses/"><u>[New] Securing Social Media Memories The Latest on Downloading Fb Statuses</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-the-ultimate-guide-to-fb-timing-and-free-tools-for-2024/"><u>[New] The Ultimate Guide to FB Timing & Free Tools for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ncovering-youtube-dialogues-for-2024/"><u>[New] Uncovering YouTube Dialogues for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-visionsplit-assessment-overview-for-2024/"><u>[New] VisionSplit Assessment Overview for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-top-10-journeys-from-around-the-world-on-youtube/"><u>[Updated] In 2024, Top 10 Journeys From Around the World, on Youtube</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-gps-location-on-vivo-v29e-easily-and-safely-drfone-by-drfone-virtual-android/"><u>How to Change GPS Location on Vivo V29e Easily & Safely | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-rapid-adjustment-of-youtube-vids-for-mac-screen/"><u>In 2024, Rapid Adjustment of YouTube Vids for Mac Screen</u></a></li>
+<li><a href="https://win11.techidaily.com/reintroduce-missing-cameras-to-device-manager-display/"><u>Reintroduce Missing Cameras to Device Manager Display</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Constructive Approaches to Defeating Digital Trolls"
-date: 2024-08-16T04:16:09.789Z
-updated: 2024-08-17T04:16:09.789Z
+date: 2024-12-20T09:27:51.218Z
+updated: 2024-12-21T08:01:18.926Z
 tags:
   - ai video
   - ai youtube
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/f0f1add4f06bedd9b4441c0d9e38e221d87204ef2
  Mar 27, 2024• Proven solutions
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
 
@@ -54,20 +58,21 @@ thumbnail: https://thmb.techidaily.com/f0f1add4f06bedd9b4441c0d9e38e221d87204ef2
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -76,8 +81,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/raftsman-of-the-multimedia-medley-for-2024/"><u>[New] Craftsman of the Multimedia Medley for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-discover-every-aspect-of-io-visual-logging/"><u>[New] Discover Every Aspect of IO Visual Logging</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-developing-eye-catching-podcast-previews/"><u>[New] In 2024, Developing Eye-Catching Podcast Previews</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-insights-on-how-youtube-handles-uploaded-videos/"><u>[New] Insights on How YouTube Handles Uploaded Videos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/mile-and-watch-your-guide-to-the-top-15-funny-youtubers-for-2024/"><u>[New] Smile and Watch Your Guide to the Top 15 Funny YouTubers for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-access-tons-of-free-vocal-textures-in-2024/"><u>[Updated] Access Tons of Free Vocal Textures, In 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-backtracking-visuals-proficient-strategies-for-insta-image-source-for-2024/"><u>[Updated] Backtracking Visuals Proficient Strategies for Insta Image Source for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-the-comprehensive-blueprint-for-youtube-earnings-enhancement/"><u>[Updated] In 2024, The Comprehensive Blueprint for YouTube Earnings Enhancement</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-unleash-creative-filmmaking-youtube-guides-and-extras/"><u>[Updated] In 2024, Unleash Creative Filmmaking YouTube Guides & Extras</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-peak-performance-photography-the-ultimate-10-4k-mobile-camera-lineup/"><u>[Updated] Peak Performance Photography The Ultimate 10 4K Mobile Camera Lineup</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/dells-game-changing-battery-boost-introducing-snapdragon-x-chips-in-the-xps-13-plus-lineup/"><u>Dell's Game-Changing Battery Boost: Introducing Snapdragon X Chips in the XPS 13 Plus Lineup</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-oppo-reno-11-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How can I get more stardust in pokemon go On Oppo Reno 11 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-stream-like-never-before-turning-on-youtubes-av1/"><u>In 2024, Stream Like Never Before Turning On YouTube's AV1</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-thriving-in-the-youtube-ecosystem-backlink-building-essentials/"><u>In 2024, Thriving in the YouTube Ecosystem Backlink Building Essentials</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/seamlessly-switching-on-updated-widget-selection-interface-in-windows-11/"><u>Seamlessly Switching on Updated Widget Selection Interface in Windows 11</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

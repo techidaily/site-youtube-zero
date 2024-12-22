@@ -1,7 +1,7 @@
 ---
 title: "[New] Embracing Resilience Against Online Detractors"
-date: 2024-08-16T04:15:43.446Z
-updated: 2024-08-17T04:15:43.446Z
+date: 2024-12-14T07:40:02.437Z
+updated: 2024-12-20T17:32:07.270Z
 tags:
   - ai video
   - ai youtube
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/4f7677089ce9d876fde36aa600317f042b44ee73a
  Mar 27, 2024• Proven solutions
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
 
@@ -54,20 +58,21 @@ thumbnail: https://thmb.techidaily.com/4f7677089ce9d876fde36aa600317f042b44ee73a
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -76,8 +81,16 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-crafting-a-cash-flow-career-with-content-creation-like-ajey-nagar/"><u>[New] In 2024, Crafting a Cash-Flow Career with Content Creation Like Ajey Nagar</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/avigating-payment-options-for-youtube-tv/"><u>[New] Navigating Payment Options for YouTube TV</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/enhancing-authenticity-techniques-to-apply-on-insta-photos-for-2024/"><u>Enhancing Authenticity Techniques to Apply on Insta Photos for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ring-relationships-not-just-viewers-a-guide-to-subscriptions/"><u>Fostering Relationships, Not Just Viewers A Guide to Subscriptions</u></a></li>
+<li><a href="https://article-files.techidaily.com/in-2024-enhance-your-gameplay-top-gaming-monitor-extensions/"><u>In 2024, Enhance Your Gameplay Top Gaming Monitor Extensions</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-flawless-fast-windows-picture-sight/"><u>In 2024, Flawless Fast Windows Picture Sight</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-xiaomi-redmi-note-13-pro-5g-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>In 2024, Xiaomi Redmi Note 13 Pro 5G ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/revive-the-classics-with-modern-tech-ayaneos-retail-ready-amd-am01-mini-pc-is-here/"><u>Revive the Classics with Modern Tech! Ayaneo's Retail-Ready, AMD AM01 Mini PC Is Here!</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/king-success-optimizing-gaming-videos-via-smart-use-of-hashtags/"><u>Unlocking Success Optimizing Gaming Videos via Smart Use of Hashtags</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

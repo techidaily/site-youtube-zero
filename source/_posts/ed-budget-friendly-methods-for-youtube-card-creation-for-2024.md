@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Budget-Friendly Methods for YouTube Card Creation for 2024\""
-date: 2024-08-16T04:17:09.991Z
-updated: 2024-08-17T04:17:09.991Z
+date: 2024-12-18T04:55:47.847Z
+updated: 2024-12-21T06:00:49.219Z
 tags:
   - ai video
   - ai youtube
@@ -40,6 +40,10 @@ thumbnail: https://thmb.techidaily.com/6d8730f2a77f7bacc79151a55ebc1a6b3c6364485
 
 [How To Make an End Card](#how-to)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -68,6 +72,10 @@ You can create a simple intro card in **Filmora**.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
 3. If you have a logo, import it into Filmora and drag it into your picture-in-picture track.
@@ -78,8 +86,9 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -114,8 +123,9 @@ Some creators will leave their end cards at that and play music overtop, but it 
 14. Click **Apply Changes**.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -124,14 +134,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -140,4 +147,20 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/onvert-youtube-sounds-to-wider-reach-mp3-for-mac-users-for-2024/"><u>[New] Convert YouTube Sounds to Wider Reach MP3 for Mac Users for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/irect-linkage-bridging-youtube-and-imovie-with-music-for-2024/"><u>[New] Direct Linkage Bridging YouTube and iMovie with Music for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-pc-audio-logging-made-simple-install-x-recorder/"><u>[Updated] 2024 Approved Pc Audio Logging Made Simple Install X-Recorder</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-top-tech-gear-webcams-that-take-your-streams-up-a-notch/"><u>[Updated] 2024 Approved Top Tech Gear Webcams That Take Your Streams Up a Notch</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-imovie-clip-integration-into-youtubes-vast-network/"><u>[Updated] In 2024, IMovie Clip Integration Into YouTube's Vast Network</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-streamline-your-surf-tips-for-multiple-youtube-views/"><u>[Updated] Streamline Your Surf Tips for Multiple Youtube Views</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-unlocking-cinematic-magic-top-5-filmmaking-insights/"><u>[Updated] Unlocking Cinematic Magic Top 5 Filmmaking Insights</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-photographers-aid-free-mobile-photography-boost/"><u>2024 Approved Photographer's Aid - Free, Mobile Photography Boost</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/o-create-impactful-video-elements-cardsannotations/"><u>How to Create Impactful Video Elements Cards/Annotations</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-deciphering-user-insights-in-youtube-comments/"><u>In 2024, Deciphering User Insights in YouTube Comments</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-reset-gmail-password-on-lava-yuva-3-devices-by-drfone-android/"><u>In 2024, How to Reset Gmail Password on Lava Yuva 3 Devices</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/instructions-turn-on-windows-11s-adaptive-hdr/"><u>Instructions Turn on Windows 11'S Adaptive HDR</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ideo-creators-guide-to-ideal-laptops/"><u>Pro Video Creators' Guide to Ideal Laptops</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Analyzing Video Success  Self Vs. Rivals in the YouTube Arena for 2024\""
-date: 2024-12-08T18:25:29.126Z
-updated: 2024-12-12T21:26:40.505Z
+date: 2024-12-18T19:23:02.136Z
+updated: 2024-12-20T21:35:39.211Z
 tags:
   - ai video
   - ai youtube
@@ -32,7 +32,7 @@ thumbnail: https://thmb.techidaily.com/517296fb76b2495d3ca7ac9af3e02d36cfd22dc3a
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to analyze your own YouTube channel/video?
@@ -49,6 +49,10 @@ thumbnail: https://thmb.techidaily.com/517296fb76b2495d3ca7ac9af3e02d36cfd22dc3a
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-views.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 2\.  Playback Location
 
  As 'Playback locations' of YouTube videos can reveal where does all the traffic come from, it would help your channel figure out for which location the video has fared well. It will guide you to reach the backlinks locations/sites. Knowing the popular locations for your YouTube video being played, you can know whether YouTube is the search engine or they have been diverted from somewhere else. Depending on the video playing locations, the views will be segregated in to embedded video, YouTube watch page, mobile devices, and YouTube channel page. Understanding location specific views would help you decide where should you focus to enhance the performance of your video.
@@ -56,7 +60,7 @@ thumbnail: https://thmb.techidaily.com/517296fb76b2495d3ca7ac9af3e02d36cfd22dc3a
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-playback-location.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 3\.  Demographics
@@ -64,6 +68,10 @@ thumbnail: https://thmb.techidaily.com/517296fb76b2495d3ca7ac9af3e02d36cfd22dc3a
  The demographics page helps you get YouTube insights, using them you can know the audience in a gender and location specific manner. For local businesses targeting a certain region, YouTube analytics would prove to be a boon. You can also know the geography and device used by the viewers with this feature. Understanding the gender and location of people will help you create dedicated product videos that would be helpful to them.
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-demographic.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 4\.  Traffic sources
 
@@ -77,15 +85,15 @@ thumbnail: https://thmb.techidaily.com/517296fb76b2495d3ca7ac9af3e02d36cfd22dc3a
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-audience-retention.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 6\.  Devices
 
  It is important to know which device is being used to watch the video. The metrics is distributed among mobile phones, computer, TV, tablet etc. you will be able to understand whether your video needs to be optimized for a certain video or not.
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-devices.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### 7\.  Likes and dislikes
 
@@ -98,10 +106,6 @@ thumbnail: https://thmb.techidaily.com/517296fb76b2495d3ca7ac9af3e02d36cfd22dc3a
  YouTube analytics help you determine the engagement metrics to explain the origin of your subscribers. It includes both their geo-location, the date of subscription, and the source/medium they used to land with your video on YouTube. You can observe the number of people subscribing and unsubscribing from your YouTube channel.
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-subscribers.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  The subscription stream enables your audience to get suggestions for new videos from your channel and offer better exposure to the service and products you offer.
 
@@ -125,25 +129,21 @@ thumbnail: https://thmb.techidaily.com/517296fb76b2495d3ca7ac9af3e02d36cfd22dc3a
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-cards.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 12\.  Sharing
 
  This aspect sums up the amount of shares of the YouTube video across different social networks along with the share date. Google ranking is influenced with the share numbers, as higher the number more the chances of unique backlinks for your videos.
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-sharing.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 13\.  Videos in playlists
 
  Favorites has been renamed to 'Videos in playlists'. Your reach broadens as people keep marking your videos as favorites on their playlist. This is visible to the public on the YouTube channel itself.
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-playlists.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to analyze your competitors
 
@@ -192,20 +192,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/nline-orbiters-youtube-personalities-at-the-zenith-for-2024/"><u>[New] Online Orbiters YouTube Personalities at the Zenith for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-discover-websites-your-gateway-to-youtube-branded-content/"><u>[Updated] Discover Websites Your Gateway to YouTube Branded Content</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-transforming-views-11-keys-to-thriving-in-facebook-video-marketing/"><u>[Updated] Transforming Views 11 Keys to Thriving in Facebook Video Marketing</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-a-step-by-step-guide-to-using-youtubes-creative-commons-license/"><u>2024 Approved A Step-by-Step Guide to Using YouTube's Creative Commons License</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/2024-approved-improve-chromium-performance-fb-video-streaming/"><u>2024 Approved Improve Chromium Performance FB Video Streaming</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-top-6-creative-editors-on-the-latest-macos-big-sur/"><u>2024 Approved Top 6 Creative Editors on the Latest macOS Big Sur</u></a></li>
-<li><a href="https://facebook.techidaily.com/5-social-strategy-apps-to-optimize-your-content-release/"><u>5 Social Strategy Apps to Optimize Your Content Release</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/building-bespoke-gpt-based-assistants-how-to-customize-your-own-version-of-chatgpt/"><u>Building Bespoke GPT-Based Assistants: How to Customize Your Own Version of ChatGPT</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/highest-rated-10-apps-to-watch-golf-and-soccer-in-the-moment-for-2024/"><u>Highest Rated 10 Apps to Watch Golf & Soccer in the Moment for 2024</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-the-updated-method-to-bypass-nokia-c12-plus-frp-by-drfone-android/"><u>In 2024, The Updated Method to Bypass Nokia C12 Plus FRP</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ative-setup-essentials-for-game-streaming/"><u>Innovative Setup Essentials for Game Streaming</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/h-free-youtube-events-a-step-by-step-guide-for-2024/"><u>Launch Free Youtube Events A Step-by-Step Guide for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/sion-in-performance-utilizing-social-blade-for-youtube-data-for-2024/"><u>Precision in Performance Utilizing Social Blade for YouTube Data for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/premier-strategies-in-sport-broadcasting-technology-for-2024/"><u>Premier Strategies in Sport Broadcasting Technology for 2024</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/quick-and-effective-fixes-for-apple-magic-mouse-tracking-glitches/"><u>Quick and Effective Fixes for Apple Magic Mouse Tracking Glitches</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-turn-off-chatter-secrets-for-muting-users-on-gomeet/"><u>[New] 2024 Approved Turn Off Chatter Secrets for Muting Users on GoMeet</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-discovering-the-top-8-truly-efficient-advancement-services/"><u>[Updated] 2024 Approved Discovering the Top 8 Truly Efficient Advancement Services</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-from-raw-feedback-a-critical-review-of-top-video-editors-for-youtube/"><u>[Updated] 2024 Approved From Raw Feedback A Critical Review of Top Video Editors for YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-hits-and-tags-mastering-the-language-of-virality-in-youtube-shorts/"><u>[Updated] 2024 Approved Hits & Tags Mastering the Language of Virality in YouTube Shorts</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-perfect-harmony-in-vr-exploration/"><u>[Updated] In 2024, Perfect Harmony in VR Exploration</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-your-journey-to-instagram-dominance-started-here-for-2024/"><u>[Updated] Your Journey to Instagram Dominance, Started Here for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-zero-dollar-mac-capture-mastery/"><u>[Updated] Zero-Dollar Mac Capture Mastery</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/clean-slates-mastering-the-eraser-tool-in-photoshop/"><u>Clean Slates Mastering the Eraser Tool in Photoshop</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/o-enhance-video-rankings-on-youtube-through-seo-for-2024/"><u>How to Enhance Video Rankings on YouTube Through SEO for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/utubes-4-second-trick-effective-in-2024/"><u>Is YouTube's 4-Second Trick Effective, In 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/mastering-sound-communication-on-whatsapp/"><u>Mastering Sound Communication on WhatsApp</u></a></li>
 </ul></div>
 
