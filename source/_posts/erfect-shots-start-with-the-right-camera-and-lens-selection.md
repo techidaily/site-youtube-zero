@@ -1,7 +1,7 @@
 ---
 title: "[New] Perfect Shots Start With The Right Camera & Lens Selection"
-date: 2024-12-15T21:01:07.435Z
-updated: 2024-12-21T17:26:56.430Z
+date: 2024-12-25T18:59:15.647Z
+updated: 2024-12-27T16:33:45.201Z
 tags:
   - ai video
   - ai youtube
@@ -62,7 +62,7 @@ With standard lenses or normal lenses, you won’t get the stretched out objects
 Out of all the other ranges in focal lengths, telephoto lenses will appear the most zoomed in. This can be beneficial for the shooter who wants to get a closer shot of a scene without having to physically be in close proximity to the scene. Objects that are further away in the background also appear larger and closer than they would appear on wide-angle or standard lenses.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Vlogging With Each Focal Length Group
@@ -87,15 +87,15 @@ As telephoto lenses are even more zoomed in, you’ll need to be even further aw
 
   In the above video, Marcos Rocha compares different focal lengths for talking head videos. Which focal length range do you like the look of?
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Crop Factor
 
 Focal lengths in camera lenses are measured in millimeters. You can vlog yourself handheld with a 24mm lens on a camera with a full-frame sensor (the sensor is the piece of hardware inside your camera that turns the light it receives into a digital image). But if you use a 24mm lens on a camera with a smaller sensor, like an APS-C sensor or even smaller Micro 4/3 sensor, more of you will get cropped out (see below).
 
  ![Crop Factor](https://images.wondershare.com/filmora/article-images/camera-lenses-crop-factor.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
 
@@ -114,25 +114,17 @@ This table shows you the focal lengths needed to achieve the same shot between c
 | Telephoto                   | 100mm      | 63mm  | 50mm      |
 | Telephoto                   | 200mm      | 125mm | 100mm     |
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Aperture
 
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
 
  ![Camera lenses Aperture Range](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture-range.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Because larger aperture lenses let more light in, they need a shorter time for cameras to compose an image. This is why larger aperture lenses are also called “fast” lenses.
 
@@ -154,6 +146,10 @@ But do you even need a fast lens?
 * Moving subjects more likely to get out of focus when shooting with a large aperture
 * Better continuous autofocus performance needed when shooting moving subjects with a large aperture
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Optical Image Stabilization
 
 Finally, you’ll have to decide whether or not you want your lens to have built-in optical image stabilization (OIS).
@@ -167,6 +163,10 @@ If, however, you are shooting most of your vlogs on a tripod, you won’t need a
  Looking for ways to set up your talking-head shot for YouTube with any of these lenses? Check out our post on [4 Ways To Set Up Your Talking-Head Shots For YouTube](https://tools.techidaily.com/wondershare/filmora/download/).
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -189,18 +189,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/n-2024-enhancing-engagement-with-solutions-to-common-shorts-challenges/"><u>[New] In 2024, Enhancing Engagement with Solutions to Common Shorts Challenges</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-the-ultimate-list-of-world-explorers-on-youtube/"><u>[New] The Ultimate List of World Explorers on Youtube</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ransform-with-the-10-most-exceptional-yoga-video-platforms-for-2024/"><u>[New] Transform with the 10 Most Exceptional Yoga Video Platforms for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ransforming-youtube-video-to-animated-gif-user-friendly-tips-for-2024/"><u>[New] Transforming YouTube Video to Animated GIF User-Friendly Tips for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-effortless-fusion-of-youtube-videos-with-flv-format/"><u>[Updated] 2024 Approved Effortless Fusion of YouTube Videos with FlV Format</u></a></li>
-<li><a href="https://fox-info.techidaily.com/2024-approved-exclusive-lineup-top-10-sources-for-vector-imagery/"><u>2024 Approved Exclusive Lineup Top 10 Sources for Vector Imagery</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/id-users-discover-the-top-youtube-video-clips/"><u>Android Users, Discover the Top YouTube Video Clips</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-photos-from-infinix-by-fonelab-android-recover-photos/"><u>How to Rescue Lost Photos from Infinix ?</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-reimagining-cityscapes-the-integration-of-ecosystem-services/"><u>In 2024, Reimagining Cityscapes The Integration of Ecosystem Services</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/reliable-performance-unveiling-the-ultimate-portability-of-dbpowers-newest-jump-starter-rated-at-6000mah-experts-reviews/"><u>Reliable Performance: Unveiling the Ultimate Portability of DBPOWER's Newest Jump Starter, Rated at 6000mAh - Experts Reviews!</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/revive-your-cortana-top-techniques-for-resolving-common-glitches/"><u>Revive Your Cortana: Top Techniques for Resolving Common Glitches</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/ultimate-tutorial-effortless-installation-of-enzo-addons-into-your-kodi-platform-leia-and-krypton-versions-included/"><u>Ultimate Tutorial: Effortless Installation of Enzo Addons Into Your Kodi Platform – Leia & Krypton Versions Included</u></a></li>
-<li><a href="https://meme-emoji.techidaily.com/updated-how-to-make-a-flv-photo-slideshow/"><u>Updated How to Make a FLV Photo Slideshow</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-tune-treasure-hunt-finding-the-perfect-audio/"><u>[New] In 2024, Tune Treasure Hunt Finding the Perfect Audio</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-xsplit-archive-detailed-video-game-analyses/"><u>[New] XSplit Archive Detailed Video Game Analyses</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-comparing-profit-potential-dailymovement-and-youtubes-earnings/"><u>[Updated] 2024 Approved Comparing Profit Potential DailyMovement and Youtube's Earnings</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-seamless-transitions-smooth-editing-techniques-for-youtube-content/"><u>2024 Approved Seamless Transitions Smooth Editing Techniques for YouTube Content</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/tial-steps-to-producing-a-youtube-hit-music-reaction-video-guide-for-2024/"><u>Essential Steps to Producing a YouTube Hit Music Reaction Video Guide for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/o-design-youtube-introductory-videos-two-pathways-for-2024/"><u>How to Design YouTube Introductory Videos Two Pathways for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-accelerate-your-fb-video-game-the-top-apps-and-plugins-guide/"><u>In 2024, Accelerate Your FB Video Game The Top Apps & Plugins Guide</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-cutting-edge-tips-for-the-aspiring-gopro-4k-editor/"><u>In 2024, Cutting-Edge Tips for the Aspiring GoPro 4K Editor</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-elevate-your-video-presentation-with-these-7-free-makers/"><u>In 2024, Elevate Your Video Presentation with These 7 Free Makers</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-getting-the-pokemon-go-gps-signal-not-found-11-error-in-oppo-a58-4g-drfone-by-drfone-virtual/"><u>In 2024, Getting the Pokemon Go GPS Signal Not Found 11 Error in Oppo A58 4G | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/realtime-hd-uplift-for-pc-mac-and-online-devices-for-2024/"><u>RealTime HD Uplift for PC, Mac & Online Devices for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/the-ultimate-guide-to-metaverse-memes-and-diy-humor-mastery-for-2024/"><u>The Ultimate Guide to Metaverse Memes and DIY Humor Mastery for 2024</u></a></li>
 </ul></div>
 

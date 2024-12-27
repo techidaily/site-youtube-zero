@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Crafting the Perfect Schedule for Jobs & YouTube"
-date: 2024-08-08T15:37:59.310Z
-updated: 2024-08-09T15:37:59.310Z
+date: 2024-12-24T17:51:55.246Z
+updated: 2024-12-27T17:11:57.352Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/c811d888eaef42c6d49c05cdca31aa1712344b1b9
 
 # How to balance YouTube with a Full-Time Job
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -45,39 +42,43 @@ So, to save you and your viewers some of the same struggles, here are 5 tips I r
 
 [5. Be creative! Create audios (audio-only videos)](#createaudio)
 
-<!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 1. Don’t force yourself to post on specific days
 
 I know what you’re thinking - “What?! That’s insane.” The first piece of advice I received about YouTube was to create a schedule of days to post so your viewers look forward to videos. That just doesn’t work for me. Whenever I became too busy with work, I couldn’t stick to my typical Tuesday or Thursday schedule. I think it’s best to focus on how many times you can post in a week rather than a specific day. I try to post at least once a week and that’s my goal. You can always increase as your workload gets lighter or you when you are able to do YouTube full-time.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2. Keep track of all your ideas in one notebook planner
 
 A notebook planner is essential for keeping my life organized and on track. When I first started my channel, I had a separate planner just for my YouTube videos – this didn’t work cause I never looked at it. It worked best when I kept track of my entire life, including YouTube, in one planner since I look at it every day. Then I could also see which days I wanted to post a video or see what topics worked best around specific holidays and such.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## 3. Check the weather forecast in advance
 
 When starting a YouTube channel, many YouTubers like myself don’t have the money to afford all the fancy lighting you see other creators using. [I use natural light](https://tools.techidaily.com/wondershare/filmora/download/), which means I have to make sure it’s going to be a sunny day or at least bright enough for my videos to be clear. I check the forecast for the week on Sunday evenings so I can plan out my best days to film, this keeps my video shooting schedule productive.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 4. Create 3-5 videos in advance
 
 This week I am on PTO (paid time off) which has given me a lot more time to film videos I can post for next month. Life happens and it can set you back on filming. If you happen to get a major break in your workweek, use the opportunity to film a bunch of videos, edit them, and have them waiting in your pocket. I filmed three videos in one day – I planned and set-up the night before, which made filming much smoother. Trust me, this tip works wonders!
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 5. Be creative! Create audios (audio-only videos)
 
 In the event that life gets too crazy, it’s perfectly fine to do just audio. Many of us are always on the go which means it’s the perfect time to listen to great advice while driving to work, waiting on the bus, or working at the gym. Someone out there would love to hear your advice. I started to do this with my Tea Time Talk Audios and the response was great.
 
 I hope these tips can help you on your journey with YouTube while still working a full-time job.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Make a YouTube Video with Wondershare Filmora
 
@@ -88,8 +89,9 @@ Just try it and create your own YouTube video!
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -98,14 +100,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -114,4 +113,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/oosting-youtube-income-using-studio-anywhere-anyhow-for-2024/"><u>[New] Boosting YouTube Income Using Studio Anywhere, Anyhow for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-strategies-for-enhancing-youtube-videos-perfecting-your-thumbnails/"><u>[New] In 2024, Strategies for Enhancing YouTube Videos Perfecting Your Thumbnails</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/tep-by-step-for-quick-chromakey-application/"><u>[New] Step-by-Step for Quick Chromakey Application</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/he-ultimate-guide-to-earning-through-youtubing-enabling-monetization-on-mobile-devices/"><u>[New] The Ultimate Guide to Earning Through YouTubing Enabling Monetization on Mobile Devices</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-vp9-vs-av1-unveiling-which-codec-triumphs-for-2024/"><u>[New] VP9 vs AV1 Unveiling Which Codec Triumphs for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-comprehensive-list-of-non-udemy-e-learning-success-stories/"><u>[Updated] 2024 Approved Comprehensive List of Non-Udemy E-Learning Success Stories</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-efficiently-enhancing-iphone-overexposed-videos-using-premiere-pro-techniques/"><u>[Updated] 2024 Approved Efficiently Enhancing iPhone Overexposed Videos Using Premiere Pro Techniques</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-client-reviews-the-heart-of-modern-marketing-strategies/"><u>[Updated] In 2024, Client Reviews The Heart of Modern Marketing Strategies</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-lunapic-basics-for-budding-photographers/"><u>[Updated] In 2024, LunaPic Basics for Budding Photographers</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-unlock-youtube-partnership-aim-for-a-10k-views-target/"><u>[Updated] In 2024, Unlock YouTube Partnership Aim for a 10K Views Target</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-funny-flicks-compilation-of-chuckle-inducing-short-youtube-videos/"><u>2024 Approved Funny Flicks Compilation of Chuckle-Inducing Short YouTube Videos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-the-artisans-approach-crafting-unique-shareable-youtube-shorts/"><u>2024 Approved The Artisan's Approach Crafting Unique, Shareable YouTube Shorts</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ensive-gear-mics-for-content-creators-on-a-dime/"><u>Inexpensive Gear Mics for Content Creators on a Dime</u></a></li>
+<li><a href="https://fox-that.techidaily.com/keep-your-tunes-playing-avoid-spotify-crashes-on-ios-lock-screen/"><u>Keep Your Tunes Playing: Avoid Spotify Crashes on iOS Lock Screen</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/maximize-your-workflow-why-the-16-port-dream-dock-is-essential-for-creatives-featuring-exclusive-insights/"><u>Maximize Your Workflow: Why the 16-Port Dream Dock Is Essential for Creatives - Featuring Exclusive Insights</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ywalls-here-learn-how-to-record-and-save-your-youtube-experience-for-free/"><u>No Paywalls Here! Learn How To Record and Save Your YouTube Experience For Free</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/athway-to-recognition-youtubers-guide-to-personal-brands/"><u>The Pathway to Recognition YouTubers' Guide to Personal Brands</u></a></li>
+<li><a href="https://techidaily.com/video-file-repair-how-to-fix-corrupted-video-files-of-galaxy-a34-5g-on-windows-by-stellar-video-repair-mobile-video-repair/"><u>Video File Repair - How to Fix Corrupted video files of Galaxy A34 5G on Windows?</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/whats-coming-with-the-apple-watch-series-8-find-out-release-timeline-technical-specifications-and-pricing-range/"><u>What's Coming with the Apple Watch Series 8? Find Out Release Timeline, Technical Specifications & Pricing Range</u></a></li>
+</ul></div>
 

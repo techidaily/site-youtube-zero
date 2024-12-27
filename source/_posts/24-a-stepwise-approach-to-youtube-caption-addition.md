@@ -1,7 +1,7 @@
 ---
 title: "In 2024, A Stepwise Approach to YouTube Caption Addition"
-date: 2024-07-29T15:34:14.860Z
-updated: 2024-07-30T15:34:14.860Z
+date: 2024-12-23T16:13:27.900Z
+updated: 2024-12-27T19:43:26.332Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/bed3a8fbbe4c6c5bbdded3f73edc2505580ffc686
 
 # How To Add Captions to YouTube Videos
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -32,17 +29,18 @@ By captioning your YouTube videos you help to make them accessible to more poten
 This article will first explain how you can turn on subtitles for the videos you watch and then walk you through adding captions to your own videos.
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How To Turn On Captions on YouTube
 
 In order for you to be able to view subtitles for a YouTube video the uploader of the video will need to have added them, unless you change your account settings to display automatic captions.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ![captions](https://images.wondershare.com/filmora/article-images/captions-how-to-turn-on.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 To toggle subtitles on and off click on the Closed Captioning icon in the bottom right of your video player.
 
@@ -51,8 +49,9 @@ If the creator of the video has not added captions then you can enable automatic
 If you want to change the language of the subtitles click on the settings icon (the one that looks like a gear) next to the closed captioning icon and choose your language next to   **Subtitles/CC** . If the language you want is not there select **Auto-Translate**  and then pick a language. Google Translate will be used to generate subtitles in your chosen language.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Adding YouTube Captions in 4 Steps
 
 1\. Go to **Video Manager** in your **Creator Studio** and then look at your videos. Decide which one you want to add captions to.
@@ -75,10 +74,11 @@ If you want to change the language of the subtitles click on the settings icon (
 
 The easiest way to add subtitles to your videos is to use **Automatic Captioning**. However, Automatic Captioning is imperfect and may result in your viewers getting a sloppy, skewed, interpretation of your video. Automatic captions are also not indexed by YouTube and Google the way subtitles you create or upload are. This means that they will not have any value to your SEO strategy. If you do not input your own captions or transcript you are missing out on an opportunity for better search engine rankings. Automatic Captions are great if you do not have time to input subtitles and need a temporary solution, though.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -86,14 +86,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -102,4 +99,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/ersonal-evolution-building-an-enduring-youtubing-identity/"><u>[New] Personal Evolution Building an Enduring YouTubing Identity</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-energy-savings-calculations-while-not-directly-impacting-installation-cost-understanding-potential-energy-savings-is-crucial-for-long-/"><u>[Updated] 2024 Approved __Energy Savings Calculations__ While Not Directly Impacting Installation Cost, Understanding Potential Energy Savings Is Crucial for Long-Term ROI Analysis.</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-track-and-validate-channels-earnings/"><u>[Updated] 2024 Approved Track and Validate Channels' Earnings</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-exclusive-movies-behind-the-best-chart-for-2024/"><u>[Updated] Exclusive Movies Behind the Best Chart for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-quick-fix-for-iphone-video-length-and-scope-reduction/"><u>[Updated] Quick-Fix for iPhone Video Length & Scope Reduction</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-life360-notify-when-you-log-out-on-infinix-smart-8-pro-drfone-by-drfone-virtual-android/"><u>Does Life360 Notify When You Log Out On Infinix Smart 8 Pro? | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/experience-the-best-in-language-app-design-mondly/"><u>Experience the Best in Language App Design: Mondly</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/first-to-last-your-guide-to-youtube-video-looping-101/"><u>From First to Last Your Guide to YouTube Video Looping 101</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-film-school-at-home-mastering-video-editing-via-youtube-and-alternatives/"><u>In 2024, Film School at Home Mastering Video Editing via YouTube & Alternatives</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-gamers-picks-best-recording-software/"><u>In 2024, Gamers' Picks Best Recording Software</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-life360-from-tracking-you-on-poco-c50-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Life360 from Tracking You On Poco C50? | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-navigating-the-legal-landscape-of-youtube-guidelines/"><u>In 2024, Navigating the Legal Landscape of YouTube Guidelines</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-smartphone-skills-producing-engaging-youtube-thumbnails/"><u>In 2024, Smartphone Skills Producing Engaging YouTube Thumbnails</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/inside-the-samsung-galaxy-watch-7-pricing-guide-availability-dates-specifications-and-recent-news/"><u>Inside the Samsung Galaxy Watch 7: Pricing Guide, Availability Dates, Specifications, and Recent News</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210232448-9781591434085-journeys-with-plant-spirits/"><u>Journeys with Plant Spirits | Free Book</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/planning-to-use-a-pokemon-go-joystick-on-tecno-pop-8-drfone-by-drfone-virtual-android/"><u>Planning to Use a Pokemon Go Joystick on Tecno Pop 8? | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/by-step-tutorial-download-youtube-videos-in-pieces-for-2024/"><u>Step-by-Step Tutorial Download YouTube Videos in Pieces for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/story-1-misunderstanding-assignment/"><u>Story 1: Misunderstanding Assignment</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/udiovisual-enhancements-for-video-producers-for-2024/"><u>Top Audiovisual Enhancements for Video Producers for 2024</u></a></li>
+</ul></div>
 

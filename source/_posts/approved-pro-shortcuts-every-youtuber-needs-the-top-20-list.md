@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Pro Shortcuts Every YouTuber Needs - The Top 20 List\""
-date: 2024-08-08T15:36:31.506Z
-updated: 2024-08-09T15:36:31.506Z
+date: 2024-12-22T19:03:57.628Z
+updated: 2024-12-27T18:45:49.615Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/197c2ed369e4a9919f13d946f77f5157856e3dbfa
 
 # YouTube Shortcuts You Should Know in 2024
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -31,9 +28,17 @@ YouTube, as one of the most popular free streaming video portals, the majority o
 
 With that said, the following two-columned tables give you detailed information on the shortcut keys and their respective functions, so you don’t have to grab the mouse every time you want to navigate through the YouTube videos, or do any such similar tasks.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Amazing YouTube Keyboard Shortcuts You May Not Know
 
 To make things convenient for you, the shortcut keys are placed under their corresponding categories, where each category is in the form of a two-columned table.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Category 1: YouTube Playback Hotkeys
 
@@ -45,13 +50,9 @@ While watching a YouTube video, there might be instances when you want to pause 
 | 'Spacebar'        | Play and Pause (Works as a toggle key) |
 
 <!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Category 2: Scrolling YouTube Videos Back and Forth
 
 This section talks about the shortcut keys to skim the video forward and backward during playback:
@@ -103,8 +104,9 @@ This category shows the shortcut keys to manage audio for a YouTube video:
 | '↓'               | Decrease volume by 5% |
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Category 6: Switching Between Screen Modes
 
 The shortcut keys given in this table enable you to switch between different screen modes:
@@ -120,8 +122,9 @@ Double press F/T/I on the keyboard will exit the full-screen/theater model/indep
 If you are watching video on YouTube mobile app, you can swipe up the video slightly to enter the full screen mode, and swipe down the video slightly to exit the full screen.
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Category 7: Viewing 360o/VR Videos
 
 In this category, the navigation and management of shortcut keys for 360o and Virtual Reality (VR) view are discussed:
@@ -134,9 +137,6 @@ In this category, the navigation and management of shortcut keys for 360o and Vi
 | '-' (Minus Key on Keyboard) | Decrease font size                                    |
 | '+' (Plus Key on Keyboard)  | Increase font size                                    |
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Bonus: How to Get the YouTube Shortcut List with One-Click
 
 In this section, you will learn how to pull up the list of important YouTube shortcuts by pressing merely one key:
@@ -157,9 +157,6 @@ As one of the most popular video editing software among YouTubers, Filmora provi
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -168,14 +165,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -184,4 +178,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-freedom-through-jokes-ranking-the-most-hilarious-social-media-prisons/"><u>[New] 2024 Approved Freedom Through Jokes Ranking the Most Hilarious Social Media Prisons</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-webinar-recording-a-step-by-step-masterclass-guide/"><u>[New] 2024 Approved Webinar Recording A Step-by-Step Masterclass Guide</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-logic-pro-xs-audio-magic-tricks-for-seamless-sounds/"><u>[New] Logic Pro X's Audio Magic Tricks for Seamless Sounds</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-photographic-standouts-with-our-top-10-grid-picks-for-2024/"><u>[New] Photographic Standouts with Our Top 10 Grid Picks for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-smart-strategies-for-securely-saving-movie-moments-across-gadgets-for-2024/"><u>[New] Smart Strategies for Securely Saving Movie Moments Across Gadgets for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-directing-rhythms-integrating-sounds-into-youtube/"><u>[Updated] 2024 Approved Directing Rhythms Integrating Sounds Into Youtube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-mastering-youtubes-creative-commons-licensing-guide/"><u>[Updated] 2024 Approved Mastering YouTube’s Creative Commons Licensing Guide</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-cloaking-in-content-an-introduction-to-video-smoothing/"><u>[Updated] Cloaking in Content An Introduction to Video Smoothing</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-first-steps-in-youtube-tech-a-comprehensive-list/"><u>[Updated] First Steps in YouTube Tech A Comprehensive List</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-good-youtube-names-generators-plus-how-to-brainstorm-for-2024/"><u>[Updated] Good YouTube Names Generators [+ How to Brainstorm] for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-dispatching-dreadful-green-screen-distortion-on-mac-editing-sessions/"><u>[Updated] In 2024, Dispatching Dreadful Green Screen Distortion on Mac-Editing Sessions</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-the-blueprint-for-building-an-iconic-online-identity-on-youtube/"><u>[Updated] In 2024, The Blueprint for Building an Iconic Online Identity on YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-mastering-youtube-insights-for-channel-expansion/"><u>2024 Approved Mastering YouTube Insights for Channel Expansion</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-audio-engineers-guide-switching-from-srt-to-ttml/"><u>2024 Approved The Audio Engineer’s Guide Switching From SRT to TTML</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/from-recording-to-broadcasting-the-steam-gamers-path/"><u>From Recording to Broadcasting The Steam Gamers' Path</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-apple-iphone-12-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Why Your WhatsApp Live Location is Not Updating and How to Fix on your Apple iPhone 12 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-best-android-sim-unlock-code-generators-unlock-your-realme-c55-phone-hassle-free-by-drfone-android/"><u>The Best Android SIM Unlock Code Generators Unlock Your Realme C55 Phone Hassle-Free</u></a></li>
+</ul></div>
 

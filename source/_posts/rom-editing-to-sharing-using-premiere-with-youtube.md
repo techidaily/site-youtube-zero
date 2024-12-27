@@ -1,7 +1,7 @@
 ---
 title: "\"[New] From Editing to Sharing  Using Premiere with YouTube\""
-date: 2024-08-08T15:38:39.967Z
-updated: 2024-08-09T15:38:39.967Z
+date: 2024-12-25T17:22:16.477Z
+updated: 2024-12-27T19:16:06.889Z
 tags:
   - ai video
   - ai youtube
@@ -32,17 +32,10 @@ thumbnail: https://thmb.techidaily.com/cdf09465082716a317b2f16f4ef99338eb56d0b86
 
  This is a basic tutorial about Adobe Premiere, professional video editing software. However, if video editing is new to you, consider [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/), which is a powerful but easy-to-use tool for users just starting out. Download the free trial version below.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How Do I Use Adobe Premiere To Upload YouTube Videos
 
 #### 1\. Master Copy
@@ -61,10 +54,11 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  The first option we have to consider is the file format that our finished video needs to be in. Here you should refer to YouTube for its guidelines, whilst they do accept a number of file formats, digging through the YouTube help system to find the settings for highest quality we find that they recommend MPEG4 as the container, using the  codec.
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![youtube-recommended-settings](https://images.wondershare.com/multimedia/youtube-recommended-settings.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  We can also see further recommended settings in this screenshot that will be covered later.
 
@@ -78,6 +72,10 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
 ![choosing-format](https://images.wondershare.com/multimedia/choosing-format.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Once you select  you can check the 'output name' field and see that premiere is automatically set the output file to .mp4 which is exactly what we need.
 
 #### 4\. Preset
@@ -85,6 +83,10 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
  The next field we come to is the 'Preset' dropdown menu. This is a major help to most people, as Adobe have very kindly included large numbers of presets to quickly adapt video settings to suit specific uses. They vary depending on the exact version of Premiere you are using, and each format type does have its own list of presets,  as we can see has a large number for YouTube, but also has many presets for specific devices (presets for iPad, Kindle, Nook, various other tablets and phones, Vimeo and a host of others) to make getting the right settings that bit easier for us.
 
 ![presets](https://images.wondershare.com/multimedia/presets.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  It is important here to select the correct preset from the various YouTube options. You want to select the resolution and frame rate that match your source file, for the best results. So, if your source file is 1080p with a frame rate of 29.97 fps then that is the YouTube setting you would select.
 
@@ -104,6 +106,10 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
 ![filename](https://images.wondershare.com/multimedia/filename.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Once those are selected clicking 'Export' starts the rendering process, and eventually (how long depends on the speed of your computer and the size and type of file involved), you will end up with your YouTube optimized video in the location you chose.
 
  Here I created 4 key frames that let the 'Animation' object move around the 'Demo Text' Object and finally come to rest below it. Whilst this type of effect does look very effective on screen, such is the ease of use of After Effects it really is just a few minutes work to achieve.
@@ -122,22 +128,17 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
  This opens the upload progress window, where you can add in a name, description and tags as well as add the video to a playlist or adjust the privacy settings as the video is uploading.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ![upload-progress](https://images.wondershare.com/multimedia/upload-progress.png)
 
  Once the upload as finished, you can do final adjustments to settings and choose a thumbnail for the video. The final step is to click the 'Publish' button and your video will be processed and go live.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Benjamin Arango
 
@@ -145,14 +146,11 @@ Benjamin Arango is a writer and a lover of all things video.
 
 Follow @Benjamin Arango
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -161,4 +159,22 @@ Follow @Benjamin Arango
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/oosting-video-reach-on-youtube-an-in-depth-guide-to-seo-techniques-for-2024/"><u>[New] Boosting Video Reach on YouTube An In-Depth Guide to SEO Techniques for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-secrets-revealed-effective-facebook-video-publishing-techniques-for-2024/"><u>[New] Secrets Revealed Effective Facebook Video Publishing Techniques for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-overwatch-video-captures-done-right-made-simple/"><u>[Updated] In 2024, Overwatch Video Captures – Done Right, Made Simple</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-role-of-workspace-dynamics-in-employee-output/"><u>[Updated] The Role of Workspace Dynamics in Employee Output</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-boost-your-content-access-free-vocal-sfx/"><u>2024 Approved Boost Your Content Access Free Vocal SFX</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-essential-tips-for-producing-engaging-educational-content-for-youtube/"><u>2024 Approved Essential Tips for Producing Engaging Educational Content for YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-from-dull-scenes-to-dynamic-sports-highlights/"><u>2024 Approved From Dull Scenes to Dynamic Sports Highlights</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/3-solutions-to-find-your-gionee-f3-pro-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>3 Solutions to Find Your Gionee F3 Pro Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/free-gif-maker-tools-for-seamless-loops/"><u>Free GIF Maker Tools for Seamless Loops</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ist-todays-youtube-sensations-for-2024/"><u>Hot List Today's YouTube Sensations for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-step-by-step-applying-color-grading-and-keying/"><u>In 2024, Step-by-Step Applying Color Grading and Keying</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-unleash-potential-with-informed-tagging-on-youtube/"><u>In 2024, Unleash Potential with Informed Tagging on YouTube</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/online-mp4-mpeg-movavi/"><u>Online MP4-MPEG 제공을 무료로 전환하는 방법 - Movavi</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/qled-vs-oled-tvs-understanding-the-key-distinctions/"><u>QLED Vs. OLED TVs: Understanding the Key Distinctions</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/be-shorts-dividing-profits-among-making-crew/"><u>YouTube Shorts Dividing Profits Among Making Crew</u></a></li>
+</ul></div>
 

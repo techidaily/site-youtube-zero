@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Elevate Your Videos with Effective YouTube Thumbnails\""
-date: 2024-12-19T17:11:44.737Z
-updated: 2024-12-22T04:10:24.102Z
+date: 2024-12-24T17:10:43.229Z
+updated: 2024-12-27T19:09:07.365Z
 tags:
   - ai video
   - ai youtube
@@ -44,16 +44,12 @@ Here are 5 easy tips for creating thumbnails that get views.
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Edit Your Videos Before Creating Video Thumbnails
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 1\. Have a Consistent Layout
 
@@ -64,11 +60,7 @@ An example of a standard layout could be you in the middle of the screen wearing
 ![Consistent Layout](https://images.wondershare.com/filmora/article-images/consistent-layout.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **2\. Use Your Face**
@@ -76,6 +68,10 @@ An example of a standard layout could be you in the middle of the screen wearing
 People feel automatically connected and drawn into images that make eye contact. This makes thumbnails which feature faces more click-able than thumbnails which don’t, in most genres (i.e. if you make food videos then this may not apply – featuring the food might be more important than featuring your face). [Check out more tips like this here](https://tools.techidaily.com/wondershare/filmora/download/).
 
 Also, if somebody recognizes you in your thumbnail from a previous video of yours, that will go a long way towards making them click.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 3\. Use Graphics/Emojis that are On Topic
 
@@ -88,6 +84,10 @@ Make sure the images you choose are relevant to the topic of your video.
 If you use text in your thumbnail (you don’t have to) then it should be to add context. For example, if the main image is just you smiling then you might need some text to let viewers know the video is a makeup tutorial.
 
 Thumbnails might look large while you’re putting them together in your image editor, but when they’re displayed on YouTube they’re a lot smaller. That goes double if a viewer is watching on their phone. So, make sure that any text you use is large enough that it can be read easily on small screens.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 5\. Keep it Clutter-Free
 
@@ -102,7 +102,7 @@ Use these tips to make video thumbnails for YouTube, and tell us what kind of re
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -126,18 +126,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/n-2024-accessible-video-ideas-the-simplest-10-concepts-everyone-can-learn-to-make/"><u>[New] In 2024, Accessible Video Ideas The Simplest 10 Concepts Everyone Can Learn to Make</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/n-2024-craft-your-channel-studio-or-beta-innovation-comparison/"><u>[New] In 2024, Craft Your Channel Studio or Beta Innovation Comparison</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-master-the-art-of-live-streaming-obs-tips-for-youtube-and-twitch-for-2024/"><u>[New] Master the Art of Live Streaming OBS Tips for YouTube & Twitch for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/tep-by-step-guide-to-iconic-youtube-beginnings-method-a-and-b/"><u>[New] Step-by-Step Guide to Iconic YouTube Beginnings Method A & B</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-community-cinema-collector-pro/"><u>[Updated] 2024 Approved Community Cinema Collector Pro</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-embrace-the-season-ideal-winter-backgrounds-for-yt-for-2024/"><u>[Updated] Embrace the Season Ideal Winter Backgrounds for YT for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/boost-your-fitness-journey-the-fitbit-versa-3-comes-equipped-with-built-in-gps-and-wellness-tools-to-keep-you-driven/"><u>Boost Your Fitness Journey: The Fitbit Versa 3 Comes Equipped With Built-In GPS and Wellness Tools to Keep You Driven</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/easy-access-download-essential-drivers-for-hp-designjet-z9-graphic-printers/"><u>Easy Access: Download Essential Drivers for HP Designjet Z9 Graphic Printers</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211186057-9782017229629-encyclopedie-des-cristaux/"><u>Encyclopédie des cristaux | Free Book</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-unlock-any-honor-x8b-phone-password-using-emergency-call-by-drfone-android/"><u>How To Unlock Any Honor X8b Phone Password Using Emergency Call</u></a></li>
-<li><a href="https://some-tips.techidaily.com/imessage-prompts-understanding-the-reason-behind-contact-check-in-requests-and-easy-fixes/"><u>IMessage Prompts: Understanding the Reason Behind Contact Check-In Requests and Easy Fixes</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/ultimate-data-wipe-stellar-file-eraser-5-standard-edition-securely-remove-windows-folders/"><u>Ultimate Data Wipe: Stellar File Eraser 5 Standard Edition - Securely Remove Windows Folders</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/updated-final-cut-pro-x-crashing-heres-the-ultimate-fix/"><u>Updated Final Cut Pro X Crashing? Heres the Ultimate Fix</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/rafting-content-for-success-how-to-start-your-own-youtube-chanel-for-2024/"><u>[New] Crafting Content for Success How to Start Your Own YouTube Chanel for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ransforming-imovie-projects-into-youtube-shows-for-2024/"><u>[New] Transforming iMovie Projects Into YouTube Shows for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-essential-guide-to-action-screening-saving/"><u>[Updated] 2024 Approved Essential Guide to Action Screening Saving</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-growth-hackers-guide-the-ultimate-list-of-top-strategies-to-retain-youtube-viewers/"><u>[Updated] 2024 Approved Growth Hackers Guide The Ultimate List of Top Strategies to Retain YouTube Viewers</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-ace-advertising-and-analytics-youtubes-universal-monetization-techniques/"><u>[Updated] Ace Advertising and Analytics YouTube's Universal Monetization Techniques</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-essential-tools-ranking-the-best-mobile-videography-apps/"><u>[Updated] Essential Tools Ranking the Best Mobile Videography Apps</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-expert-insights-on-maximizing-roi-through-effective-youtube-banner-campaigns/"><u>[Updated] Expert Insights on Maximizing ROI Through Effective YouTube Banner Campaigns</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-premier-pros-pathway-to-perfect-sound-cutting/"><u>[Updated] Premier Pro's Pathway to Perfect Sound Cutting</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-captivate-and-enchant-explore-the-best-creative-reactions-on-yt/"><u>2024 Approved Captivate and Enchant Explore the Best Creative Reactions on YT</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-google-hangout-techniques-4-ways-to-shine/"><u>2024 Approved Google Hangout Techniques, #4 Ways to Shine</u></a></li>
+<li><a href="https://games-able.techidaily.com/calm-competitions-indulge-in-idle-realms/"><u>Calm Competitions: Indulge in Idle Realms</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-7-phone-number-locators-to-track-motorola-edge-40-location-drfone-by-drfone-virtual-android/"><u>In 2024, Top 7 Phone Number Locators To Track Motorola Edge 40 Location | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/more-viewers-to-your-channel-with-easy-tricks-2/"><u>Push More Viewers to Your Channel with Easy Tricks (2)</u></a></li>
+<li><a href="https://app-tips.techidaily.com/the-design-of-an-artificial-earth-plane-can-vary-depending-on-the-frequency-of-operation-at-lower-frequencies-a-larger-physical-area-may-be-needed-to-effect85/"><u>The Design of an Artificial Earth Plane Can Vary Depending on the Frequency of Operation; at Lower Frequencies, a Larger Physical Area May Be Needed to Effectively Reflect Radio Waves.</u></a></li>
+<li><a href="https://win-dash.techidaily.com/update-to-the-latest-free-windows-compatible-asrock-ab350-pro4-graphics-card-drivers/"><u>Update to the Latest: Free Windows-Compatible ASRock AB350 Pro4 Graphics Card Drivers</u></a></li>
 </ul></div>
 

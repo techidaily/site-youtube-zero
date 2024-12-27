@@ -1,7 +1,7 @@
 ---
 title: "[New] Apex Artists Among Online Video Titans"
-date: 2024-12-21T02:02:00.245Z
-updated: 2024-12-22T05:35:53.384Z
+date: 2024-12-22T16:33:36.471Z
+updated: 2024-12-27T19:23:29.206Z
 tags:
   - ai video
   - ai youtube
@@ -55,13 +55,13 @@ In this article, we will take you through the 5 most popular creator channels on
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\.  PewDiePie
 
 ![PewDiePie](https://images.wondershare.com/filmora/article-images/pew-die-pie.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 YouTube's most well-known superstar Felix Arvid Ulf Kjellberg was born 1989 in Gothenburg. PewDiePie’s channel has made this Swedish comedian, Vlogger, and gamer based in Brighton, England, a global celebrity whose videos have reached record audiences. Felix created his YouTube channel in 2010 and in only six short years the PewDiePie YouTube channel received over 16 billion views and it is currently among the most viewed channels ever.
 
@@ -71,21 +71,17 @@ The most common videos on Felix's channel are gaming videos in which he comments
 
 ![HolaSoyGerman](https://images.wondershare.com/filmora/article-images/hola-soy-german.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 At the age of 27, Germán Alejandro Garmendia Aranis is the owner of the second most subscribed channel on YouTube with more than 32 million subscribers. Furthermore, HolaSoyGerman’s channel is the most subscribed Spanish-speaking channel today. Germán's second YouTube channel JuegaGerman has made him the only YouTuber ever to receive two diamond play buttons for having over 40 million subscribers on his two channels.
 
 The Chilean YouTube superstar uploaded his first YouTube video in 2011 and by October 2012 his channel has reached 1 million subscribers. Recently, German has lent his voice to a character in the Spanish version of Ice Age: Collision Course. He finds inspiration for his comic YouTube videos in everyday life and topics like ex-girlfriends, school, and phobias are frequently covered in videos published on the HolaSoyGerman channel. In 2014 and 2015 German won the 'Icon of the Year' prize from MTV Millennial Awards.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ###  3\.  ElrubiusOMG
 
 ![ElrubiusOMG](https://images.wondershare.com/filmora/article-images/elrubius-omg.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 More than 25 million subscribers who follow this gaming commentator. The El Rubius OMG channel was created by Rubén Doblas Gundersen in December 2011 and by February 2013 it reached 1 million subscribers. However, Rubén has been producing videos for his Elrubius channel since 2006\. He simply became more dedicated to the frequent production of YouTube videos in 2011\. Even though the videos featured on the El Rubius OMG channel mostly cover video games, Rubén also produces comedy videos, vlogs, and other interesting and amusing content.
 
@@ -102,7 +98,7 @@ Most channels that have one viral video do not go on to have sustained success o
 In 2017, Anthony Padilla chose to leave Smosh to focus on his own solo YouTube channel.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 5\.  Fernanfloo
@@ -110,7 +106,7 @@ In 2017, Anthony Padilla chose to leave Smosh to focus on his own solo YouTube c
 ![Fernanfloo](https://images.wondershare.com/filmora/article-images/fernan-floo.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Yet another enormously popular YouTuber that comes from a Spanish speaking country whose channel attracted millions of subscribers. A 24-year-old Salvadoran named Luis Fernando Flores Alvarado is the man behind one of the most subscribed YouTube channels of all time. The Fernanfloo channel was created in 2011, and in February 2014 it had only 100,000 subscribers. By August 2014, Alvarado's channel reached 1 million subscribers, making him one of YouTube's biggest success stories. The videos featured on Feranfloo channel mostly cover gaming topics, but with a touch of comedy which makes Alvarado's videos unique.
@@ -126,6 +122,10 @@ Looking for a live [YouTube subscriber chart](https://tools.techidaily.com/wonde
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -148,18 +148,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-navigating-the-nuances-of-premieres-fullscreen-mode/"><u>[New] 2024 Approved Navigating the Nuances of Premiere's Fullscreen Mode</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-bypassing-watermarks-for-photographic-needs-for-2024/"><u>[New] Bypassing Watermarks for Photographic Needs for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/conomical-embellishments-free-youtube-template-packs/"><u>[New] Economical Embellishments FREE YouTube Template Packs</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/n-2024-delightful-digests-a-list-of-top-food-channels/"><u>[New] In 2024, Delightful Digests A List of Top Food Channels</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-snapseed-essentials-conquering-image-enhancement/"><u>[New] Snapseed Essentials Conquering Image Enhancement</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/he-essential-tutorial-for-youtube-studio-editor-use/"><u>[New] The Essential Tutorial for YouTube Studio Editor Use</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-streaming-success-seekers-deciphering-the-platform-winner-vimeo-vs-youtubeplusdailymotion/"><u>[Updated] In 2024, Streaming Success Seekers Deciphering The Platform Winner - Vimeo vs YouTube+Dailymotion?</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/access-strongest-passwords-effortlessly-with-these-7-free-generators/"><u>Access Strongest Passwords Effortlessly With These 7 Free Generators</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/breaking-through-solving-nba-2k21s-endless-black-screen-dilemma-for-gamers/"><u>Breaking Through: Solving NBA 2K21's Endless Black Screen Dilemma for Gamers</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-exploring-the-landscape-of-music-and-intellectual-property-on-insta/"><u>In 2024, Exploring the Landscape of Music & Intellectual Property on Insta</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-the-ultimate-guide-to-flawless-sound-engineering-in-audacity/"><u>In 2024, The Ultimate Guide to Flawless Sound Engineering in Audacity</u></a></li>
-<li><a href="https://win11.techidaily.com/techniques-for-separating-concentrated-pc-icons/"><u>Techniques for Separating Concentrated PC Icons</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ltimate-playbook-for-a-thriving-youtube-gaming-platform/"><u>The Ultimate Playbook for a Thriving YouTube Gaming Platform</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/tep-by-step-tutorial-broadcasting-360-video-on-youtube-live-for-2024/"><u>[New] Step-by-Step Tutorial Broadcasting 360 Video on YouTube Live for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-achieving-depth-in-indoor-vlogging-lighting/"><u>[Updated] 2024 Approved Achieving Depth in Indoor Vlogging Lighting</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-amplify-your-brands-voice-the-power-of-shaped-videos/"><u>[Updated] 2024 Approved Amplify Your Brand’s Voice The Power of Shaped Videos</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-masterful-approaches-to-live-sports-video-capture/"><u>[Updated] 2024 Approved Masterful Approaches to Live Sports Video Capture</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-efficient-deletion-techniques-for-online-discussions/"><u>[Updated] Efficient Deletion Techniques for Online Discussions</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-the-ultimate-guide-top-3d-introduction-software/"><u>[Updated] In 2024, The Ultimate Guide Top 3D Introduction Software</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-carminati-ajay-mastering-the-art-and-science-of-online-income/"><u>2024 Approved Carminati (Ajay) Mastering the Art and Science of Online Income</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/accelerating-file-transfer-times-in-battlenet-gaming/"><u>Accelerating File Transfer Times in Battle.net Gaming</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/galaxy-s23-and-note-3-pro-revealing-key-insights-on-tomorrows-technology-zdnet/"><u>Galaxy S23 & Note 3 Pro Revealing Key Insights on Tomorrow's Technology | ZDNet</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-remove-the-activation-lock-on-your-ipad-and-iphone-14-without-apple-account-by-drfone-ios/"><u>In 2024, How to Remove the Activation Lock On your iPad and iPhone 14 without Apple Account</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-top-5-tracking-apps-to-track-apple-iphone-se-2020-without-them-knowing-drfone-by-drfone-virtual-ios/"><u>In 2024, Top 5 Tracking Apps to Track Apple iPhone SE (2020) without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/most-efficient-on-the-go-chargers-for-pcs-and-laps-2024-rankings/"><u>Most Efficient On-the-Go Chargers for PC's and Laps, 2024 Rankings</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/os-melhores-software-gratuito-de-desenho-e-animacao-tridimensional-para-criativos-selecao-do-topo-para-2024/"><u>Os Melhores Software Gratuito De Desenho E Animação Tridimensional Para Criativos: Seleção Do Topo Para 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ight-solutions-the-top-17-vlog-gear-lists-for-2024/"><u>Spotlight Solutions The Top 17 Vlog Gear Lists for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ferring-tracks-a-guide-to-offline-youtube-for-ios-users-for-2024/"><u>Transferring Tracks A Guide to Offline YouTube for iOS Users for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ate-choice-top-screen-capturer-for-video-uploads-for-2024/"><u>Ultimate Choice Top Screen Capturer for Video Uploads for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/which-premium-service-stands-tall-psplus-or-xbgplus/"><u>Which Premium Service Stands Tall? PS+ or XBG+</u></a></li>
 </ul></div>
 

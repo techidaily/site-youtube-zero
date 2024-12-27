@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Youtube's Exclusive Club  Festivities After VidCon\""
-date: 2024-12-20T03:55:26.899Z
-updated: 2024-12-21T21:24:30.232Z
+date: 2024-12-25T16:22:09.102Z
+updated: 2024-12-27T16:22:22.987Z
 tags:
   - ai video
   - ai youtube
@@ -43,7 +43,7 @@ Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://download.wondershare.com/filmora9-mac%5Ffull718.zip)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 1. **[VidCon](http://vidcon.com/)**
@@ -85,7 +85,7 @@ You have a two-week window (usually the first half of May) to submit your choice
 ![Playlistlive](https://images.wondershare.com/filmora/Playlistlive.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Playlist Live is a YouTube event for creators and their supporters that has a particular focus on music. Where VidCon is advertised using images of sunshine, crowded convention halls, and speakers, Playlist Live is advertised with images of city skylines, concerts, and fireworks.
@@ -121,6 +121,10 @@ There is also business **Passes** with Merch and Deluxe (Business Deluxe can cos
 **London, UK:** November
 
 ![beautycon-festivals](https://images.wondershare.com/filmora/beautycon-festivals.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Beautycon is an event meant to highlight innovators in the fields of Beauty, Makeup, and Lifestyle. They bring together online creators, fans, celebrities, and brands for two-day festivals full of fun, panel discussions, shopping, and free samples.
 
@@ -159,7 +163,7 @@ Sydney, Australia: February
 ![rtx](https://images.wondershare.com/filmora/rtx.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Brought to you by the creators behind Rooster Teeth, RTX is a celebration of internet culture and gaming. It includes exhibitors, live events, panels, and activities targeting gamers. Partners include Twitch and multiple gaming companies.
@@ -200,10 +204,6 @@ For VIP access, you can buy a **Deluxe** pass for $125-$150 AUD.
 
 ![summer-in-the-city](https://images.wondershare.com/filmora/summer-in-the-city.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 This is the largest online video festival in the UK. It features discussion panels, workshops, and live performances targeted at creators, fans of online video, and industry professionals. YouTubers might hang out on the show floor meeting fans, and there are also Meet and Greet sessions for top creators. All ticket holders can submit online ballots for a chance at Meet and Greet access.
 
 Summer in the City even has its own awards show, SitC, to honor the best in online content. Previous winners include Dodie, Tomska, Jack & Dean, and Nathan Zed.
@@ -229,7 +229,7 @@ Have you ever attended an offline YouTube event? Which one, and how did you like
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -253,19 +253,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/est-youtube-channel-name-ideas-for-aspiring-vloggers-and-film-makers-maximum-length-156-characters-for-2024/"><u>[New] Best Youtube Channel Name Ideas For Aspiring Vloggers & Film Makers (Maximum Length 156 Characters) for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/oes-rapid-subscription-improve-video-watching/"><u>[New] Does Rapid Subscription Improve Video Watching?</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-the-veil-vs-the-beam-shadowheroes-vs-luminaryfighters/"><u>[New] The Veil vs the Beam Shadowheroes Vs Luminaryfighters</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-best-practices-for-b-roll-utilization-for-2024/"><u>[Updated] Best Practices for B-Roll Utilization for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-bringing-dialogue-to-life-writing-for-youtube-videos/"><u>[Updated] Bringing Dialogue to Life Writing for YouTube Videos</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/updated-top-20-hilarious-tiktok-skits-for-giggle-fests-for-2024/"><u>[Updated] Top 20 Hilarious TikTok Skits for Giggle Fests for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-beautiful-beginnings-creating-your-personalized-glam-vlog/"><u>2024 Approved Beautiful Beginnings Creating Your Personalized Glam Vlog</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-elevate-to-success-top-hashtags-for-6-figure-views-on-youtube/"><u>2024 Approved Elevate to Success Top Hashtags for 6-Figure Views on YouTube</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-how-to-enable-grid-view-on-google-meet-to-see-every-participant/"><u>2024 Approved How to Enable Grid View on Google Meet to See Every Participant?</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-unlocking-clear-communication-zooms-best-transcription-services/"><u>2024 Approved Unlocking Clear Communication Zoom's Best Transcription Services</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/getting-to-know-the-premium-p2715q-a-high-definition-marvel/"><u>Getting to Know the Premium P2715Q A High-Definition Marvel</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-xiaomi-redmi-a2plus-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Xiaomi Redmi A2+</u></a></li>
-<li><a href="https://discover-brilliant.techidaily.com/transformacion-gratuita-de-archivos-audiovideo-en-el-correo-electronico-con-convertidores-online-movavi/"><u>Transformación Gratuita De Archivos Audio/Video en El Correo Electrónico Con Convertidores Online - Movavi</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/troubleshooting-crashes-fix-your-outriders-ue4-errors-effortlessly/"><u>Troubleshooting Crashes: Fix Your Outriders UE4 Errors Effortlessly!</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/xpert-tips-for-selecting-lenses-as-a-video-blogger/"><u>[New] Expert Tips for Selecting Lenses as a Video Blogger</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/arnessing-the-power-of-targeted-video-appeal-for-2024/"><u>[New] Harnessing the Power of Targeted Video Appeal for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ow-to-convert-youtube-to-mp4-safely-for-2024/"><u>[New] How to Convert YouTube to MP4 Safely for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-boosting-viewership-with-animated-subscribe-buttons-in-filmora-easy-guide/"><u>[New] In 2024, Boosting Viewership with Animated Subscribe Buttons in Filmora (Easy Guide)</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-what-every-youtuber-should-know-about-live-thumbnails/"><u>[Updated] 2024 Approved What Every YouTuber Should Know About Live Thumbnails</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-fast-track-a-step-by-step-guide-for-swiftly-deleting-comments-on-youtube/"><u>[Updated] In 2024, Fast Track A Step by Step Guide for Swiftly Deleting Comments on YouTube</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-the-balance-of-serene-visuals/"><u>[Updated] The Balance of Serene Visuals</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-unveiling-the-leading-10-no-cost-youtube-channels-for-stunning-visuals-for-2024/"><u>[Updated] Unveiling the Leading 10 No-Cost YouTube Channels for Stunning Visuals for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-dissecting-the-revenue-sharing-mechanisms-in-youtube-shorts-economy/"><u>2024 Approved Dissecting the Revenue-Sharing Mechanisms in YouTube Shorts Economy</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-essential-game-streamers-for-your-watchlist/"><u>2024 Approved Essential Game Streamers for Your Watchlist</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-step-by-step-guide-to-crafting-youtube-splitscreen-content/"><u>2024 Approved Step-by-Step Guide to Crafting YouTube Splitscreen Content</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/capture-and-conquer-mastering-professional-level-selfies-through-effective-light-use/"><u>Capture and Conquer: Mastering Professional-Level Selfies Through Effective Light Use</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ing-engaging-youtube-videos-using-finalcut-pro-expertise-for-2024/"><u>Crafting Engaging YouTube Videos Using FinalCut Pro Expertise for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/in-2024-channel-personality-complimentary-youtube-graphics/"><u>In 2024, Channel Personality Complimentary YouTube Graphics</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-tecno-spark-10-4g-phone-frp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Tecno Spark 10 4G Phone FRP Lock</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/overview-of-the-best-oppo-reno-8t-5g-screen-mirroring-app-drfone-by-drfone-android/"><u>Overview of the Best Oppo Reno 8T 5G Screen Mirroring App | Dr.fone</u></a></li>
+<li><a href="https://driver-error.techidaily.com/solutions-to-common-driver-problems-in-dm/"><u>Solutions to Common Driver Problems in DM</u></a></li>
 </ul></div>
 
