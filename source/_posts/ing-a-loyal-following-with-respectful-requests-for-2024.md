@@ -1,7 +1,7 @@
 ---
 title: "Building a Loyal Following with Respectful Requests for 2024"
-date: 2024-12-20T18:57:53.323Z
-updated: 2024-12-27T16:07:28.174Z
+date: 2025-01-02T05:39:11.573Z
+updated: 2025-01-05T17:22:48.264Z
 tags:
   - ai video
   - ai youtube
@@ -42,7 +42,7 @@ There are people who think that if people like their videos they’ll subscribe,
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What is a 'Call To Action'?
@@ -54,7 +54,7 @@ It has become the norm for YouTubers to ask viewers to subscribe in their sign-o
 That’s great. At the end of a video is a good place to ask people to subscribe, but is it the best and only place you should be reminding them? If you take a peek at your analytics and you might find that most of your viewers aren’t watching to the ends of your videos (people have short attention spans).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## A More Effective Way of Asking For Subscribers
@@ -67,10 +67,6 @@ As you can see, the video starts with a ‘flash forward’ to one of the twins 
 
 ![ how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-by-hook.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### Step 2: Get to The Point Quickly
 
 Shortly after, while still in the first 30 seconds of the video, Collins gets right to the point and introduces the Twin Telepathy Challenge promised in the title of the video. The hook with the heater catching fire is effective, but it’s not essential. It happens to suit Collins’ style, and it happens to have happened. Getting to the main point of the video quickly – usually in the first 15 seconds, not the first 30 (it’s in the first 15 seconds that most viewers click away) – is vital. People click on videos for a reason, and if they don’t see a sign of that payoff quickly they’ll leave.
@@ -82,13 +78,13 @@ It’s only after hooking the viewer in and reiterating the promise of the title
 ![ how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-in-perfect-moment.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Collins Key has been one of the fastest-growing channels on YouTube. He does not implement this strategy in every video, but it’s not a stretch to think it’s had something to do with his success. Instead of simply asking you to subscribe at the end of the video, he creates a part of the video early on – before people who don’t watch until the end will have clicked away – where you feel as if you’re ‘supposed to’ subscribe.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Polish Your YouTube Videos with Filmora
@@ -100,6 +96,10 @@ As one of the most widely used video editing software in YouTube video editing, 
 Here is a tutorial video about how to use Filmora to edit your YouTube video. Check it out and try Filmora if you are interested.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 That's how you can get more YouTube subscribers by asking the right way. You may follow the instructions and try it yourself. Do not forget to [track your YouTube subscribers in real time](https://tools.techidaily.com/wondershare/filmora/download/) to make necessary adjustments.
 
@@ -126,15 +126,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/eamlessly-integrating-device-screens-into-your-youtube-projects-for-2024/"><u>[New] Seamlessly Integrating Device Screens Into Your YouTube Projects for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/urn-your-shorts-into-cash-effective-monetization-techniques-for-2024/"><u>[New] Turn Your Shorts Into Cash Effective Monetization Techniques for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-calculating-your-digital-footprint-understanding-views-and-income-from-youtube-for-2024/"><u>[Updated] Calculating Your Digital Footprint Understanding Views & Income From YouTube for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-how-to-see-who-viewed-your-instagram-post/"><u>[Updated] In 2024, How to See Who Viewed Your Instagram Post</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-pixelperfect-editor/"><u>[Updated] In 2024, PixelPerfect Editor</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-advanced-techniques-for-trimming-youtube-footage/"><u>2024 Approved Advanced Techniques for Trimming YouTube Footage</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-innovative-classroom-techniques-utilizing-youtube-effectively/"><u>2024 Approved Innovative Classroom Techniques Utilizing YouTube Effectively</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/nce-allure-3-ultimate-video-growth-methods-for-2024/"><u>Audience Allure 3 Ultimate Video Growth Methods for 2024</u></a></li>
-<li><a href="https://solve-info.techidaily.com/dealing-with-recurring-network-hardware-issues-advice-from-yl-experts/"><u>Dealing with Recurring Network Hardware Issues: Advice From YL Experts</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/updated-2024-approved-streamline-your-video-library-top-mac-metadata-editing-tools/"><u>Updated 2024 Approved Streamline Your Video Library Top Mac Metadata Editing Tools</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-achieve-video-perfection-youtube-studio-edition-tips-and-tricks/"><u>[New] 2024 Approved Achieve Video Perfection YouTube Studio Edition Tips & Tricks</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-light-up-your-feed-expert-tips-for-instagram-highlights-3-steps/"><u>[New] In 2024, Light Up Your Feed Expert Tips for Instagram Highlights (3 Steps)</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-inside-look-the-best-youtube-makeup-artists-of-today/"><u>[Updated] In 2024, Inside Look The Best YouTube Makeup Artists of Today</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-engaging-eyesight-navigating-high-definition-tweets/"><u>2024 Approved Engaging Eyesight Navigating High-Definition Tweets</u></a></li>
+<li><a href="https://location-social.techidaily.com/does-find-my-friends-work-on-infinix-smart-7-drfone-by-drfone-virtual-android/"><u>Does find my friends work on Infinix Smart 7 | Dr.fone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/fast-track-get-your-usb-rs232-drivers-instantly/"><u>Fast Track: Get Your USB RS232 Drivers Instantly!</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-stumble-upon-substantial-comment-sections/"><u>In 2024, Stumble upon Substantial Comment Sections</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/hing-into-youtube-success-a-starter-guide-for-profit/"><u>Launching Into Youtube Success A Starter Guide for Profit</u></a></li>
+<li><a href="https://media-tips.techidaily.com/step-by-step-guide-transforming-flv-videos-to-high-quality-wav-audio/"><u>Step-by-Step Guide: Transforming FLV Videos to High-Quality WAV Audio</u></a></li>
+<li><a href="https://win-forum.techidaily.com/the-big-four-in-social-media-a-look-at-facebook-twitter-instagram-and-youtube/"><u>The Big Four in Social Media: A Look at Facebook, Twitter, Instagram & YouTube</u></a></li>
+<li><a href="https://win-bytes.techidaily.com/understanding-potential-pitfalls-of-cryptocurrency-investment-insights-by-yl-computing/"><u>Understanding Potential Pitfalls of Cryptocurrency Investment - Insights by YL Computing</u></a></li>
 </ul></div>
 

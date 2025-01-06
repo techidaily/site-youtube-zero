@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Apex Artists  YouTube's Most-Followed Sages\""
-date: 2024-07-29T15:32:00.398Z
-updated: 2024-07-30T15:32:00.398Z
+date: 2024-12-29T21:08:21.139Z
+updated: 2025-01-06T00:24:23.544Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/05fdd1e1f79925f7174d27adc0ae3abbe1009fc92
 
 # YouTube Subscriber Chart - 5 Most Subscribed YouTuber
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -57,30 +54,29 @@ In this article, we will take you through the 5 most popular creator channels on
 
 ![PewDiePie](https://images.wondershare.com/filmora/article-images/pew-die-pie.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 YouTube's most well-known superstar Felix Arvid Ulf Kjellberg was born 1989 in Gothenburg. PewDiePie’s channel has made this Swedish comedian, Vlogger, and gamer based in Brighton, England, a global celebrity whose videos have reached record audiences. Felix created his YouTube channel in 2010 and in only six short years the PewDiePie YouTube channel received over 16 billion views and it is currently among the most viewed channels ever.
 
 The most common videos on Felix's channel are gaming videos in which he comments and reacts to the game as he plays through it. PewDiePie’s videos are full of goofy and genuine content that amuses its spectators. Felix's YouTube channel remains by far the most subscribed channel with more than 57 million subscribers, more than 25 million more than the channel in second. He frequently appears in marketing campaigns and other social media events and is widely considered as the most influential gaming commentator of our time.
 
 ###  2\.  HolaSoyGerman
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![HolaSoyGerman](https://images.wondershare.com/filmora/article-images/hola-soy-german.jpg)
 
 At the age of 27, Germán Alejandro Garmendia Aranis is the owner of the second most subscribed channel on YouTube with more than 32 million subscribers. Furthermore, HolaSoyGerman’s channel is the most subscribed Spanish-speaking channel today. Germán's second YouTube channel JuegaGerman has made him the only YouTuber ever to receive two diamond play buttons for having over 40 million subscribers on his two channels.
 
 The Chilean YouTube superstar uploaded his first YouTube video in 2011 and by October 2012 his channel has reached 1 million subscribers. Recently, German has lent his voice to a character in the Spanish version of Ice Age: Collision Course. He finds inspiration for his comic YouTube videos in everyday life and topics like ex-girlfriends, school, and phobias are frequently covered in videos published on the HolaSoyGerman channel. In 2014 and 2015 German won the 'Icon of the Year' prize from MTV Millennial Awards.
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ###  3\.  ElrubiusOMG
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ElrubiusOMG](https://images.wondershare.com/filmora/article-images/elrubius-omg.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 More than 25 million subscribers who follow this gaming commentator. The El Rubius OMG channel was created by Rubén Doblas Gundersen in December 2011 and by February 2013 it reached 1 million subscribers. However, Rubén has been producing videos for his Elrubius channel since 2006\. He simply became more dedicated to the frequent production of YouTube videos in 2011\. Even though the videos featured on the El Rubius OMG channel mostly cover video games, Rubén also produces comedy videos, vlogs, and other interesting and amusing content.
 
@@ -90,6 +86,10 @@ Based in Madrid, El Rubius OMG first became popular in Spanish-speaking countrie
 
 ![Smosh](https://images.wondershare.com/filmora/article-images/smosh.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Originally, Smosh was a channel run by sketch comedy duo Ian Andrew Hecox and Anthony Padilla. They started the Smosh YouTube channel in 2005 and since then they have grown their team to include more creators, and their content to include animation and gaming. Smosh has become much more than two funny guys on YouTube – it is a wildly successful content company.
 
 Most channels that have one viral video do not go on to have sustained success on YouTube, but Smosh is an exception to this rule. Their ‘Pokemon Theme Music Video’, released in 2005, became the most viewed video of all time (as of that year). This video kick-started the growth of their channel.
@@ -98,9 +98,6 @@ In 2017, Anthony Padilla chose to leave Smosh to focus on his own solo YouTube c
 
 ### 5\.  Fernanfloo
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Fernanfloo](https://images.wondershare.com/filmora/article-images/fernan-floo.jpg)
 
 Yet another enormously popular YouTuber that comes from a Spanish speaking country whose channel attracted millions of subscribers. A 24-year-old Salvadoran named Luis Fernando Flores Alvarado is the man behind one of the most subscribed YouTube channels of all time. The Fernanfloo channel was created in 2011, and in February 2014 it had only 100,000 subscribers. By August 2014, Alvarado's channel reached 1 million subscribers, making him one of YouTube's biggest success stories. The videos featured on Feranfloo channel mostly cover gaming topics, but with a touch of comedy which makes Alvarado's videos unique.
@@ -112,16 +109,18 @@ At the end of 2015, Alvarado launched the Fenanfloo mobile app that had 2.3 mill
 Looking for a live [YouTube subscriber chart](https://tools.techidaily.com/wondershare/filmora/download/)?
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Edit YouTube Videos with Full-Featured Video Editing Software
 
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -129,14 +128,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -145,4 +141,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-fuel-the-fire-top-videos-that-inspire-audiences/"><u>[New] 2024 Approved Fuel the Fire Top Videos That Inspire Audiences</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/hannel-flair-free-download-templates-for-2024/"><u>[New] Channel Flair Free Download Templates for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/levate-your-yt-marketing-essential-tips-for-higher-rankings-for-2024/"><u>[New] Elevate Your YT Marketing Essential Tips for Higher Rankings for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/it-the-bottom-finding-your-best-free-youtube-downloader-app-on-android-for-2024/"><u>[New] Hit the Bottom - Finding Your Best Free YouTube Downloader App on Android for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-enhance-audio-visual-fidelity-use-av1-on-youtube/"><u>[New] In 2024, Enhance Audio-Visual Fidelity Use AV1 on YouTube</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-top-3-nintendo-switch-emulators-free-to-download/"><u>[New] In 2024, Top 3 Nintendo Switch Emulators Free to Download</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-recording-revelry-capturing-the-thrill-of-sports-games-for-2024/"><u>[New] Recording Revelry Capturing the Thrill of Sports Games for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/y-bliss-essential-tutorials-for-ultimate-style-for-2024/"><u>Beauty Bliss Essential Tutorials for Ultimate Style for 2024</u></a></li>
+<li><a href="https://discover-cloud.techidaily.com/1725286535719-foobar2000/"><u>Foobar2000を始める - 初心者ガイド: 効果的な使用と操作テクニックの紹介</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/free-online-mp3-converter-by-movavi-download-edit-and-share-music-effortlessly/"><u>Free Online MP3 Converter by Movavi: Download, Edit and Share Music Effortlessly</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-from-xiaomi-redmi-13c-5g-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock from Xiaomi Redmi 13C 5G Phones with/without a PC</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/mastering-android-device-manager-the-ultimate-guide-to-unlocking-your-xiaomi-redmi-note-12r-device-by-drfone-android/"><u>Mastering Android Device Manager The Ultimate Guide to Unlocking Your Xiaomi Redmi Note 12R Device</u></a></li>
+<li><a href="https://fox-that.techidaily.com/quick-solutions-for-iphone-users-facing-guided-access-glitches/"><u>Quick Solutions for iPhone Users Facing Guided Access Glitches</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-essentials-of-the-ai-act-by-the-eu-and-its-influence-on-tools-like-chatgpt/"><u>The Essentials of the AI Act by the EU and Its Influence on Tools Like ChatGPT</u></a></li>
+</ul></div>
 

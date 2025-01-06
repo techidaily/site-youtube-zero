@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Stand Alone, Hold Tight  Camera Stability Techniques\""
-date: 2024-07-29T08:32:28.423Z
-updated: 2024-07-30T08:32:28.423Z
+date: 2024-12-30T04:19:16.707Z
+updated: 2025-01-06T03:37:11.909Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/67bd9eb22eb0b577554d0f90d5db30aca97e4f163
 
 # DIY Tripods| How to Stabilize Your Camera without Buying a Tripod
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -32,16 +29,18 @@ thumbnail: https://thmb.techidaily.com/67bd9eb22eb0b577554d0f90d5db30aca97e4f163
 When you’re trying to grow a channel on YouTube it can feel like equipment is a barrier, but it shouldn’t be. If you can’t afford a high-end tripod, for example, there are loads of ways to get by without one.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### DIY Your Video with Wondershare Filmora
 
 Wondershare Filmora has the best video stabilization tool is your videos have a bad frame or were recorded in dim lights. If a video is shot in bad weather or unfriendly situation where you don’t have all the equipment required for a quality recording, Wondershare Filmora can help you in the background to edit your videos like a pro. And it has all the relevant tools like effects, transitions, background removal, overlays, and background music that could turn your normal video to a professional one.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Here are 3 of our favorite DIY tripods.
 
@@ -57,22 +56,28 @@ Hold your phone in landscape mode (horizontally, so it’s long rather than tall
 
 Here it is with binder clips:
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### **DIY adjustable tripod using books and a towel**
 
 You’ve probably heard a million times that you can stabilize your camera by sitting it down on any stable surface – on your desk, on a stack of books, up in a tree, etc. This is very true!
@@ -90,9 +95,6 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -129,14 +131,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -145,4 +144,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-effortless-snapchat-connectivity-step-by-step-guide-for-2024/"><u>[New] Effortless Snapchat Connectivity Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-expert-insights-into-efficient-lunapic-usage/"><u>[New] Expert Insights Into Efficient LunaPic Usage</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-avoid-shaky-footage-proper-tripod-usage-techniques-in-vlog-creation/"><u>[New] In 2024, Avoid Shaky Footage Proper Tripod Usage Techniques in Vlog Creation</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/eimagine-your-youtube-approach-with-tubebuddy/"><u>[New] Reimagine Your YouTube Approach with TubeBuddy</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-effective-color-difference-filters-in-film-making/"><u>[Updated] 2024 Approved Effective Color Difference Filters in Film-Making</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-mastering-instatunes-navigating-copyright-laws/"><u>[Updated] 2024 Approved Mastering InstaTunes Navigating Copyright Laws</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-reel-it-in-pro-level-techniques-for-youtube-video-editors/"><u>[Updated] 2024 Approved Reel It In Pro-Level Techniques for YouTube Video Editors</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-elevate-video-clarity-with-expert-tips-for-youtube-editors/"><u>[Updated] In 2024, Elevate Video Clarity with Expert Tips for YouTube Editors</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-insights-into-income-average-earnings-per-advertisement-playback/"><u>[Updated] Insights Into Income Average Earnings per Advertisement Playback?</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-average-earnings-per-view-whats-the-income-for-youtubers-per-ad-playback/"><u>2024 Approved Average Earnings Per View What's the Income for YouTubers per Ad Playback?</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/gifify-your-tweet-a-costless-how-to-guide/"><u>Gifify Your Tweet A Costless How-To Guide</u></a></li>
+<li><a href="https://win11.techidaily.com/initiating-ms-paint-within-windows-11/"><u>Initiating MS Paint Within Windows 11</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ize-engagement-with-these-9-youtube-thumbnail-creators-for-2024/"><u>Maximize Engagement with These 9 YouTube Thumbnail Creators for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/personalizing-ai-prose-training-chatgpt-to-reflect-you/"><u>Personalizing AI Prose: Training ChatGPT to Reflect You</u></a></li>
+<li><a href="https://techidaily.com/why-stellar-data-recovery-for-iphone-14-pro-takes-time-in-scanning-my-iphone-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>Why Stellar Data Recovery for iPhone 14 Pro takes time in scanning my iPhone? | Stellar</u></a></li>
+</ul></div>
 

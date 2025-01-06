@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Crafting the Perfect Schedule for Jobs & YouTube"
-date: 2024-07-29T15:33:05.245Z
-updated: 2024-07-30T15:33:05.245Z
+date: 2025-01-01T22:22:20.959Z
+updated: 2025-01-05T18:48:45.354Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/130efd155dd3113027502bebb58cb6e6e0e86e94c
 
 # How to balance YouTube with a Full-Time Job
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -50,47 +47,52 @@ So, to save you and your viewers some of the same struggles, here are 5 tips I r
 I know what you’re thinking - “What?! That’s insane.” The first piece of advice I received about YouTube was to create a schedule of days to post so your viewers look forward to videos. That just doesn’t work for me. Whenever I became too busy with work, I couldn’t stick to my typical Tuesday or Thursday schedule. I think it’s best to focus on how many times you can post in a week rather than a specific day. I try to post at least once a week and that’s my goal. You can always increase as your workload gets lighter or you when you are able to do YouTube full-time.
 
 <!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 2. Keep track of all your ideas in one notebook planner
 
 A notebook planner is essential for keeping my life organized and on track. When I first started my channel, I had a separate planner just for my YouTube videos – this didn’t work cause I never looked at it. It worked best when I kept track of my entire life, including YouTube, in one planner since I look at it every day. Then I could also see which days I wanted to post a video or see what topics worked best around specific holidays and such.
 
 <!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3. Check the weather forecast in advance
 
 When starting a YouTube channel, many YouTubers like myself don’t have the money to afford all the fancy lighting you see other creators using. [I use natural light](https://tools.techidaily.com/wondershare/filmora/download/), which means I have to make sure it’s going to be a sunny day or at least bright enough for my videos to be clear. I check the forecast for the week on Sunday evenings so I can plan out my best days to film, this keeps my video shooting schedule productive.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 4. Create 3-5 videos in advance
 
 This week I am on PTO (paid time off) which has given me a lot more time to film videos I can post for next month. Life happens and it can set you back on filming. If you happen to get a major break in your workweek, use the opportunity to film a bunch of videos, edit them, and have them waiting in your pocket. I filmed three videos in one day – I planned and set-up the night before, which made filming much smoother. Trust me, this tip works wonders!
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ## 5. Be creative! Create audios (audio-only videos)
 
 In the event that life gets too crazy, it’s perfectly fine to do just audio. Many of us are always on the go which means it’s the perfect time to listen to great advice while driving to work, waiting on the bus, or working at the gym. Someone out there would love to hear your advice. I started to do this with my Tea Time Talk Audios and the response was great.
 
 I hope these tips can help you on your journey with YouTube while still working a full-time job.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Make a YouTube Video with Wondershare Filmora
 
 Wondershare Filmora is one application that people prefer over any other video editing application due to its easy-to-use editing tools and social media aimed settings. This application can help any beginner with a desire to shoot a movie, achieve his dream even without the availability of high-tech cameras or equipment in his hand. The features like video stabilization feature and lens correction allow removing the major defects that occur while capturing a video. A large number of filters in the application can be used to give the cinematic effect whether it be a short video or a long movie.
 
 Just try it and create your own YouTube video!
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -98,14 +100,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -114,4 +113,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/oosting-youtube-income-using-studio-anywhere-anyhow-for-2024/"><u>[New] Boosting YouTube Income Using Studio Anywhere, Anyhow for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-crafting-perfect-subtitles-in-videos-discover-essential-web-tools/"><u>[New] Crafting Perfect Subtitles in Videos Discover Essential Web Tools</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-reinstate-fb-watch-video-tile/"><u>[New] In 2024, Reinstate FB Watch Video Tile</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-youtube-storytelling-made-simple-with-premiere-pro-tips/"><u>[New] In 2024, YouTube Storytelling Made Simple - With Premiere Pro Tips</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/tep-by-step-for-quick-chromakey-application/"><u>[New] Step-by-Step for Quick Chromakey Application</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-visual-hooks-essential-steps-in-podcast-design/"><u>[New] Visual Hooks Essential Steps in Podcast Design</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-mastering-the-art-of-instantaneous-deletion-of-youtube-discussions/"><u>[Updated] In 2024, Mastering the Art of Instantaneous Deletion of YouTube Discussions</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-unlock-youtube-partnership-aim-for-a-10k-views-target/"><u>[Updated] In 2024, Unlock YouTube Partnership Aim for a 10K Views Target</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-tailored-thumbnails-elevating-your-video-visibility-on-youtube/"><u>2024 Approved Tailored Thumbnails Elevating Your Video Visibility on YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-the-artisans-approach-crafting-unique-shareable-youtube-shorts/"><u>2024 Approved The Artisan's Approach Crafting Unique, Shareable YouTube Shorts</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/breaking-down-color-grading-into-simplified-steps/"><u>Breaking Down Color Grading Into Simplified Steps</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ce-engagement-mastering-template-based-video-description-writing/"><u>Enhance Engagement Mastering Template-Based Video Description Writing</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/exploring-virtual-realities-shortcomings/"><u>Exploring Virtual Realities' Shortcomings</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-data-from-dead-iphone-7-plus-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to recover data from dead iPhone 7 Plus | Stellar</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ensive-gear-mics-for-content-creators-on-a-dime/"><u>Inexpensive Gear Mics for Content Creators on a Dime</u></a></li>
+<li><a href="https://android-frp.techidaily.com/is-gsm-flasher-adb-legit-full-review-to-bypass-your-realme-c51frp-lock-by-drfone-android/"><u>Is GSM Flasher ADB Legit? Full Review To Bypass Your Realme C51FRP Lock</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/athway-to-recognition-youtubers-guide-to-personal-brands/"><u>The Pathway to Recognition YouTubers' Guide to Personal Brands</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-infinix-smart-7-hd-drfone-by-drfone-virtual-android/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Infinix Smart 7 HD | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/troubleshooting-guide-determining-if-xbox-online-services-are-unavailable/"><u>Troubleshooting Guide: Determining if Xbox Online Services Are Unavailable</u></a></li>
+</ul></div>
 

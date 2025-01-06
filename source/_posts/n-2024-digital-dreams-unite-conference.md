@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Digital Dreams Unite Conference"
-date: 2024-12-20T19:53:09.364Z
-updated: 2024-12-27T16:50:57.120Z
+date: 2025-01-01T01:50:55.077Z
+updated: 2025-01-05T23:17:35.780Z
 tags:
   - ai video
   - ai youtube
@@ -56,6 +56,10 @@ There were some clues as to what the rest of the summit was like hiding amongst 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. A map of Dumbo
 
 The hotel YouTube put the creators up in was in Dumbo, Brooklyn. ‘Dumbo’ is an acronym for Down Under the Manhattan Bridge Overpass. While it used to be primarily an industrial area, Dumbo is now the most expensive neighborhood in Brooklyn with many of the old industrial spaces now serving as luxury residential lofts. Dumbo is also a hub for tech startups.
@@ -65,23 +69,19 @@ _Tess takes you to some of her favorite places in Dumbo._
 Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators who attended the summit probably had a lot of fun exploring it.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. Post Cards
 
 One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 3\. S’well bottle
 
 S’well bottles are stainless steel beverage containers that keep drinks hot or cold. They retail for around $45\. YouTubers invited to the Creator Summit received ones with YouTube branding on them. A good water bottle is a convention/conference essential, so this was a very practical gift.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. Branded slippers
@@ -111,13 +111,13 @@ Want to join the YouTube Creator Summit in the future? We all know that there is
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -141,19 +141,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/he-fundamentals-of-sports-video-editing-for-2024/"><u>[New] The Fundamentals of Sports Video Editing for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-winning-at-gaming-memory-capture-essentials-on-windows-10-for-2024/"><u>[New] Winning at Gaming Memory Capture Essentials on Windows 10 for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-decoding-the-art-of-video-production-in-filmora/"><u>[Updated] 2024 Approved Decoding the Art of Video Production in Filmora</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-unleashing-entrepreneurship-on-a-slide-quick-channel-creation-tips-for-your-phone/"><u>[Updated] 2024 Approved Unleashing Entrepreneurship on a Slide Quick Channel Creation Tips for Your Phone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-crafting-effective-youtube-thumbnails-and-banners-for-2024/"><u>[Updated] Crafting Effective YouTube Thumbnails & Banners for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-key-lights-and-soft-shadows-for-vloggers/"><u>[Updated] In 2024, Key Lights and Soft Shadows for Vloggers</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/achieve-smooth-aquatic-vids-with-these-seven-steps/"><u>Achieve Smooth Aquatic Vids with These Seven Steps</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/te-your-video-guide-with-annotations-on-youtube-for-2024/"><u>Elevate Your Video Guide with Annotations on YouTube for 2024</u></a></li>
-<li><a href="https://techtrends.techidaily.com/how-to-correctly-address-wlanapidll-absence-issues-on-your-pc/"><u>How To Correctly Address WLANAPI.DLL Absence Issues On Your PC</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/in-2024-unlocking-full-potential-with-obs-and-skype-collaboration-tools/"><u>In 2024, Unlocking Full Potential with OBS and Skype Collaboration Tools</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/run-task-manager-as-an-admin-essential-steps-for-windows-11-users/"><u>Run Task Manager as an Admin: Essential Steps for Windows 11 Users</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ts-of-youtube-link-driven-growth-for-content-creators-for-2024/"><u>Secrets of YouTube Link-Driven Growth for Content Creators for 2024</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/the-ultimate-guide-to-bypassing-icloud-activation-lock-from-iphone-se-by-drfone-ios/"><u>The Ultimate Guide to Bypassing iCloud Activation Lock from iPhone SE</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/top-durable-and-robust-computers-recommendations/"><u>Top Durable and Robust Computers - Recommendations</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-a-beginners-primer-on-essential-camera-movements-in-film/"><u>[New] A Beginner's Primer on Essential Camera Movements in Film</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-captivate-crowds-social-media-growth-hacks-for-youtube/"><u>[Updated] 2024 Approved Captivate Crowds Social Media Growth Hacks for YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-unveiling-the-best-practices-for-youtube-fb-sharing/"><u>[Updated] In 2024, Unveiling the Best Practices for YouTube FB Sharing</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-minds-on-trial-select-escapes-that-challenge-you/"><u>[Updated] Minds on Trial Select Escapes That Challenge You</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-navigating-through-vrs-bright-side-and-dark-hole/"><u>[Updated] Navigating Through VR's Bright Side & Dark Hole</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-the-richest-video-content-star-on-earth/"><u>2024 Approved The Richest Video Content Star on Earth</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/3-effective-ways-to-bypass-activation-lock-from-apple-iphone-xs-by-drfone-ios/"><u>3 Effective Ways to Bypass Activation Lock from Apple iPhone XS</u></a></li>
+<li><a href="https://win-answers.techidaily.com/expert-strategies-for-fixing-the-persistent-anticheat-connection-failed-problem-in-escape-from-tarkov/"><u>Expert Strategies for Fixing the Persistent 'Anticheat Connection Failed' Problem in Escape From Tarkov</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210500297-9781736597217-feed-your-moon/"><u>Feed Your Moon | Free Book</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/masters-top-ten-female-gaming-influencers-for-2024/"><u>Game Masters Top Ten Female Gaming Influencers for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/in-2024-youtubes-secret-to-success-a-compre-ffive-essential-keyword-tools/"><u>In 2024, YouTube's Secret to Success A Compre FFive Essential Keyword Tools</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/by-step-to-youtube-fame-implementing-featured-channels-successfully/"><u>Step-by-Step to YouTube Fame Implementing Featured Channels Successfully</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ltimate-calculus-of-cashflow-from-creativity-measuring-your-youtube-earnings-and-impact-for-2024/"><u>The Ultimate Calculus of Cashflow From Creativity Measuring Your YouTube Earnings and Impact for 2024</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/top-rated-philips-evonia-49m2c8900-oled-gaming-display-240hz-and-stunning-visuals-full-review/"><u>Top Rated Philips Evonia 49M2C8900 OLED Gaming Display: 240Hz & Stunning Visuals - Full Review</u></a></li>
 </ul></div>
 

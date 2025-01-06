@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Boost Views with Your Own YouTube Thumbnail Design"
-date: 2024-07-29T15:30:13.973Z
-updated: 2024-07-30T15:30:13.973Z
+date: 2024-12-30T02:53:14.877Z
+updated: 2025-01-06T02:57:18.319Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/895e63c00991de11c3a5bb60d914f7ce63bcb7f1c
 
 # How To Add Custom Thumbnails to Your YouTube Videos
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -38,18 +35,20 @@ YouTube custom thumbnails are a great way to get people's attention to your YouT
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How To Add Custom Thumbnails to Your YouTube Videos \[Steps, Tools and Tips\]
 
 We have just made a video tutorial about how to make a YouTube video thumbnail, check it below to find out the tips and tricks of making customized YouTube thumbnail.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Part 1: How to Make a Thumbnail for YouTube and Add Custom Thumbnails to YouTube
 
 After you've verified your account and made your thumbnail, it's finally time to upload it to your video and make a custom thumbnail. To do this, go to Creator Studio and then Video Manager. You'll see a button labeled "Edit" next to each video, and an arrow pointing down. Click **Thumbnail Editor**.
@@ -58,18 +57,19 @@ In Thumbnail Editor, you can use the still images in the video as a thumbnail, c
 
 1\. **Preview the video and choose the target video still.** You can click the Playback button and check the video and pause it at the desired frame. Or, you can step through each frame by clicking the Preview Frame button and Next Frame icon. Click Next to continue.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
-</a>
-<!-- affiliate ads end -->
 ![YouTube Thumbnail](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-video-still.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 2\. And now, you can **add text, image and shape overlays to the thumbnail.** You can change the text font, size, opacity and more.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ![YouTube Thumbnail](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-editor-edit.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 3\. Click **Next** to save the thumbnail and you will see how the thumbnail displays on different platforms such as YouTube, Facebook and Twitter. Click **Save** to save the video thumbnail.
 
@@ -79,9 +79,6 @@ In this way, you can add a custom thumbnail to the new videos and change the vid
 
 Of course, you can use some of the best tools to make a YouTube video thumbnail. In this part, we will show you some of the best tools to create custom YouTube thumbnails.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 #### 1\.   **Create YouTube Thumbnail with Online solution - Canva**
@@ -99,8 +96,9 @@ Check this video tutorial to see how to Make a Youtube Thumbnail using Canva.
 Check this video tutorial to see how to make professional Thumbnails for YouTube Videos with Gimp:
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Part 3: How to Change A Thumbnail On YouTube
 
 Note: YouTube allows verified YouTube accounts (accounts that provided YouTube with a working phone number) to upload custom thumbnail images and change them accordingly.
@@ -110,6 +108,10 @@ In this part, we’ll be going over how to change a thumbnail image on YouTube. 
 * After signing into YouTube with your Google account, click on your profile on the top right corner. Click on **YouTube Studio** from the drop-down menu.
 
 ![ YouTube Studio button](https://images.wondershare.com/filmora/article-images/change-youtube-thumbnail-find-youtube-studio.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * On the left side of the page, click on **Videos** and then find your video and click on the **details** button.
 
@@ -149,9 +151,6 @@ Your thumbnail should tell a story; it should be clear from looking at it what v
 
 Very few people intentionally use thumbnails that have nothing to do with the content of their videos – i.e, most people understand not to use a picture of a kitten in the thumbnail for their tech review, unless maybe their kitten is the one doing the review (which would be adorable, someone should do that). People who want serious advice won’t click, and people who click to see a kitten will click away fast.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ![ YouTube Thumbnail Should be relevant](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-should-stay-on-topic.jpg)
 
 _This thumbnail had better be for a kitten’s iPhone review video or people will click away. Fast._
@@ -166,10 +165,11 @@ Often, they will be looking for the answer to a specific question and will compl
 
 Sometimes big channels can get away with stuff like this, because large portions of their audiences are interested in them as people and will already be curious about anything they post. This technique will not bring in new viewers, though.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ![ YouTube Thumbnail:  Don’t Be Mysterious ](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-tips-2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 _If this came up in a search for ‘smoky eye tutorial’, would you click it?_
 
@@ -209,9 +209,6 @@ Usually, you’ll want to use a bit of text in your thumbnail. It might be the f
 
 The reason you should use huge text is so that people can read it. Remember that when people see your thumbnail in their search results, it will be much smaller than it will look while you are creating it. Text that looks big enough while you are creating your thumbnail will be much smaller when people are actually trying to read it, and that goes double for viewers watching on their small smartphone screens.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
-<!-- affiliate ads end -->
 ### Frequently Asked Questions about YouTube Thumbnail
 
 #### 1\. What is YouTube Thumbnail?
@@ -238,14 +235,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -254,4 +248,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-child-prodigy-ryan-kaji-dominates-youtube-revenue-race/"><u>[New] 2024 Approved Child Prodigy Ryan Kaji Dominates YouTube Revenue Race</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-decoding-the-art-of-engaging-in-youtube-short-forms/"><u>[New] 2024 Approved Decoding the Art of Engaging in YouTube Short Forms</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-the-smudge-solution-blurring-visions-in-video-content/"><u>[New] 2024 Approved The Smudge Solution Blurring Visions in Video Content</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/issecting-the-financial-strategy-of-t-series-in-video-platforms-for-2024/"><u>[New] Dissecting the Financial Strategy of T-Series in Video Platforms for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/rom-genres-to-gems-building-a-personalized-youtube-music-mix-onlinemobile-for-2024/"><u>[New] From Genres to Gems Building a Personalized YouTube Music Mix Online/Mobile for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-snowdrift-scribes-celebrating-beijings-olympic-spotlight/"><u>[New] In 2024, Snowdrift Scribes Celebrating Beijing's Olympic Spotlight</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/he-dynamics-behind-tseries-youtube-earning-patterns-for-2024/"><u>[New] The Dynamics Behind TSeries' YouTube Earning Patterns for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-best-channel-discoveries-in-asmr-for-2024/"><u>[Updated] Best Channel Discoveries in ASMR for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-visionary-storylines-in-the-eight-genre-sphere/"><u>2024 Approved Visionary Storylines in the Eight Genre Sphere</u></a></li>
+<li><a href="https://win-able.techidaily.com/addressing-unending-initialization-error-on-anthem-interface/"><u>Addressing Unending Initialization Error on Anthem Interface</u></a></li>
+<li><a href="https://techidaily.com/guide-on-how-to-erase-apple-iphone-11-pro-data-completely-drfone-by-drfone-ios-full-data-eraser-ios-full-data-eraser/"><u>Guide on How To Erase Apple iPhone 11 Pro Data Completely | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-lock-apps-on-google-pixel-7a-to-protect-your-individual-information-by-drfone-android/"><u>How to Lock Apps on Google Pixel 7a to Protect Your Individual Information</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-channel-dynamo-craft-your-content-empire/"><u>In 2024, Channel Dynamo Craft Your Content Empire</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-tutorial-to-change-samsung-galaxy-s24plus-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>In 2024, Tutorial to Change Samsung Galaxy S24+ IMEI without Root A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/optimize-your-time-pick-the-fastest-5-chrome-addons-for-facebook-vids/"><u>Optimize Your Time Pick the Fastest 5 Chrome Addons for Facebook Vids</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/snapchat-profitability-techniques/"><u>Snapchat Profitability Techniques</u></a></li>
+<li><a href="https://driver-install.techidaily.com/windrivers-take-note-solve-usb-issues/"><u>WiNdrivers, Take Note! Solve USB Issues</u></a></li>
+</ul></div>
 

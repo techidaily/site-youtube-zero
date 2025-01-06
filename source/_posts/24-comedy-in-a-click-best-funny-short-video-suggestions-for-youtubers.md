@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Comedy in a Click  Best Funny Short Video Suggestions for YouTubers\""
-date: 2024-07-29T15:32:28.445Z
-updated: 2024-07-30T15:32:28.445Z
+date: 2025-01-04T01:00:06.602Z
+updated: 2025-01-05T18:15:43.776Z
 tags:
   - ai video
   - ai youtube
@@ -31,8 +31,9 @@ YouTube is a well-known brand for videos globally. This time, it comes with its 
 That sounds great, doesn’t it? Let’s move ahead to get a good grab over some funny, engaging, and eye-catching ideas to have YouTube Shorts videos here. No need for a lengthy tutorial to become the real YouTube Shorts champion with the following tips. Let’s roll on, guys!
 
 <!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 1: Top 10 Funny YouTube Shorts Video Ideas
 
 Your wait gets over here. Yes, you heard it right. If you are eager to explore the world of YouTube Shorts Channel and some funny ideas, take a big leap towards your journey.
@@ -45,15 +46,16 @@ Yeah! The first idea looks so catchy. Everyone holds some dreams. And if you hav
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Also, you can discuss different sorts of dreams that the human genre has been dreaming of for years. You can even add a flavor of future dreams that will open up the space of excellent speculation one can think of.
 
 #### Idea 2: Story Timeline Series
 
 Who doesn’t love the stories? Everyone is somewhat fond of listening to different kinds of stories. And, if you can trim those long stories into small ones or can create some short stories. Then, you can make the best YouTube Shorts stories ideas that will go a long way, not only kids but unique and exciting stories loved by all.
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-3.jpg)
 
 So, pen down some compelling stories that do not need long writing work. But, like a comic strip, you need to create and join such a series under YouTube Shorts ideas.
@@ -72,6 +74,10 @@ Life is indeed full of surprises, events, and glory. Then, why not tailor some o
 
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You need to keep your judging eyes open to catch all the moments, and you can also note it down to make a series so as not to miss any exciting experience.
 
 Living every moment creates a wonder. Let others also make a part of this journey and inspire them to build your YouTube shorts ideas.
@@ -80,10 +86,11 @@ Living every moment creates a wonder. Let others also make a part of this journe
 
 If experimenting with chemicals or anything that surrounds you makes you out of the world, then there is the chance that you can come out as YouTube Shorts ideas Star. By just showing how one chemical, when mixed with another, creates something new and marvelous to see, look or feel.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-6.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Just review all your collection of experiments you did and combine them under YouTube Shorts Channel ideas. And make a big bust with such chemical/physical experiments.
 
@@ -91,9 +98,6 @@ Just review all your collection of experiments you did and combine them under Yo
 
 Competition creates a zeal to lead, and if you add some flavor to it. Then, people will love to take part in it. So, waiting for what? Just come out with YouTube Shorts funny Video Competition ideas to grab the audience to watch the videos and become active participants.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
-<!-- affiliate ads end -->
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-7.jpg)
 
 Funny competition can vary from a weird hairstyle, odd season festival celebration, or anything that you think of interesting, different, and eye-catching.
@@ -102,9 +106,6 @@ Funny competition can vary from a weird hairstyle, odd season festival celebrati
 
 The dripping sound of water, raindrops, flowing trees, and blowing air make some distinct sound. So, look around to find your inspiration to make some quirky sound, whether the musical instrument or can create your kind of instrument such as tumbler, glass, bowl, etc. And see the natural flow of music that resides all around us.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-8.jpg)
 
 Just give it a try and dance with the music you create with all the worldwide listeners of YouTube Shorts Channel with this idea.
@@ -121,11 +122,11 @@ Mixing some comedy flavor to life will add more fun and enjoyment to all those s
 
 Pets are the favorite of those who own them. They are excellent; they play, dance, and do different kinds of fun activities. Have you ever noticed that, if not, they must take notice now?
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
-<!-- affiliate ads end -->
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-10.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You will be surprised to see how much fun-loving these cute pets are—so, geared up to capture the funny acts of pets through YouTube Shorts ideas. It will bring a smile to everyone’s face.
 
@@ -133,9 +134,6 @@ You will be surprised to see how much fun-loving these cute pets are—so, geare
 
 Everybody holds some unique talent. You just need to identify it. If you have some talent, then showcasing talent ideas for YouTube Shorts will apt you. The whole world is waiting to see something unique that only you can do. So, shred your shyness and let the world see how talented you are.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
-<!-- affiliate ads end -->
 ![filmora](https://images.wondershare.com/filmora/youtube-shorts-ideas-11.jpg)
 
 Here, you got to know about the top 10 funny ideas for YouTube Shorts videos. Choose the one that fits you and start creating YouTube Shorts Channel with these ideas.
@@ -194,14 +192,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -210,4 +205,17 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-complete-annihilation-of-youtube-shorts-accessibility/"><u>[New] In 2024, Complete Annihilation of YouTube Shorts Accessibility</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-elite-7-film-downloader-apps/"><u>[New] In 2024, Elite 7 Film Downloader Apps</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/astering-the-art-of-content-distribution-startup-for-2024/"><u>[New] Mastering the Art of Content Distribution Startup for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/astering-youtubes-video-editor-essential-tips-and-tricks/"><u>[New] Mastering YouTube's Video Editor Essential Tips and Tricks</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-androids-mobas-unveiling-the-top-ten/"><u>[Updated] Android's MOBAs Unveiling the Top Ten</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/180-discounted-price-why-the-arlo-pro-5s-could-be-your-ideal-choice-for-ultimate-security-cameras-zdnet-insights/"><u>$180 Discounted Price! Why the Arlo Pro 5S Could Be Your Ideal Choice for Ultimate Security Cameras - ZDNET Insights</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ing-your-best-gif-creator-a-comparative-analysis-for-2024/"><u>Choosing Your Best GIF Creator A Comparative Analysis for 2024</u></a></li>
+<li><a href="https://fox-tips.techidaily.com/dealing-with-windows-hardware-issues-expert-advice-and-solutions-by-yl-software-experts/"><u>Dealing with Windows Hardware Issues: Expert Advice and Solutions by YL Software Experts</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-the-error-of-unfortunately-the-processcomandroidphone-has-stopped-on-infinix-zero-5g-2023-turbo-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix the Error of Unfortunately the Process.com.android.phone Has Stopped on Infinix Zero 5G 2023 Turbo | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-candids-canvas-transforming-photos-with-editing-tips/"><u>In 2024, Candid's Canvas Transforming Photos with Editing Tips</u></a></li>
+</ul></div>
 

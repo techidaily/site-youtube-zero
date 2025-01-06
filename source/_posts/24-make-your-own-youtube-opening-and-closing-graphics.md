@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Make Your Own YouTube Opening & Closing Graphics"
-date: 2024-12-14T16:01:19.395Z
-updated: 2024-12-21T16:02:15.665Z
+date: 2025-01-02T02:41:27.703Z
+updated: 2025-01-06T00:12:40.385Z
 tags:
   - ai video
   - ai youtube
@@ -46,7 +46,7 @@ thumbnail: https://thmb.techidaily.com/1dfe303424f8c396237c03340e93195a76a2eb051
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part1: Intros
@@ -78,7 +78,7 @@ You can create a simple intro card in **Filmora**.
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
@@ -91,7 +91,7 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -130,7 +130,7 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -154,19 +154,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/arning-through-youtube-partnerships/"><u>[New] Earning Through YouTube Partnerships</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-visual-polishing-in-meetings-blurring-backgrounds-on-teammeeting-for-2024/"><u>[New] Visual Polishing in Meetings Blurring Backgrounds on TeamMeeting for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-unveiling-best-video-rank-trackers-for-youtube/"><u>[Updated] 2024 Approved Unveiling Best Video Rank Trackers for YouTube</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-captivate-audiences-techniques-for-livestreaming-video-in-spherical-views-on-youtube/"><u>[Updated] In 2024, Captivate Audiences Techniques for Livestreaming Video in Spherical Views on YouTube</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-solving-youtube-pixel-monotony-a-quick-guide/"><u>[Updated] In 2024, Solving YouTube Pixel Monotony A Quick Guide</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-gain-an-edge-access-these-top-8-sites-for-free-eco-screen-backdrops-and-clips/"><u>2024 Approved Gain an Edge - Access These Top 8 Sites for FREE Eco-Screen Backdrops and Clips</u></a></li>
-<li><a href="https://fake-location.techidaily.com/can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-xiaomi-14-drfone-by-drfone-virtual-android/"><u>Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Xiaomi 14? | Dr.fone</u></a></li>
-<li><a href="https://extra-information.techidaily.com/flawlessly-flip-twist-and-merge-videos-on-your-android-gear/"><u>Flawlessly Flip, Twist & Merge Videos on Your Android Gear</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-optimizing-youtube-thumbnails-for-better-clickthrough-rates/"><u>In 2024, Optimizing YouTube Thumbnails for Better Clickthrough Rates</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-top-7-skype-hacker-to-hack-any-skype-account-on-your-tecno-pova-6-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Top 7 Skype Hacker to Hack Any Skype Account On your Tecno Pova 6 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/pc-5/"><u>PCが黒い画面で起動しない時の最適処置方法 重要5ステップ！</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/rapidly-advancing-ai-the-emerging-cybersecurity-dilemma/"><u>Rapidly Advancing AI: The Emerging Cybersecurity Dilemma</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/shing-potential-strategic-hashtags-for-video-success/"><u>Unleashing Potential Strategic Hashtags for Video Success</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-potential-of-amazon-luna-a-deep-dive-into-its-effortlessly-fluid-gameplay/"><u>Unveiling the Potential of Amazon Luna: A Deep Dive Into Its Effortlessly Fluid Gameplay</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-download-custom-mcb-banner-packs/"><u>[New] 2024 Approved Download Custom MCB Banner Packs</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-gain-an-edge-access-these-top-8-sites-for-free-eco-screen-backdrops-and-clips/"><u>[New] 2024 Approved Gain an Edge - Access These Top 8 Sites for FREE Eco-Screen Backdrops and Clips</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-how-to-use-creative-commons-copyright-licenses-complete-guide/"><u>[New] 2024 Approved How to Use Creative Commons Copyright Licenses [Complete Guide]</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-instant-grooves-lasting-stories-making-sense-of-music-shorts/"><u>[New] 2024 Approved Instant Grooves, Lasting Stories Making Sense of Music Shorts</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-repeat-revelry-televised-looping-of-online-media-content/"><u>[New] 2024 Approved Repeat Revelry Televised Looping of Online Media Content</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-laughter-lab-steps-to-simple-sharp-memes/"><u>[New] Laughter Lab Steps to Simple, Sharp Memes</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-guffaw-generator-pictorial-mixer/"><u>[Updated] In 2024, Guffaw Generator Pictorial Mixer</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-swiftly-flip-and-swivel-movies-for-a-better-viewing-experience-using-vlc/"><u>2024 Approved Swiftly Flip and Swivel Movies for a Better Viewing Experience Using VLC</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-the-art-of-steadiness-in-photography-for-2024/"><u>Grasp the Art of Steadiness in Photography for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-vivo-v30-pro-phone-with-broken-screen-by-drfone-android/"><u>How to Unlock Vivo V30 Pro Phone with Broken Screen</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/journey-to-joyful-nutritious-dining-with-gpt-guidance/"><u>Journey to Joyful, Nutritious Dining With GPT Guidance</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-mac-quicktime-video-editing-101-tips-and-tricks-for-2024/"><u>New Mac QuickTime Video Editing 101 Tips and Tricks for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/overcoming-windows-error-x80072f17-in-store/"><u>Overcoming Windows Error X80072F17 in Store</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-video-editors-for-youtube-enthusiasts-for-2024/"><u>Prime Video Editors for YouTube Enthusiasts for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-picking-playbacks-character-beats-unveiled/"><u>Pulse-Picking Playbacks Character Beats Unveiled</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/step-into-history-discovering-the-best-10-educational-yt-channels-for-2024/"><u>Step Into History Discovering the Best 10 Educational YT Channels for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/tips-and-tricks-for-addressing-winscombsvc-errors-in-windows-os/"><u>Tips & Tricks for Addressing WinScombSvc Errors in Windows OS</u></a></li>
 </ul></div>
 

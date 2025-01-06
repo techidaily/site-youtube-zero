@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Simplified Guide to Free YouTube Card Designing\""
-date: 2024-07-29T15:30:34.899Z
-updated: 2024-07-30T15:30:34.899Z
+date: 2025-01-01T21:36:06.202Z
+updated: 2025-01-05T20:47:42.473Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/3371d97eae392c322e9b82d456ad7eef262a0a211
 
 # How to Create YouTube Intros & End Cards - Free and Easy
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -44,8 +41,9 @@ thumbnail: https://thmb.techidaily.com/3371d97eae392c322e9b82d456ad7eef262a0a211
 [How To Make an End Card](#how-to)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -72,10 +70,11 @@ This is another site with really professional looking intros for $5\. They only 
 
 You can create a simple intro card in **Filmora**.
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
@@ -87,8 +86,9 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -122,10 +122,11 @@ Some creators will leave their end cards at that and play music overtop, but it 
 13. Repeat for any other thumbnails. For your subscribe button, change where it said ‘Video’ to ‘Subscribe’ and enter your channel URL.
 14. Click **Apply Changes**.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -133,14 +134,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -149,4 +147,20 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-introduction-to-soft-starting-sounds-in-audition/"><u>[New] 2024 Approved Introduction to Soft-Starting Sounds in Audition</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/irect-youtube-tunes-to-mp3s-online-and-offline-options/"><u>[New] Direct YouTube Tunes to MP3s Online & Offline Options</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-extreme-capture-duo-gopro-hero5-black-versus-hero4-silver-edition/"><u>[New] Extreme Capture Duo GoPro Hero5 Black Versus Hero4 Silver Edition</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/umpstart-your-filming-setups-8-sites-offering-free-eco-screens-for-2024/"><u>[New] Jumpstart Your Filming Setups - 8 Sites Offering Free Eco-Screens for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ailoring-the-perfect-youtube-conclusion-for-engagement-for-2024/"><u>[New] Tailoring the Perfect YouTube Conclusion for Engagement for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-free-film-resource-highlights-where-to-start-your-search/"><u>[Updated] Free Film Resource Highlights Where to Start Your Search</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-skyrocketing-influence-growth-in-youtube-audience/"><u>[Updated] In 2024, Skyrocketing Influence Growth in YouTube Audience</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-step-by-step-strategies-for-posting-and-uploading-gifs-on-instagram/"><u>[Updated] In 2024, Step-by-Step Strategies for Posting & Uploading GIFs on Instagram</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-petite-narrative-blueprint-for-2024/"><u>[Updated] Petite Narrative Blueprint for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/how-to-overcome-the-troublesome-0x80070570-mistake-on-your-device/"><u>How to Overcome the Troublesome 0X80070570 Mistake on Your Device</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-access-short-videos-anywhere-the-top-6-free-and-online-youtube-short-download-apps/"><u>In 2024, Access Short Videos Anywhere The Top 6 Free & Online YouTube Short Download Apps</u></a></li>
+<li><a href="https://win-info.techidaily.com/microsoft-raises-the-repairability-game-with-new-laptops-leaving-ifixit-impressed-and-rivals-like-apple-under-pressure-zdnet/"><u>Microsoft Raises the Repairability Game with New Laptops, Leaving iFixit Impressed and Rivals Like Apple Under Pressure | ZDNET</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/unlocking-windows-10-tips-switching-the-screen-keyboard-on-and-off-smoothly/"><u>Unlocking Windows 10 Tips: Switching the Screen Keyboard On and Off Smoothly</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Staying Positive in the Face of Internet Skeptics\""
-date: 2024-07-29T08:32:48.504Z
-updated: 2024-07-30T08:32:48.504Z
+date: 2024-12-30T00:01:24.237Z
+updated: 2025-01-06T04:48:59.157Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/a876d99fc810824e790e14200a363bc8a24888dbe
 
 # How To Deal with YouTube Trolls and Negative Comments
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -30,8 +27,9 @@ thumbnail: https://thmb.techidaily.com/a876d99fc810824e790e14200a363bc8a24888dbe
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Deal with Negative Comments on YouTube
 
 #### 1\. Identifying Trolls / When Is A Troll Not a Troll?
@@ -58,10 +56,11 @@ thumbnail: https://thmb.techidaily.com/a876d99fc810824e790e14200a363bc8a24888dbe
 
  You will not get the troll to say they were wrong or apologize so that should never be your goal. What you can do is create a public record of the troll being corrected for others to judge for themselves. If you maintain a calm, unaffected, tone then the troll will find you boring.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -69,14 +68,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -85,4 +81,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-streamline-your-impact-the-most-effective-video-formats-for-youtube/"><u>[New] 2024 Approved Streamline Your Impact The Most Effective Video Formats for YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ree-and-uncomplicated-youtube-image-extractor-tools-reviewed-for-2024/"><u>[New] Free and Uncomplicated YouTube Image Extractor Tools Reviewed for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ush-past-a-thousand-views-in-minimal-time/"><u>[New] Push Past a Thousand Views in Minimal Time</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/outube-channel-art-make-banners-icons-and-thumbnails/"><u>[New] YouTube Channel Art - Make Banners, Icons, and Thumbnails</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-mellow-your-playlist-device-specific-techniques-for-2024/"><u>[Updated] Mellow Your Playlist Device-Specific Techniques for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-elevate-every-story-prime-video-editor-apps-for-android/"><u>2024 Approved Elevate Every Story Prime Video Editor Apps for Android</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-optimize-engagement-and-analytics-harnessing-tubebuddys-insights/"><u>2024 Approved Optimize Engagement & Analytics - Harnessing TubeBuddy's Insights</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-visual-polishing-in-meetings-blurring-backgrounds-on-teammeeting/"><u>2024 Approved Visual Polishing in Meetings Blurring Backgrounds on TeamMeeting</u></a></li>
+<li><a href="https://article-helps.techidaily.com/crucial-windows-10-features-to-boost-productivity/"><u>Crucial Windows 10 Features to Boost Productivity</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-pictures-on-iphone-xs-5-best-solutions-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Recover deleted pictures on iPhone XS? 5 Best Solutions | Stellar</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-15-best-free-youtube-introduction-tools/"><u>In 2024, 15 Best Free YouTube Introduction Tools</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-affordable-cameras-for-effective-vloggers/"><u>In 2024, Affordable Cameras for Effective Vloggers</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-calculating-total-vids-for-high-capacity-hardware-64128gb/"><u>In 2024, Calculating Total Vids for High-Capacity Hardware (64/128GB)</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-can-life360-track-you-when-your-realme-12-proplus-5g-is-off-drfone-by-drfone-virtual-android/"><u>In 2024, Can Life360 Track You When Your Realme 12 Pro+ 5G is off? | Dr.fone</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/integrated-iptv-channel-distribution-for-2024/"><u>Integrated IPTV Channel Distribution for 2024</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/ultimate-guide-the-elite-selection-of-smartwatches/"><u>Ultimate Guide: The Elite Selection of Smartwatches</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-secrets-behind-topmates-c302-cooler-an-affordable-and-competent-performance-analysis/"><u>Unveiling the Secrets Behind TopMate's C302 Cooler: An Affordable and Competent Performance Analysis</u></a></li>
+</ul></div>
 

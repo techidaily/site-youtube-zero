@@ -1,7 +1,7 @@
 ---
 title: "\"The Essential Tutorial for Home-Grown Animation Magic for 2024\""
-date: 2024-12-20T01:56:30.004Z
-updated: 2024-12-22T00:36:01.130Z
+date: 2024-12-29T16:11:29.970Z
+updated: 2025-01-06T05:49:32.656Z
 tags:
   - ai video
   - ai youtube
@@ -52,7 +52,7 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Mt. Mograph](https://www.youtube.com/channel/UCSUSgx9qc%5FNydrOL59xbJIA)**
@@ -60,7 +60,7 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 On this YouTube channel, motion graphics specialist Matt offers free animation tutorials using a variety of programs including Adobe After Effects and Cinema 4D. His lessons are for a range of skill levels, from beginner to advanced. If you are just starting out then Mt.Mograph is a great resource.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Richard Harrington on Lynda](https://www.lynda.com/Rich-Harrington/120-1.html)**
@@ -70,7 +70,7 @@ Lynda isn’t free, but the 10-day free trial period is definitely long enough f
 What’s great about this course is that it assumes you have no animation experience, and it walks you through the main thing a lot of YouTubers want to learn animation for – creating an animated logo.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Bloop Animation](https://www.bloopanimation.com/)**
@@ -78,7 +78,7 @@ What’s great about this course is that it assumes you have no animation experi
  Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Video Copilot](http://www.videocopilot.net/)**
@@ -88,7 +88,7 @@ This site has a huge number of free After Effects tutorials. There are basic int
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -112,16 +112,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/eginning-your-blog-journey-for-financial-gain-for-2024/"><u>[New] Beginning Your Blog Journey for Financial Gain for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/etailed-explanation-of-youtubes-operation-after-a-video-goes-live/"><u>[New] Detailed Explanation of YouTube's Operation After a Video Goes Live</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-in-2024-elevate-your-tiktok-must-know-editing-insights/"><u>[New] In 2024, Elevate Your TikTok Must-Know Editing Insights</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-master-the-art-of-video-sending-from-youtube-to-dailymotion/"><u>[New] Master the Art of Video Sending From YouTube to Dailymotion</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-choosing-youtube-downloader-apps-on-your-android-device/"><u>[Updated] Choosing YouTube Downloader Apps on Your Android Device</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/discover-unparalleled-performance-in-depth-review-of-hyte-thicc-q60-quietest-and-strongest-240mm-aio-cooler/"><u>Discover Unparalleled Performance: In-Depth Review of Hyte THICC Q60 Quietest & Strongest 240MM AIO Cooler</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/expert-guide-correcting-260nci-wi-fi-adapters-usb-connection-error/"><u>Expert Guide: Correcting 260nCi Wi-Fi Adapter's USB Connection Error</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/in-2024-bring-your-ideas-to-life-a-practical-guide-to-screen-recording-on-macos/"><u>In 2024, Bring Your Ideas to Life A Practical Guide to Screen Recording on MacOS</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-excellence-exchange-global-creators/"><u>In 2024, Excellence Exchange Global Creators</u></a></li>
-<li><a href="https://fox-access.techidaily.com/parting-pleasantries-free-and-paid-outro-snippets/"><u>Parting Pleasantries Free & Paid Outro Snippets</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/windows-desktop-recording-techniques-no-cost/"><u>Windows Desktop Recording Techniques - No Cost</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-top-10-online-video-tools-perfecting-webcam-footage/"><u>[New] 2024 Approved Top 10 Online Video Tools Perfecting Webcam Footage</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/xploring-youtubes-latest-revenue-guidelines-for-2024/"><u>[New] Exploring YouTube's Latest Revenue Guidelines for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-how-many-viewer-thumbs-up-equals-money-youtube-tips/"><u>[New] In 2024, How Many Viewer Thumbs Up Equals Money? YouTube Tips</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-bridging-the-gap-transitioning-youtube-to-televisions-smoothly/"><u>[Updated] 2024 Approved Bridging the Gap Transitioning YouTube to Televisions Smoothly</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-elite-screening-pacts-how-to-choose-a-cms/"><u>[Updated] 2024 Approved Elite Screening Pacts How to Choose a CMS</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-youtube-sub4sub-does-it-really-work/"><u>[Updated] 2024 Approved YouTube Sub4Sub Does It Really Work?</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-boost-your-videos-impact-with-top-ranking-software-solutions/"><u>[Updated] Boost Your Videos' Impact with Top-Ranking Software Solutions</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-perfect-your-playback-implementing-a-countdown-in-obs/"><u>[Updated] Perfect Your Playback Implementing a Countdown in OBS</u></a></li>
+<li><a href="https://howto.techidaily.com/android-safe-mode-how-to-turn-off-safe-mode-on-xiaomi-14-ultra-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Safe Mode - How to Turn off Safe Mode on Xiaomi 14 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/essential-audio-interface-guide-for-podcasters-for-2024/"><u>Essential Audio Interface Guide for Podcasters for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-revolutionizing-education-through-vr/"><u>In 2024, Revolutionizing Education Through VR</u></a></li>
+<li><a href="https://win-answers.techidaily.com/team-fortress-2-launch-problems-resolved-and-ready-for-action/"><u>Team Fortress 2 Launch Problems – Resolved and Ready for Action</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ltimate-checklist-of-essential-equipment/"><u>The Ultimate Checklist of Essential Equipment</u></a></li>
 </ul></div>
 

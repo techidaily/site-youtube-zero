@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Streamline Your Thumbnail Design Journey Today!"
-date: 2024-07-29T15:27:48.035Z
-updated: 2024-07-30T15:27:48.035Z
+date: 2025-01-01T17:46:41.464Z
+updated: 2025-01-06T04:16:08.094Z
 tags:
   - ai video
   - ai youtube
@@ -41,10 +41,11 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 **Step 01:** Open Filmora X. If it is not already installed on your computer, download and install its latest version from [here](https://tools.techidaily.com/wondershare/filmora/download/).
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![ai-portrait-thumbnail-step1](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step1.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 02:** Make sure that the aspect ratio of your project is 16:9\. To do that, click on a screen-shaped icon below the preview screen and select "Change Project Aspect Ratio."
 
@@ -52,31 +53,26 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 **Step 03:** Change the Aspect Ratio to 16:9 if it is not set to it already. 16:9 aspect ratio is the standard size of Youtube thumbnails that represents the best possible results.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
 ![ai-portrait-thumbnail-step3](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step4.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 04:** Choose a background of your choice for your thumbnail. You can choose a background from the sample colors provided by Filmora.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
-<!-- affiliate ads end -->
 ![ai-portrait-thumbnail-step4](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step4.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 05:** If you want to use your custom background, you can import it into the Filmora by clicking import or dragging and dropping it in the media section.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ai-portrait-thumbnail-step5](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step5.png)
 
 **Step 06:** Import your video the same way into the media folder of Filmora and drag it into the timeline and place it above your background.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ![ai-portrait-thumbnail-step6](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step6.png)
 
 **Step 07:** Select your footage, go to the Effects tab and click on AI Portraits. It will open up all the effects related to AI Portraits. These AI Portrait features help you separate the human from a background without using a green screen or anything else.
@@ -95,19 +91,21 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
 
 ![ai-portrait-thumbnail-step10](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step10.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 11:** Now it is time to add a title into your thumbnail to highlight what the video is all about. Go to the Titles, and select lower thirds. You can also select any of the titles types which best suits your needs. Drop the title into the timeline above the footage and adjust it accordingly. Now double click on the header to edit and rename it.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
-<!-- affiliate ads end -->
 ![ai-portrait-thumbnail-step11](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step11.png)
 
 **Step 12:** Once you are satisfied with the final results, click on the Camera icon below the preview screen or press "Ctrl+Alt+S" to take the screenshot.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
-<!-- affiliate ads end -->
 ![ai-portrait-thumbnail-step12](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step12.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### Conclusion
 
@@ -117,9 +115,6 @@ This article on making a thumbnail for your Youtube is just an idea for you, and
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -128,14 +123,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -144,4 +136,22 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/dentifying-and-nurturing-your-brands-character-for-2024/"><u>[New] Identifying and Nurturing Your Brand's Character for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/mooth-transition-from-phones-to-youtube-setting-up-personalbusiness-channels-for-2024/"><u>[New] Smooth Transition From Phones to YouTube Setting Up Personal/Business Channels for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-transform-your-trip-diary-into-haul-video-hype/"><u>[New] Transform Your Trip Diary Into Haul Video Hype</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-a-visual-hook-creating-captivating-youtube-thumbnails-to-drive-traffic/"><u>[Updated] 2024 Approved A Visual Hook Creating Captivating YouTube Thumbnails to Drive Traffic</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-enhancing-engagement-how-to-utilize-youtubes-prominent-channels/"><u>[Updated] Enhancing Engagement How to Utilize YouTube's Prominent Channels</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-finding-your-audio-voice-match-the-perfect-mic-to-your-channels-character-for-2024/"><u>[Updated] Finding Your Audio Voice Match the Perfect Mic to Your Channel's Character for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-core-auditory-stimulation-channels/"><u>[Updated] In 2024, Core Auditory Stimulation Channels</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/te-your-content-mastering-the-art-of-selected-youtube-channels/"><u>Elevate Your Content Mastering the Art of Selected YouTube Channels</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-audiovisual-excellence-top-5-premium-slow-motion-gear/"><u>In 2024, Audiovisual Excellence Top 5 Premium Slow-Motion Gear</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-reset-a-locked-google-phone-by-drfone-android/"><u>In 2024, How to Reset a Locked Google Phone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-simplifying-iphoneipad-screen-captures-for-online-sharing/"><u>In 2024, Simplifying iPhone/iPad Screen Captures for Online Sharing</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-tips-and-tricks-for-setting-up-your-tecno-pova-5-pro-phone-pattern-lock-by-drfone-android/"><u>In 2024, Tips and Tricks for Setting Up your Tecno Pova 5 Pro Phone Pattern Lock</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ating-engagement-integrate-thoughtful-chapters-into-your-youtube-videos/"><u>Innovating Engagement Integrate Thoughtful Chapters Into Your YouTube Videos</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/konica-minolta-printer-drivers-download-and-update-process-made-easy/"><u>Konica Minolta Printer Drivers: Download & Update Process Made Easy</u></a></li>
+<li><a href="https://fox-that.techidaily.com/revive-your-iphone-top-4-solutions-for-non-responsive-standby-mode/"><u>Revive Your iPhone: Top 4 Solutions for Non-Responsive Standby Mode</u></a></li>
+</ul></div>
 

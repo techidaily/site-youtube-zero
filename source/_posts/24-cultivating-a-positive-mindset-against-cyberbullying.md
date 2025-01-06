@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Cultivating a Positive Mindset Against Cyberbullying"
-date: 2024-07-29T15:30:17.388Z
-updated: 2024-07-30T15:30:17.388Z
+date: 2025-01-04T00:06:25.992Z
+updated: 2025-01-05T19:54:45.030Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/af1734dc2b0a9d3bcad9faa3494b27c219c63253c
 
 # How To Deal with YouTube Trolls and Negative Comments
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -30,8 +27,9 @@ thumbnail: https://thmb.techidaily.com/af1734dc2b0a9d3bcad9faa3494b27c219c63253c
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Deal with Negative Comments on YouTube
 
 #### 1\. Identifying Trolls / When Is A Troll Not a Troll?
@@ -58,10 +56,11 @@ thumbnail: https://thmb.techidaily.com/af1734dc2b0a9d3bcad9faa3494b27c219c63253c
 
  You will not get the troll to say they were wrong or apologize so that should never be your goal. What you can do is create a public record of the troll being corrected for others to judge for themselves. If you maintain a calm, unaffected, tone then the troll will find you boring.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -69,14 +68,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -85,4 +81,16 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/ed-12-free-youtube-thumbnail-makers-to-make-your-own-video-thumbnail-for-2024/"><u>[Updated] 12 FREE YouTube Thumbnail Makers to Make Your Own Video Thumbnail for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-engineering-echoing-edits/"><u>[Updated] 2024 Approved Engineering Echoing Edits</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-effortless-background-watching-of-youtube-on-mobile-for-2024/"><u>[Updated] Effortless Background Watching of YouTube on Mobile for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-inspire-creativity-brainstorming-for-channels-names/"><u>[Updated] Inspire Creativity Brainstorming for Channels' Names</u></a></li>
+<li><a href="https://games-able.techidaily.com/5-shortcomings-hindering-gamefis-integration-with-gamers/"><u>5 Shortcomings Hindering GameFi’s Integration with Gamers</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/free-conversion-of-f4v-video-files-effortless-transformations-with-movavi/"><u>Free Conversion of F4V Video Files - Effortless Transformations with Movavi</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-eliminating-noise-fixing-silent-sounds-in-obs-streams/"><u>In 2024, Eliminating Noise Fixing Silent Sounds in OBS Streams</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/1-video-cameras-under-500-a-frugal-filmmakers-list/"><u>Top 11 Video Cameras Under $500 A Frugal Filmmaker's List</u></a></li>
+<li><a href="https://some-tips.techidaily.com/zdnets-picks-for-the-most-efficient-windows-ac-units-in-2eby2024-professional-insights/"><u>ZDNet's Picks for the Most Efficient Windows A/C Units in 2Eby2024 - Professional Insights</u></a></li>
+</ul></div>
 

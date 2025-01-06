@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Blocking Unwanted Youtube Channels  PC & Mobile Edition\""
-date: 2024-07-29T15:29:25.592Z
-updated: 2024-07-30T15:29:25.592Z
+date: 2025-01-03T06:52:07.819Z
+updated: 2025-01-05T19:09:26.810Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/1b75e252ed41838e8d5bba451afdfa23d376fd039
 
 # How to Block YouTube Channels on Computer and Mobile Phones
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -46,22 +43,28 @@ thumbnail: https://thmb.techidaily.com/1b75e252ed41838e8d5bba451afdfa23d376fd039
 * 1\. Log in to your YouTube account and look out for the account you want to block.
 * 2\. When you’re in the account head over to the **About** section. You can find it in the toolbar beneath the channel art or banner.
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![find about option](https://images.wondershare.com/filmora/article-images/find-about-option.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * 3\. On the right-hand side right under the **Stats**, you will find a **flag** icon. Press the icon and it will show a drop-down menu, select **Block user**.
 
 ![block user](https://images.wondershare.com/filmora/article-images/block-user2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * 4\. You will be prompted to confirm your selection, click **Submit** to confirm.
 
 ![submit and confirm](https://images.wondershare.com/filmora/article-images/submit2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Part 2: How to block YouTube channels on Mobile Phones (Android & iPhone)**
 
  One can also block YouTube channels on mobile devices in the same manner as you would do it on the desktop computer. It will do the same effect and prevent bullying users from interacting with your content.
@@ -86,6 +89,10 @@ thumbnail: https://thmb.techidaily.com/1b75e252ed41838e8d5bba451afdfa23d376fd039
 
 ![confirm parent](https://images.wondershare.com/filmora/article-images/a-parent3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * 2\. Sign in with your preferred Google account.
 
 ![parent account](https://images.wondershare.com/filmora/article-images/parent-account4.jpg)
@@ -97,41 +104,34 @@ thumbnail: https://thmb.techidaily.com/1b75e252ed41838e8d5bba451afdfa23d376fd039
  Now as you’re signed in as a parent you can block channels and specific content.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### **I. Block on Home screen**
 
 * 1\. On the Home screen press the dotted menu next to the video
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
-<!-- affiliate ads end -->
 ![home screen](https://images.wondershare.com/filmora/article-images/home-screen5.jpg)
 
 * 2\. In the menu list, you will see **Block this video**, tap it.
 * 3\. You’ll be asked to enter the numbers written on the screen or a custom passcode.
 
-<!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![get passcode](https://images.wondershare.com/filmora/article-images/pass-code6.jpg)
 
 ### **II. Block from Watch Page**
 
 * 1\. On the Watch Page tap the dotted **More** option at the top right corner of the video.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ![more option](https://images.wondershare.com/filmora/article-images/more-option7.jpg)
 
 * 2\. Press the **Block** option.
 * 3\. A dialog box will appear with two options, **Block this video** for blocking only this particular video or **Block this channel** to block the entire channel associated with the video.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ![block this channel](https://images.wondershare.com/filmora/article-images/block-this-channel8.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * 4\. Select any of the two options and then press **Block** again.
 * 5\. Enter the numbers you calculate from the presented numbers or a custom passcode.
@@ -139,15 +139,13 @@ thumbnail: https://thmb.techidaily.com/1b75e252ed41838e8d5bba451afdfa23d376fd039
 ![get passcode again](https://images.wondershare.com/filmora/article-images/pass-code-again8.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Conclusion**
 
  Every minute more than 300 hours of video content is uploaded on to the YouTube databases while 5 billion videos are watched every day. This only shows the metrics a content creator and a user have to deal with. Content creators need to protect themselves from the unending trolls and scams that hit every other channel and affect its userbase. While kids and sensitive portions of the human population have to maintain a safe distance from damaging and provoking content that circulates on the platform. To safeguard both ends of the platform I made this guide to streamline the process of **how to block YouTube channels** and videos from affecting your happy life.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -156,14 +154,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -172,4 +167,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-fast-track-to-short-video-treasure-troves-free-access/"><u>[New] 2024 Approved Fast Track to Short Video Treasure Troves (Free Access)</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-innovative-brainstroming-techniques-for-channels-names/"><u>[New] 2024 Approved Innovative Brainstroming Techniques for Channels' Names</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-chorus-chamber-capture-save-and-analyze-sound-for-2024/"><u>[New] Chorus Chamber Capture, Save & Analyze Sound for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-explore-online-communities-with-youtube-monetization-opportunities/"><u>[Updated] In 2024, Explore Online Communities with YouTube Monetization Opportunities</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-selective-picks-for-audible-transformation-technologies/"><u>[Updated] Selective Picks for Audible Transformation Technologies</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-daily-vlogging-ideas-what-to-talk-about-while-vlogging/"><u>2024 Approved Daily Vlogging Ideas What to Talk About While Vlogging?</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-mastering-fast-thumbnail-design-for-valorants-highlighted-screenshots/"><u>2024 Approved Mastering Fast Thumbnail Design for Valorant's Highlighted Screenshots</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/diy-solutions-for-your-corsair-virtuoso-mic-when-it-wont-work/"><u>DIY Solutions for Your Corsair Virtuoso Mic When It Won’t Work</u></a></li>
+<li><a href="https://article-tips.techidaily.com/elevating-your-video-posts-with-properly-uploaded-srt-files-for-2024/"><u>Elevating Your Video Posts with Properly Uploaded SRT Files for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/d-your-knowledge-elite-15-sci-yt-channels-list-for-2024/"><u>Expand Your Knowledge Elite 15 Sci-YT Channels List for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/expert-advice-on-altering-proton-vpn-login-details-plus-distinguishing-between-fake-and-true-chatgpt-windows-software/"><u>Expert Advice on Altering Proton VPN Login Details + Distinguishing Between Fake & True ChatGPT Windows Software</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/free-conversion-turn-asf-files-into-mp4-format-with-our-online-service-movavi/"><u>Free Conversion: Turn ASF Files Into MP4 Format with Our Online Service - Movavi</u></a></li>
+<li><a href="https://techidaily.com/how-to-factory-reset-infinix-smart-7-if-i-forgot-security-code-or-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Infinix Smart 7 If I Forgot Security Code or Password? | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-boost-your-earnings-on-youtube-shorts-a-guide/"><u>In 2024, Boost Your Earnings on YouTube Shorts A Guide</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-effortlessly-replay-videos-on-iphone/"><u>In 2024, Effortlessly Replay Videos on iPhone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/low-cost-high-impact-spherical-videography-devices/"><u>Low Cost, High Impact Spherical Videography Devices</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/e-filmmaking-mastery-creating-impactful-youtube-thumbnails/"><u>Mobile Filmmaking Mastery Creating Impactful YouTube Thumbnails</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ng-into-youtubes-affiliate-income-streams-for-2024/"><u>Tapping Into YouTube's Affiliate Income Streams for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/why-my-new-leather-phone-case-has-become-irreplaceable/"><u>Why My New Leather Phone Case Has Become Irreplaceable</u></a></li>
+</ul></div>
 

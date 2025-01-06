@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Beauty Brilliance  Inside the World of Youtube Cosmetics\""
-date: 2024-07-29T15:29:11.559Z
-updated: 2024-07-30T15:29:11.559Z
+date: 2025-01-01T01:12:23.087Z
+updated: 2025-01-06T02:29:45.477Z
 tags:
   - ai video
   - ai youtube
@@ -48,8 +48,13 @@ Wondershare Filmora is specifically made keeping quality on priority and to make
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Finding Your Niche in Beauty or Lifestyle**
 
 As a new makeup, beauty, or lifestyle YouTuber you’ll be jumping into a category that’s already packed with thousands of channels. In order to gain any momentum, you’ll have to decide on a particular thing you want to be known for. That’s your niche.
@@ -61,8 +66,9 @@ Another way you could find a niche is by taking on a specific area of interest, 
   SunKissAlba has a lifestyle channel that focuses on a ‘natural’ niche. She posts videos about every aspect of her lifestyle from putting on makeup to cooking, but natural/non-toxic products are a constant theme through everything she does. By niching her channel she hasn’t limited what kinds of videos she can do at all - she posts a huge variety of different types of videos. What she has done is to make her channel particularly valuable to audiences interested in things that are natural or organic.
 
 <!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Types of Beauty Videos – Your Content Strategy**
 
 It’s a lot easier to come up with weekly video ideas when you have an overarching strategy.
@@ -122,14 +128,6 @@ Here are 4 tips for getting free products for review:
 Make sure to link to your channel so they can verify what you say (do not hide your subscriber count).  
 Emphasize what value you could provide the brand with (i.e. ‘I’ve had a lot of success with videos on managing acne and I’m sure my subscribers would love to see a review of your cream’) and outline what kind of video you’d like to make (i.e. a five-minute review focusing on the product, or a short feature in a longer makeup tutorial).
 
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Simple Camera Setup for Beauty Vloggers**
 
 There are a lot of different ways to set up your camera for a ‘talking head’ video (anything that is primarily you talking to the camera). Keep reading to learn about a popular ring-light setup for beauty videos, or [click here to learn 4 different camera setups](https://www.filmora.io/community-blog/4-ways-to-set-up-your-talking-head-shots-for-youtube-431.html).
@@ -171,13 +169,13 @@ An aperture of f/5.0 is good if you’re going to be moving around a lot, but if
 
 ISO 400 should be a happy medium for shooting inside with your ring light, but you may need to try out a couple of settings to find one perfect for your situation.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
- PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
-<!-- affiliate ads end -->
 ![set film speed](https://images.wondershare.com/filmora/article-images/set-film-speed3.jpg)
 
 For more info on [camera settings for beauty videos, click here](https://www.filmora.io/video-tutorials/how-to-set-up-your-camera-%E2%80%93-the-makeup-series-12.html).
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Lighting for Beauty**
 
@@ -191,9 +189,6 @@ There are, however, some reasons you might want additional light:
 
 If you only have a ring light/front light then you may end up looking like you’re surrounded by shadows. If you want more light for your space you can use windows, household lamps, or professional video lights like softboxes or LED panels.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
-<!-- affiliate ads end -->
  ![light background](https://images.wondershare.com/filmora/article-images/light-background4.jpg)
 
 #### **To Stand Out Against your Background (‘Backlighting’)**
@@ -218,11 +213,6 @@ You can use softboxes, LED panels, clamp lights, household lamps, or any other l
 * **_Clamp lights ($10 each) and paper lanterns ($10 each) provide great lighting and are much more affordable than professional lighting kits._ The paper lanterns will provide even, diffused, light and the clamp lights will be easy to set up wherever you need them.**
 * **_Check out these [DIY tips for creating your own reflectors and diffusers](https://www.filmora.io/community-blog/save-money-with-clever-diy-youtube-gear%21-462.html)._**
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
-<!-- affiliate ads end -->
 ## **Top Ring Lights for YouTube**
 
 ####  
@@ -233,6 +223,10 @@ One cool feature of the Neewer Ring Light is that you can choose between dayligh
 
 ![Neewer Ring Light ](https://images.wondershare.com/filmora/article-images/neewer-ring-light5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 This light is dimmable and can be adjusted to the angle that suits your shot. That’s true of our number 2 pick too, and the second place light actually has a slight edge over the Neewer light because its color temperature is 5400K which is slightly closer to daylight than Neewer’s 5500K, but that’s honestly not super important for YouTube. They’re close enough that you won’t be able to tell the difference, and this light is over $100 more affordable.
 
 #### 2\. [**Prismatic Halo Ring Light**](https://www.amazon.com/Prismatic-Halo-Ring-Light-Stand/dp/B015NJ2YHY/ref=sr%5F1%5F3?s=electronics&ie=UTF8&qid=1530135663&sr=1-3&keywords=prismatic+18%22+halo+ring+light) **\- $260**
@@ -240,6 +234,10 @@ This light is dimmable and can be adjusted to the angle that suits your shot. Th
 This lightweight ring light is easy to transport, set up, and mount your phone or camera to. It’s a fluorescent ‘daylight’ (5400K) light, so the colors in your videos will look natural.
 
 This light is dimmable, so you can turn it down if it’s too bright, and the Prismatic Light Stand will allow you to tilt your light to the perfect angle. This will be handy if you’re mounting your camera inside the ring but want to place it slightly above your face instead of having it look at you head on.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Build Your Own Diva Ring Light**
 
@@ -278,9 +276,6 @@ Before you start recording your makeup tutorial there are a few things you shoul
  4. **_Do a video test._** Before you start your video for real, start recording and shoot some test footage. Watch that back to make sure you like the look of your frame, your face is never blurry, and you’re happy with the overall look of things.
  5. **_Do an audio test._** If you’re going to be talking in your video instead of recording a voiceover after, do an audio test to make sure your audience will be able to hear you clearly.
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
-<!-- affiliate ads end -->
 ## **How to Make a Makeup Tutorial – Recording**
 
 Here are some things to keep in mind while you record your makeup tutorial:
@@ -290,18 +285,6 @@ If you’re using autofocus, you can hold products up to the screen and wait for
 2. **_Highlight small details._** Describe what you’re doing in a lot of detail and don’t gloss over anything. Assume the person watching your tutorial doesn’t know anything about putting on makeup.
 3. **_Take stills for your thumbnail._** Remember to take some still photos of your finished makeup to use in your YouTube thumbnail.
 
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **How to Make a Makeup Tutorial – After Shooting**
 
 Once you’ve finished recording and put away all your camera gear, there’s still work to do. You still need to edit your video and post it on YouTube. Here are some tips for that:
@@ -316,9 +299,6 @@ Remember to include what type of video you made, i.e. ‘tutorial’, ‘review�
 
  Are you already making beauty videos? If so, let us know if you have any of your own tips!
 
-<!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -327,14 +307,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -343,4 +320,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-access-10-free-thumbnail-downloader-apps/"><u>[New] 2024 Approved Access 10 Free Thumbnail Downloader Apps</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-privacy-preservation-how-to-make-faces-invisible-online/"><u>[New] 2024 Approved Privacy Preservation How to Make Faces Invisible Online</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-the-financial-frontier-acquiring-high-value-youtubes/"><u>[New] 2024 Approved The Financial Frontier Acquiring High-Value Youtubes</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-top-6-hdmi-21-tvs-spec-by-spec-comparison-guide/"><u>[New] 2024 Approved Top 6 HDMI 2.1 TVs Spec-by-Spec Comparison Guide</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/icro-enterprises-guide-to-viral-video-promotion/"><u>[New] Micro-Enterprises' Guide to Viral Video Promotion</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-audiovisual-excellence-youtube-videos-in-premiere-pro/"><u>[Updated] 2024 Approved Audiovisual Excellence YouTube Videos in Premiere Pro</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-annual-roundup-top-no-money-video-editing-software-reviewed/"><u>[Updated] In 2024, Annual Roundup Top No-Money Video Editing Software Reviewed</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/2024-approved-visualcut-pro/"><u>2024 Approved VisualCut Pro</u></a></li>
+<li><a href="https://change-location.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-vivo-s18-pro-drfone-by-drfone-virtual-android/"><u>Best Pokemons for PVP Matches in Pokemon Go For Vivo S18 Pro | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-best-anti-tracker-software-for-nokia-130-music-drfone-by-drfone-virtual-android/"><u>In 2024, Best Anti Tracker Software For Nokia 130 Music | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-perfect-your-video-dimensions-on-youtube-for-max-impact/"><u>In 2024, Perfect Your Video Dimensions on YouTube for Max Impact</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-6-best-sim-unlock-services-that-actually-work-on-your-realme-11-5g-device-by-drfone-android/"><u>In 2024, The 6 Best SIM Unlock Services That Actually Work On Your Realme 11 5G Device</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-the-ultimate-guide-to-finding-unique-video-graphics-online/"><u>In 2024, The Ultimate Guide to Finding Unique Video Graphics Online</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ring-youtube-playlist-downloads-a-comprehensive-guide/"><u>Mastering YouTube Playlist Downloads A Comprehensive Guide</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-in-2024-loop-it-10-best-free-online-video-looping-software-this-year/"><u>New In 2024, Loop It! 10 Best Free Online Video Looping Software This Year</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/overcoming-virtual-reality-discomfort/"><u>Overcoming Virtual Reality Discomfort</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/streamlined-techniques-for-rapid-mac-screen-recording/"><u>Streamlined Techniques for Rapid Mac Screen Recording</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/supercharge-gpt-4-for-nothing-more-than-a-friendly-helper-enter-copilot/"><u>Supercharge GPT-4 for Nothing More Than a Friendly Helper - Enter Copilot!</u></a></li>
+<li><a href="https://win11.techidaily.com/win-the-battle-against-credential-lockup/"><u>Win the Battle Against Credential Lockup</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Captivate Your Audience  Professional End Screen Creations\""
-date: 2024-07-29T15:33:09.548Z
-updated: 2024-07-30T15:33:09.548Z
+date: 2025-01-03T05:01:56.390Z
+updated: 2025-01-05T22:01:37.901Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/01a9c6a754e21b99c858623b51177464f69009a94
 
 # Free YouTube End Screen Templates
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -34,15 +31,8 @@ YouTube end screens are a great way to get your viewers who have watched your Yo
 1. [List some places you can download free end screen templates](#freeendscreentemplates)
 2. [Give you a step-by-step tutorial on how to build your own outro for free](#diyoutro)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## Part 1: Free End Screen Templates Download
 
 [Wondershare Filmstock Gaming Video Editing Skils](https://images.wondershare.com/filmora/article-images/learn-gaming-video-editing-skills-banner.png)](https://filmstock.wondershare.com/creative-theme-game?source%5Fchannel=seo%5Farticle?spm=rs.filmora%5Fweb)
@@ -83,27 +73,25 @@ SoapyEdits is a YouTuber with a [channel](https://www.youtube.com/playlist?list=
 
 Here are some of our favorite ones.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
-<!-- affiliate ads end -->
 ![SoapyEdits-youtube-end-screen-template-1](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-1.jpg)
 
 Here’s one for the Minecraft fans:
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ![SoapyEdits YouTube end screen template Minecraft ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-minecraft.jpg)
 
 ![SoapyEdits YouTube end screen template  ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![SoapyEdits YouTube end screen template  ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-3.jpg)
 
 Another way to get your YouTube end screens for free, of course, is to make them yourself. Canva is a great free online design tool for this.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: How To Build Your Outro For Free (Step-by-step Canva Tutorial)
 
@@ -127,30 +115,37 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 6\. Stretch your image to the ends of your canvas.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![stretch-end-screen-templates-canva ](https://images.wondershare.com/filmora/article-images/stretch-end-screen-templates-canva.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 7\. Insert your own shapes, lines, colours, images, and text over the image.
 
 ![adjust-end-screen-templates-in-canva](https://images.wondershare.com/filmora/article-images/adjust-end-screen-templates-in-canva.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 8\. When you’re done, delete the original image so that you’re left with just your own design. Go ahead and click “download.”
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![youtube-end-screen-made-with-canva](https://images.wondershare.com/filmora/article-images/youtube-end-screen-made-with-canva.jpg)
 
 If you're looking for other options to design your end screen, make sure to also check out our article on [The YouTube Outro Guide](https://tools.techidaily.com/wondershare/filmora/download/). To edit the YouTube video with more effects and templates, you can try [Wondershare Filmora video editor.](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -158,14 +153,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -174,4 +166,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/rom-clicks-to-cash-the-journey-of-youtubes-ajay-nagar/"><u>[New] From Clicks to Cash The Journey of YouTube's Ajay Nagar</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-iphone-techniques-for-video-opposite-playback/"><u>[New] IPhone Techniques for Video Opposite Playback</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/lapstick-suggestions-a-guide-to-hilarious-short-form-videography-for-2024/"><u>[New] Slapstick Suggestions A Guide to Hilarious Short-Form Videography for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-amplify-watcher-count-simplified-tactics-exposed/"><u>[Updated] 2024 Approved Amplify Watcher Count Simplified Tactics Exposed</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-step-by-step-guide-transforming-your-yt-gaming-content-with-hashtags/"><u>[Updated] 2024 Approved Step-by-Step Guide Transforming Your YT Gaming Content with Hashtags</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-evaluating-recmeisters-innovation-in-video-capture/"><u>[Updated] Evaluating Recmeister's Innovation in Video Capture</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-free-traffic-on-youtube-tips-that-actually-work-for-2024/"><u>[Updated] Free Traffic on YouTube Tips That Actually Work for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/hering-youtubes-cost-per-mille-cpm-structure-for-2024/"><u>Deciphering YouTube’s Cost Per Mille (CPM) Structure for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/k-on-a-wanderlust-adventure-becoming-a-professional-travel-vlogger/"><u>Embark on a Wanderlust Adventure Becoming A Professional Travel Vlogger</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/guide-to-resolving-the-battlenet-unable-to-launch-issue/"><u>Guide to Resolving the 'Battle.net Unable to Launch' Issue</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-small-companys-guide-to-the-safest-online-chat-services/"><u>In 2024, Small Company's Guide to the Safest Online Chat Services</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/iphone-15-analysis-top-features-that-impress-even-seasoned-pros-a-comprehensive-guide/"><u>IPhone 15 Analysis: Top Features That Impress Even Seasoned Pros - A Comprehensive Guide</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/top-rated-wireless-internet-gadgets-for-travellers-in-2ebyte-2024/"><u>Top-Rated Wireless Internet Gadgets for Travellers in 2Ebyte 2024</u></a></li>
+<li><a href="https://win-superb.techidaily.com/troubleshooting-tips-how-to-fix-malfunctioning-devices-insights-from-yl-computing/"><u>Troubleshooting Tips: How to Fix Malfunctioning Devices - Insights From YL Computing</u></a></li>
+</ul></div>
 

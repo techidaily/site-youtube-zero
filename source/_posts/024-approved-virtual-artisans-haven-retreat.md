@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Virtual Artisans' Haven Retreat\""
-date: 2024-07-29T15:30:08.785Z
-updated: 2024-07-30T15:30:08.785Z
+date: 2024-12-29T20:51:34.595Z
+updated: 2025-01-06T07:06:12.536Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/1925602951b4d52698ec670857ef818988d6fc983
 
 # The YouTube Creator Summit - A Getaway for YouTube's Top Talent
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -55,8 +52,9 @@ _Nick talks about arriving in New York and goes through the swag box waiting in 
 There were some clues as to what the rest of the summit was like hiding amongst the swag too. Here’s what was in the box:
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 1\. A map of Dumbo
 
 The hotel YouTube put the creators up in was in Dumbo, Brooklyn. ‘Dumbo’ is an acronym for Down Under the Manhattan Bridge Overpass. While it used to be primarily an industrial area, Dumbo is now the most expensive neighborhood in Brooklyn with many of the old industrial spaces now serving as luxury residential lofts. Dumbo is also a hub for tech startups.
@@ -65,9 +63,6 @@ _Tess takes you to some of her favorite places in Dumbo._
 
 Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators who attended the summit probably had a lot of fun exploring it.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
-<!-- affiliate ads end -->
 ## 2\. Post Cards
 
 One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
@@ -80,10 +75,11 @@ S’well bottles are stainless steel beverage containers that keep drinks hot or
 
 To help them relax after long days at the summit, YouTube provided creators with YouTube-branded slippers. They look pretty comfy. Plus, now every time these YouTubers look down at their feet they’ll be reminded to go make some videos.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Branded slippers - 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-branded-slippers.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 _thinknoodles wearing his YouTube slippers._
 
@@ -97,21 +93,27 @@ A denim jacket with a play button on it was also in the box. The idea was that c
 
 _![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 _Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
 
 Most creators here on Filmora are still trying to grow their channels, but one day I hope you’ll be able to attend an event like the YouTube Creator Summit and tell us all about it!
 
 Want to join the YouTube Creator Summit in the future? We all know that there is a long way to go, but we can start making good YouTube videos now. Remember to use [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) with the templates and effects to touch up your YouTube videos.
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -119,14 +121,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -135,4 +134,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-creating-channel-names-that-capture-attention/"><u>[New] 2024 Approved Creating Channel Names That Capture Attention</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-dive-into-design-get-a-complimentary-set-of-50-banner-pieces/"><u>[New] 2024 Approved Dive Into Design Get a Complimentary Set of 50 Banner Pieces!</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-rise-to-fame-comprehensive-youtube-creators-series/"><u>[New] 2024 Approved Rise to Fame Comprehensive YouTube Creator's Series</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/xpert-mp3-creation-guide-top-video-to-audio-devices-for-2024/"><u>[New] Expert MP3 Creation Guide Top Video-to-Audio Devices for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-quick-guide-youtube-soundtracks-to-mp3-for-macos-2shift/"><u>[Updated] 2024 Approved Quick Guide YouTube Soundtracks to MP3 for MacOS 2Shift</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-a-step-by-step-journey-through-vo-and-powerpoint-magic-for-2024/"><u>[Updated] A Step-by-Step Journey Through VO and Powerpoint Magic for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-crafting-fast-fortnite-icons-in-minutes/"><u>[Updated] In 2024, Crafting Fast Fortnite Icons in Minutes</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-leveraging-fb-livestream-for-post-produced-content-dissemination/"><u>[Updated] In 2024, Leveraging FB Livestream for Post-Produced Content Dissemination</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-deciphering-youtubes-featured-comment-selection/"><u>2024 Approved Deciphering YouTube's Featured Comment Selection</u></a></li>
+<li><a href="https://win-special.techidaily.com/advanced-support-methods-for-optimized-performance-and-assistance/"><u>Advanced Support Methods for Optimized Performance and Assistance</u></a></li>
+<li><a href="https://fake-location.techidaily.com/apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-xiaomi-civi-3-drfone-by-drfone-virtual-android/"><u>Apply These Techniques to Improve How to Detect Fake GPS Location On Xiaomi Civi 3 | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/fixing-mfc4edll-missing-errors-on-your-computer-with-easy-steps/"><u>Fixing 'Mfc4e.dll' Missing Errors on Your Computer with Easy Steps</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-guide-to-mirror-your-oppo-find-x7-ultra-to-other-android-devices-drfone-by-drfone-android/"><u>In 2024, Guide to Mirror Your Oppo Find X7 Ultra to Other Android devices | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/meta-vr-quest-3-a-mixed-reality-odyssey/"><u>Meta VR Quest 3: A Mixed Reality Odyssey</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/the-top-five-no-cost-car-racers-dominating-2024s-mobile-gaming-scene/"><u>The Top Five No-Cost Car Racers Dominating 2024'S Mobile Gaming Scene</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-iosandroid-apps-for-mobile-friendly-youtube-streaming/"><u>Top 7 iOS/Android Apps for Mobile-Friendly YouTube Streaming</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/unleashing-virality-steps-to-skyrocket-your-instagram-content/"><u>Unleashing Virality Steps to Skyrocket Your Instagram Content</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Starting Up YouTube - Your First Gear List\""
-date: 2024-12-23T17:10:49.159Z
-updated: 2024-12-27T16:03:07.572Z
+date: 2025-01-03T07:18:29.307Z
+updated: 2025-01-06T08:23:55.626Z
 tags:
   - ai video
   - ai youtube
@@ -43,10 +43,6 @@ The smartest way to get started is to go through a list of **necessary equipment
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## YouTube Cameras
 
 **The short version:** Use whatever you already have, even if it's your phone or webcam. It's nice to have sharp, fine-tuned, 4K footage, but viewers will forgive lower visual quality if your content is good.
@@ -59,10 +55,6 @@ On one end of the spectrum, you have basic smartphone cameras and web cameras, w
 
 If you already have a DSLR camera then it’s a good idea to familiarize yourself with it. You have far more freedom to adjust the settings and achieve a professional look for your videos with a DSLR, but that does mean it’ll take some time to become an expert at using it. Ultra-high resolution is not required for YouTube, but it certainly won’t hurt to have additional sharpness and more detail in the scene. If you’re shopping for a DSLR, look for one with a flip screen that allows you to quickly check what your viewers see.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## YouTube Microphone and Audio
 
 **The short version:** Audio quality is extremely important. If you can buy either a new camera or an external microphone, but not both, it might be better to go for the microphone. [Click here for advice on upping your audio quality without an external microphone.](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -74,7 +66,7 @@ Again, most YouTube video makers have a limited budget at their disposal, so pro
 If you’re not ready to invest in a shotgun mic, you can also find very inexpensive (often under $20) LAV mics. These small microphones can be pinned to your shirt, which allows them to record very clear dialogue because they’re so close to your mouth.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Lights for YouTube
@@ -89,6 +81,10 @@ If you have the budget available to get some lighting equipment, you can find so
 
 Another useful piece of lighting equipment to have is a reflector. A reflector is usually a piece of white, silver, or gold fabric stretched over a frame. You can use it to bounce light from one light source back towards yourself (this is a great way to fill shadows cast by your main light). Reflectors tend to be inexpensive, but you can also use white cardboard or tinfoil in place of purchasing a reflector.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Tripods and Camera Stands
 
 **The short version:** You need something to hold your camera. If you mostly film in your own home that can be a desk or a stack of books, but if you make a lot of videos while you're on the go you probably need a tripod or gimbal. Heavier cameras need heavier tripods.
@@ -99,12 +95,16 @@ When you are choosing a tripod, pay attention to how much it weighs. If the came
 
 Even if you are using a phone or a webcam to record YouTube videos, you should consider mounting the device on a stable stand. It is possible to find mini tripods ideal for smartphones for as little as $10\. These tripods are small enough to carry in your pocket, so you will be prepared to start making a video no matter where your adventures take you. If you are using a web camera, you should attach it to the stand so that it won’t move accidentally after you touch the surface it is placed on.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Smartphone Camera Gear
 
 ![Smartphone Camera Gear](https://images.wondershare.com/filmora/article-images/smartphone-camera-gear.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **The short version:** There's a lot of gear out there designed with smartphone photos and videos in mind, including clip-on lenses, tripod mounts, phone-mounted LED lights, and inexpensive microphones that plug into the audio jack.
@@ -116,7 +116,7 @@ On the flip side, smartphone cameras typically perform poorly in low light. It i
 Another common downside of smartphone cameras is that most of them use digital zoom, which is vastly inferior to optical zoom. If you intend to shoot anything that’s further away than a few feet, you need a clip-on lens that goes on top of the built-in camera. This inexpensive device will give you a lot of freedom to work in space, and allow you to make spectacular shots even without high-end YouTube equipment.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Equipment with Easy-to-Use Video Editor
@@ -146,22 +146,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-direct.techidaily.com/new-deciding-audio-platforms-podcasts-or-youtube-for-2024/"><u>[New] Deciding Audio Platforms Podcasts or YouTube for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/n-2024-how-to-locate-your-youtube-fanbase/"><u>[New] In 2024, How to Locate Your YouTube Fanbase</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/n-2024-unleashing-video-potential-the-imovie-blueprint-for-youtube-editors/"><u>[New] In 2024, Unleashing Video Potential The iMovie Blueprint for YouTube Editors</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/edia-meld-space/"><u>[New] Media Meld Space</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/he-essential-tips-for-maximizing-youtuber-profits-on-mobile-for-2024/"><u>[New] The Essential Tips for Maximizing YouTuber Profits on Mobile for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-top-10-memetic-artistry-codes/"><u>[New] Top 10 Memetic Artistry Codes</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-what-is-instagram-story-highlight-for-2024/"><u>[New] What Is Instagram Story Highlight for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-top-10-emerging-youtube-channels-to-spark-motivation/"><u>[Updated] 2024 Approved Top 10 Emerging YouTube Channels to Spark Motivation</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-flavorful-funnels-catchy-recipe-channels-that-work/"><u>[Updated] Flavorful Funnels Catchy Recipe Channels That Work</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-skyrocket-to-success-mastering-seo-for-youtubers-and-beyond/"><u>2024 Approved Skyrocket to Success Mastering SEO for YouTubers and Beyond</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/sound-mastery-selecting-the-ideal-microphone-for-2024/"><u>ASMR Sound Mastery Selecting the Ideal Microphone for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/crafting-compelling-stories-for-online-video-platforms-for-2024/"><u>Crafting Compelling Stories for Online Video Platforms for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/green-screen-video-magic-must-know-methods/"><u>Green Screen Video Magic Must-Know Methods</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-honor-100-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Honor 100 Location without Installing Software? | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-remove-the-lock-screen-fingerprint-of-your-vivo-x-fold-2-by-drfone-android/"><u>In 2024, Remove the Lock Screen Fingerprint Of Your Vivo X Fold 2</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/resolving-problems-with-mov-videos-in-quicktime-immediate-fixes/"><u>Resolving Problems with Mov Videos in QuickTime – Immediate Fixes!</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/spearheading-immersive-worlds-top-vr-minds/"><u>Spearheading Immersive Worlds Top VR Minds</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-audience-engagement-and-its-impact-on-youtube-performance/"><u>[New] 2024 Approved Audience Engagement and Its Impact on YouTube Performance</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-audiovisual-innovators-best-portable-devices-for-editors/"><u>[New] 2024 Approved Audiovisual Innovators Best Portable Devices for Editors</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-soundtrack-your-youtube-videos-7-free-audio-selections/"><u>[New] 2024 Approved Soundtrack Your YouTube Videos 7 Free Audio Selections</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/gnite-imagination-crafting-engaging-content-themes-for-2024/"><u>[New] Ignite Imagination Crafting Engaging Content Themes for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/uick-and-simple-adding-youtube-songs-to-imovie-edit-for-2024/"><u>[New] Quick and Simple Adding Youtube Songs to iMovie Edit for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-revolutionize-your-content-with-3-innovative-two-point-of-view-techniques-in-reactions/"><u>[Updated] 2024 Approved Revolutionize Your Content with 3 Innovative Two-Point-of-View Techniques in Reactions</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/comprehensive-method-for-getting-rid-of-windows-backup-restore-partition/"><u>Comprehensive Method for Getting Rid of Windows Backup Restore Partition</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-4-ways-to-record-sims-4-gameplay/"><u>In 2024, 4 Ways to Record Sims 4 Gameplay</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-indie-filmmakers-guide-top-7-low-budget-film-editing-software/"><u>New 2024 Approved Indie Filmmakers Guide Top 7 Low-Budget Film Editing Software</u></a></li>
+<li><a href="https://driver-install.techidaily.com/tackle-disruptive-sound-on-windows-10-with-new-driver-install/"><u>Tackle Disruptive Sound on Windows 10 with New Driver Install</u></a></li>
+<li><a href="https://fox-info.techidaily.com/transform-your-images-with-picart-clear-canvas-technique/"><u>Transform Your Images with PicArt Clear Canvas Technique</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-motorola-moto-g34-5g-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For Motorola Moto G34 5G | Dr.fone</u></a></li>
 </ul></div>
 

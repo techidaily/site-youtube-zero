@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  The Psychology of Persuasion in Subscription Growth\""
-date: 2024-07-29T15:29:03.919Z
-updated: 2024-07-30T15:29:03.919Z
+date: 2025-01-02T05:15:37.320Z
+updated: 2025-01-05T17:29:04.194Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/4f7677089ce9d876fde36aa600317f042b44ee73a
 
 # How to Get People to Subscribe to Your YouTube Channel
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -39,9 +36,6 @@ There are people who think that if people like their videos they’ll subscribe,
    2. [Step 2: Get to The Point Quickly](#point)  
    3. [Step 3: Create a Moment - Make Subscribing Part of the Experience](#moment)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
-<!-- affiliate ads end -->
 ## What is a 'Call To Action'?
 
 It has become the norm for YouTubers to ask viewers to subscribe in their sign-offs. A typical CTA (‘call to action’) goes something like this:
@@ -51,8 +45,9 @@ It has become the norm for YouTubers to ask viewers to subscribe in their sign-o
 That’s great. At the end of a video is a good place to ask people to subscribe, but is it the best and only place you should be reminding them? If you take a peek at your analytics and you might find that most of your viewers aren’t watching to the ends of your videos (people have short attention spans).
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## A More Effective Way of Asking For Subscribers
 
 Collins Key is one YouTuber who has mastered asking for subscribers early on, and given that he has over 7 million subscribers himself I’d say it’s working out. Check out the technique in this video collab with Brooklyn and Bailey:
@@ -63,6 +58,10 @@ As you can see, the video starts with a ‘flash forward’ to one of the twins 
 
 ![ how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-by-hook.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### Step 2: Get to The Point Quickly
 
 Shortly after, while still in the first 30 seconds of the video, Collins gets right to the point and introduces the Twin Telepathy Challenge promised in the title of the video. The hook with the heater catching fire is effective, but it’s not essential. It happens to suit Collins’ style, and it happens to have happened. Getting to the main point of the video quickly – usually in the first 15 seconds, not the first 30 (it’s in the first 15 seconds that most viewers click away) – is vital. People click on videos for a reason, and if they don’t see a sign of that payoff quickly they’ll leave.
@@ -71,12 +70,17 @@ Shortly after, while still in the first 30 seconds of the video, Collins gets ri
 
 It’s only after hooking the viewer in and reiterating the promise of the title that Collins asks viewers to subscribe. The really clever thing about how he asks is that he carves out time in the video for the viewer to comply with his request. He gives 5 seconds and does a countdown.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
-<!-- affiliate ads end -->
 ![ how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-in-perfect-moment.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Collins Key has been one of the fastest-growing channels on YouTube. He does not implement this strategy in every video, but it’s not a stretch to think it’s had something to do with his success. Instead of simply asking you to subscribe at the end of the video, he creates a part of the video early on – before people who don’t watch until the end will have clicked away – where you feel as if you’re ‘supposed to’ subscribe.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Polish Your YouTube Videos with Filmora
 
@@ -86,17 +90,15 @@ As one of the most widely used video editing software in YouTube video editing, 
 
 Here is a tutorial video about how to use Filmora to edit your YouTube video. Check it out and try Filmora if you are interested.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 That's how you can get more YouTube subscribers by asking the right way. You may follow the instructions and try it yourself. Do not forget to [track your YouTube subscribers in real time](https://tools.techidaily.com/wondershare/filmora/download/) to make necessary adjustments.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4550420&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/pic/f_02.jpg" border="0">PearlMountain Image Converter</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -104,14 +106,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -120,4 +119,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/rom-chat-room-to-screen-step-by-step-google-meet-youtube-streams-for-2024/"><u>[New] From Chat Room to Screen Step-by-Step Google Meet YouTube Streams for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-budget-friendly-broadcaster-gear-for-video-voyeurs/"><u>[New] In 2024, Budget-Friendly Broadcaster Gear for Video Voyeurs</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/astering-the-art-of-defeating-youtube-short-issues/"><u>[New] Mastering the Art of Defeating YouTube Short Issues</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-ultimate-guide-to-7-top-mac-vids/"><u>[Updated] 2024 Approved Ultimate Guide to 7 Top Mac Vids</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-professional-tips-for-perfectly-recording-your-powerpoint-sessions/"><u>[Updated] In 2024, Professional Tips for Perfectly Recording Your PowerPoint Sessions</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-the-rewind-ritual-making-playlists-run-opposite-to-current/"><u>[Updated] In 2024, The Rewind Ritual Making Playlists Run Opposite to Current</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/empowering-companies-with-unprecedented-api-capabilities-of-gpt-whisper/"><u>Empowering Companies with Unprecedented API Capabilities of GPT, Whisper</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-oppo-a59-5g-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos From Oppo A59 5G to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-mastering-youtube-monetization-minimum-required-views-to-profit/"><u>In 2024, Mastering YouTube Monetization Minimum Required Views to Profit</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/in-2024-photographers-aid-free-mobile-photography-boost/"><u>In 2024, Photographer's Aid - Free, Mobile Photography Boost</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-simplified-methods-to-validate-your-youtube-status/"><u>In 2024, Simplified Methods to Validate Your YouTube Status</u></a></li>
+<li><a href="https://techidaily.com/is-your-realme-narzo-60x-5g-working-too-slow-heres-how-you-can-hard-reset-it-drfone-by-drfone-reset-android-reset-android/"><u>Is your Realme Narzo 60x 5G working too slow? Heres how you can hard reset it | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/ultimate-guide-speedy-dvd-extraction-techniques-without-compromising-quality/"><u>Ultimate Guide: Speedy DVD Extraction Techniques Without Compromising Quality</u></a></li>
+<li><a href="https://windows11.techidaily.com/unlocking-itunes-performance-issues-on-windows-pcs/"><u>Unlocking iTunes Performance Issues on Windows PCs</u></a></li>
+</ul></div>
 

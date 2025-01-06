@@ -1,7 +1,7 @@
 ---
 title: "\"Creating Simple Videos  Top 10 YouTube Projects Anyone Can Do for 2024\""
-date: 2024-12-25T19:37:10.593Z
-updated: 2024-12-27T16:43:45.246Z
+date: 2025-01-03T03:44:10.578Z
+updated: 2025-01-05T18:58:13.020Z
 tags:
   - ai video
   - ai youtube
@@ -52,6 +52,10 @@ Let the world know who you are and what you do. If you are planning on starting 
 
 These kinds of videos make great channel trailers, and they’re a good way to highlight the topics you'll be covering on your channel in the future.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. Vlog About Your Day
 
 Anything that happens during your day can become a topic for your YouTube vlog. Traffic jams, treacherous pets who keep stealing your shoes, or the ridiculous amount of things you had to do in a single day can all become topics for videos you upload to your YouTube channel. Being candid and spontaneous is a sure way to grab the attention of a viewer, but limiting the duration of a vlog to a few minutes is key to ensuring that viewers watch the video until the end.
@@ -59,7 +63,7 @@ Anything that happens during your day can become a topic for your YouTube vlog. 
 Strive to make visually dynamic videos, because just sitting or standing and talking in front of a camera for a few minutes isn't going to create much on-screen action.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. Express An Opinion
@@ -76,6 +80,10 @@ Everywhere around you, there are items you can review. The Apple Watch and the l
 
 Review videos can also be a source of revenue because a lot of companies sponsor YouTubers who review their products.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 5\. Your Favorite Songs / Movies / Etc
 
 Are you a Tarantino fan? Why not? When you are struggling to find inspiration for your videos, just think about the things you like. Your subscribers are interested in you, so they’ll be interested in knowing about your favorite movies or music albums. Books, movies, and music are an inexhaustible source of fresh ideas because there is always a new song or a film you can talk about in your video.
@@ -87,6 +95,10 @@ You can do a ‘my 5 favorite songs’ type of video, or talk in detail about ju
 There were over two billion smartphone users worldwide in 2017, and this number is only going to continue rising in the next couple of years. Furthermore, thousands of YouTubers are already producing unimaginable amounts of videos about the latest apps or smartphone devices.
 
 Finding a way to talk about the apps you like to use the most can be a good idea if you want to attract more visitors to your YouTube channel. However, you need to be clear about whether this is a lifestyle or vlog-style video covering a topic that usually exists in the tech genre, or if you are a tech YouTuber, so as not to confuse your audience (you don’t want people to start expecting app reviews if that’s not what you usually do).
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 7\. Make a Slideshow
 
@@ -100,19 +112,11 @@ Education is our only hope for a better world so if you know how to do something
 
 YouTube channels that feature tutorials often have millions of followers, because YouTube is a popular place to go when you need information.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 9\. 10 Things About You
 
 Being open is important, so why not share 10 things about yourself you think your audience would find interesting or which you think are important for people to know. The top 10 things structure is often used in YouTube videos because it provides a clear rhythm to a video clip, and it enables you to gradually increase the tension as the video progresses.
 
 These types of videos tend to create a better relationship with your audience because they make the viewer feel as if they know the person on the screen.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 10\. Video Rant
 
@@ -122,21 +126,17 @@ Don't try to fake a rant, because they only work if they are natural. Scripting 
 
 Do you have any [easy video ideas for other creators](https://tools.techidaily.com/wondershare/filmora/download/) to try?
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Start Editing Videos with Beginner-friendly Software
 
 If you start your YouTube channel but have no video editing experience, Wondershare Filmora will definitely help you get over the problems. Download Filmora now!
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
 
@@ -159,22 +159,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-the-skys-playground-discovering-the-husqvarna-x4-fpv/"><u>[New] 2024 Approved The Sky's Playground Discovering the Husqvarna X4 FPV</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/irect-transfer-path-youtube-content-to-dailymotion-hub/"><u>[New] Direct Transfer Path YouTube Content to Dailymotion Hub</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/he-angle-alchemists-guide-to-transforming-your-videos-youtube-edition/"><u>[New] The Angle Alchemist's Guide to Transforming Your Videos (YouTube Edition)</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-discovering-calmer-video-consumption-three-ways-to-pause-time-56-chars-slightly-over-but-a-minor-exception-due-to-title-length/"><u>[Updated] 2024 Approved Discovering Calmer Video Consumption Three Ways to Pause Time (56 Chars, Slightly over but a Minor Exception Due to Title Length)</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-avoid-boredom-learn-to-shuffle-youtube-lists/"><u>[Updated] Avoid Boredom Learn to Shuffle YouTube Lists</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-gamified-learning-educational-youtubers-to-subscribe-for-2024/"><u>[Updated] Gamified Learning Educational YouTubers to Subscribe for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-speedy-stories-top-10-rapid-release-games-on-tablets-pcs/"><u>[Updated] Speedy Stories Top 10 Rapid Release Games on Tablets, PCs</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/2024s-premier-vintage-controller-selections-for-gaming-on-pc-and-raspberry-pi/"><u>2024'S Premier Vintage Controller Selections for Gaming on PC & Raspberry Pi</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/chers-guide-to-enhancing-learning-through-youtube-videos-for-2024/"><u>A Teacher's Guide to Enhancing Learning Through YouTube Videos for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/t-friendly-strategies-to-infuse-text-and-video-for-2024/"><u>Budget-Friendly Strategies to Infuse Text & Video for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/bland-to-brilliant-transform-your-youtube-channels-image/"><u>From Bland to Brilliant Transform Your YouTube Channels' Image</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/how-to-repair-a-non-functional-razer-kraken-audio-input-device/"><u>How to Repair a Non-Functional Razer Kraken Audio Input Device</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-unlock-infinix-zero-5g-2023-turbo-bootloader-easily-by-drfone-android/"><u>How to Unlock Infinix Zero 5G 2023 Turbo Bootloader Easily</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/leading-limitless-time-tracker-apps-for-2024/"><u>Leading Limitless Time Tracker Apps for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/izing-impact-strategies-for-watermark-and-logo-insertion-in-yt-videos/"><u>Maximizing Impact Strategies for Watermark & Logo Insertion in YT Videos</u></a></li>
-<li><a href="https://driver-install.techidaily.com/rh5770windowsrtkgraphics/"><u>RH5770WindowsRTKGraphics</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/1723016036993-unlock-seamless-game-sound-integration-with-this-solved-discord-method/"><u>Unlock Seamless Game Sound Integration with This Solved Discord Method</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-winning-the-subscriber-race-on-youtube/"><u>[New] 2024 Approved Winning the Subscriber Race on YouTube</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-step-by-step-guide-to-edges-pip-functionality-for-2024/"><u>[New] Step-by-Step Guide to Edge’s PIP Functionality for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-from-unknown-to-famous-boosting-video-views-on-youtube-step-by-step/"><u>[Updated] From Unknown to Famous Boosting Video Views on YouTube Step-by-Step</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-the-quickstep-into-viral-audio-youtubes-short-musical-journey/"><u>[Updated] In 2024, The Quickstep Into Viral Audio YouTube's Short Musical Journey</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-make-a-mark-with-your-first-cool-mac-video-post-on-youtube/"><u>2024 Approved Make a Mark with Your First Cool Mac Video Post on YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-navigating-youtube-music-eclecticism/"><u>2024 Approved Navigating YouTube Music Eclecticism</u></a></li>
+<li><a href="https://extra-information.techidaily.com/chromesafari-blank-screens-here-are-9-tips-to-restore-your-video/"><u>Chrome/Safari Blank Screens? Here Are 9 Tips to Restore Your Video</u></a></li>
+<li><a href="https://fox-info.techidaily.com/innovative-titles-to-lengthen-viewing-times-within-limit/"><u>Innovative Titles to Lengthen Viewing Times (Within Limit)</u></a></li>
+<li><a href="https://driver-error.techidaily.com/overcoming-computer-glitches-fix-your-final-usb-device-when-its-ignored-by-windows-systems/"><u>Overcoming Computer Glitches: Fix Your Final USB Device When It's Ignored By Windows Systems</u></a></li>
+<li><a href="https://extra-support.techidaily.com/savvy-photographers-guide-to-pristine-cloud-space-cost-free-and-paid-choices-for-2024/"><u>Savvy Photographers' Guide to Pristine Cloud Space Cost-Free & Paid Choices for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ited-visual-potential-free-themes-for-channels-for-2024/"><u>Unlimited Visual Potential – Free Themes for Channels for 2024</u></a></li>
 </ul></div>
 

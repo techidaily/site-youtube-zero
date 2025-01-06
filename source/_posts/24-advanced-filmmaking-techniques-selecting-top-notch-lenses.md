@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Advanced Filmmaking Techniques  Selecting Top-Notch Lenses\""
-date: 2024-07-29T15:32:59.286Z
-updated: 2024-07-30T15:32:59.286Z
+date: 2025-01-02T04:59:23.445Z
+updated: 2025-01-05T21:19:49.273Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/0c50e9701859daef27aa4fad4bc3c104584c3b31a
 
 # Best Camera Lenses for YouTube
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -30,8 +27,9 @@ thumbnail: https://thmb.techidaily.com/0c50e9701859daef27aa4fad4bc3c104584c3b31a
 A DSLR is the ideal camera for some vlogs, and using a DSLR means you get to customize the look of your vlog by choosing the perfect lens. Choosing the best camera lens for your YouTube channel can be tricky because there are so many options. This article will walk you through some of them, and make two recommendations of great vlogging lenses. If you already have a good understanding of how camera lenses work then feel free to scroll down to the lens recs.
 
 <!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 1\. Understanding Lenses: Zoom lens, Fixed lens, aperture, f-stop
 
 There are two main categories of camera lenses: ‘zoom’ – lenses that allow you to zoom in and out – and ‘fixed’. If your lenses are tools then zoom lenses are Swiss army knives; they are very versatile. Fixed lenses, also called prime lenses, have more specific purposes. Do you need a tool that can do a lot of things, or a tool that is perfect for one specific job? Sometimes it is useful to have access to both.
@@ -41,8 +39,9 @@ We have explained the differences between Fixed lens and Zoom lens and advantage
 Before we get into the recommendations here is a little background information on lenses in general:
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Beginner's Guide to Aperture and F-Stops
 
 In order to be able to select the lens you'll be using to record your YouTube videos, you first need to understand a few very basic concepts, such as aperture or f-stops.
@@ -62,8 +61,9 @@ F-stops are written like ‘f/1.8’ or ‘f/4’ on your lens. For more informa
 **F-stops** or f-numbers indicate how open the aperture is, so for example if your camera is displaying f/32 value it means that your camera is letting very little light to get through to the camera's sensor. The f-number depends on a few other parameters such as shutter speed, exposure or ISO values. Large apertures provide a shallow depth of field which creates a smooth and artistic background blur, while a small aperture enables you to keep both the background and the foreground of your shot in focus.
 
 <!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2: Types of Camera Lenses
 
 The visual aspect of a video may not be the only thing you'll have to dedicate special attention to while recording your YouTube video, but it is surely one of the most important factors of the video production process. A lens you are using will largely contribute to the aesthetics of the video. That's why you need to know which type of lens will deliver the best results when shooting different types of scenes. Here are some of the most common types of lenses you'll encounter.
@@ -88,10 +88,6 @@ Recording videos of vast open spaces, breathtaking vistas or beautiful city view
 
 YouTubers who are working on demanding projects can try to solve their troubles by using a specialist lens. Soft-focus lenses can help you take better portraits while tilt-shift lenses allow you to control the perspective. However, it is hard to imagine a scenario in which you'll need a specialist lense if you are just starting out since even experienced videographers only use special lenses when they have absolutely no better way to record a scene.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## Part 3: Recommended Best Camera Lenses for Shooting YouTube Videos
 
 Here are a couple great lenses that might be good fits for you and your YouTube channel. The thing that makes them both ideal for vlogging is that they have low enough f-stops to blur out your background.
@@ -117,6 +113,10 @@ Canon released this lens in 2014 and shortly after it has gained the reputation 
 
 ![camera lens](https://images.wondershare.com/filmora/article-images/camera-lens-rec01.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The EF 50mm is a fixed lens with an f-stop of 1.8, which means it is great for blurring your background and performs well even in poorer lighting conditions. This is a really great lens for an opinion or beauty vlog, where you do not need to move around. You can stay put right where the focus is sharpest and stand out by blurring everything behind you. If you tend to reuse the same sets then you do not really need a zoom feature. If your shooting conditions rarely change then it is just as easy to use a reliable fixed lens like the EF 50mm since you will not need to be rethinking your set up and adjusting.
 
 If you are looking for an inexpensive prime lens that lets you create sharp videos with shallow depth of field, you should look no further. This model is one of three Canon's 50mm prime lenses, although the [50mm f/1.4 USM](https://www.amazon.com/Canon-Standard-Medium-Telephoto-Cameras/dp/B00009XVCZ/ref=as%5Fli%5Fss%5Ftl?ie=UTF8&qid=1438974280&sr=8-3&keywords=Canon+50+mm&linkCode=sl1&tag=omnideals-20&linkId=11bff1019e73f0462c30a04e98d4874f&linkCode=w61&imprToken=ZJIXM-O6nkoYz.LvcTe) and [50mm f/1.2 'L' USM](https://www.amazon.com/Canon-50mm-Lens-Digital-Cameras/dp/B000I1YIDQ/ref=as%5Fli%5Fss%5Ftl?ie=UTF8&qid=1438974280&sr=8-4&keywords=Canon+50+mm&linkCode=sl1&tag=omnideals-20&linkId=d77bb813550f12e8aa72c8738dfaad81&linkCode=w61&imprToken=ZJIXM-O6nkoYz.LvcTeAiw&slot) models are much more expensive. You can use it to record a lot of different types of YouTube videos, like product reviews or makeup tutorials. The 50 mm f/1.8 STM lens doesn't have image stabilization technology so you should try to be as still as you can possibly be when shooting handheld videos in order to avoid recording footage that has a lot of camera shakes.
@@ -129,6 +129,10 @@ Recording **moving objects** from a distance requires you to have a lens that al
 
 ![camera lens rec02](https://images.wondershare.com/filmora/article-images/camera-lens-rec02.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The Tamron's standard zoom lens offers good value at a very reasonable price. The maximum aperture is f/2.8, while the minimum aperture value this lens supports is f/32, which means that its users can easily experiment with different **depths of field.** The lens is **compatible with most Canon cameras** so if you have a camera from another manufacturer you may have to use the lens adapter in order to mount it onto your camera. Like most standard zoom lenses, Tamron SP AF model is **highly versatile** and you can use it to record **a wide range of different scenes**.
 
 A lot of zoom lenses do not have wide enough apertures to create blurred backgrounds, but this Tamron lens is an exception at f/2.8\. This low f-stop also means that it performs better in poor lighting conditions than a lot of other zoom lenses. If your shooting conditions change a lot – if you often change locations, for example – then it will be good to have a sturdy, well-built, zoom lens like the AF 17-mm that can be quickly adapted to new angles and distances.
@@ -139,10 +143,6 @@ All Sony's APS-C format E mount cameras are compatible with this multi-purpose l
 
 If you are using a 4k camera to shoot your YouTube video, check out [best camera lens for 4k professional production.](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
-</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -151,14 +151,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -167,4 +164,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-twisting-tales-a-guide-to-angled-photography-that-captivates-audiences-on-digital-platforms/"><u>[New] In 2024, Twisting Tales A Guide to Angled Photography that Captivates Audiences on Digital Platforms</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-out-of-obscurity-reversing-tiktoks-stealth-ban-for-2024/"><u>[New] Out of Obscurity Reversing TikTok's Stealth Ban for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-the-art-of-cinematic-dying-in-pro/"><u>[New] The Art of Cinematic Dying in Pro</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-average-payout-for-a-million-view-youtube-video/"><u>[Updated] 2024 Approved Average Payout for a Million-View YouTube Video</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-innovative-concepts-for-youtube-success-and-inspiration/"><u>[Updated] 2024 Approved Innovative Concepts for YouTube Success and Inspiration</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-androidios-users-guide-to-facebook-live-broadcasting-for-2024/"><u>[Updated] Android/iOS Users' Guide to Facebook Live Broadcasting for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-avoiding-invisibility-strategies-for-effective-use-of-youtubes-featured-channels/"><u>[Updated] Avoiding Invisibility Strategies for Effective Use of Youtube's Featured Channels</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-step-by-step-techniques-for-iphone-7-screen-saving/"><u>[Updated] In 2024, Step-by-Step Techniques for iPhone 7 Screen Saving</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-the-video-money-roadmap-dailymotion-and-youtube-compared/"><u>[Updated] In 2024, The Video Money Roadmap Dailymotion & YouTube Compared</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-crafting-your-music-collection-youtube-playlists-guide/"><u>2024 Approved Crafting Your Music Collection YouTube Playlists Guide</u></a></li>
+<li><a href="https://article-files.techidaily.com/crafting-visual-brilliance-mastering-luts-in-ae-for-2024/"><u>Crafting Visual Brilliance Mastering LUTs in AE for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ips-for-affordable-youtube-introend-videos/"><u>DIY Tips for Affordable YouTube Intro/End Videos</u></a></li>
+<li><a href="https://discover-answers.techidaily.com/learn-how-to-bypass-the-need-for-itunes-and-leverage-your-iphones-usb-capabilities-discover-four-cost-free-methods-that-make-it-simple-to-use-your-iphone-as101/"><u>Learn How to Bypass the Need for iTunes and Leverage Your iPhone's USB Capabilities. Discover Four Cost-Free Methods that Make It Simple to Use Your iPhone as External Storage on Any Computer, Boosting Its Versatility Beyond What Apple Intended!</u></a></li>
+<li><a href="https://review-topics.techidaily.com/mkv-playback-issues-on-mix-fold-3-by-aiseesoft-video-converter-play-mkv-on-android/"><u>MKV playback issues on Mix Fold 3</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ing-youtube-images-step-by-step-guide-for-2024/"><u>Resizing YouTube Images Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ate-filmmaking-journey-via-youtube-channels-for-2024/"><u>Ultimate Filmmaking Journey via YouTube Channels for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/unlock-the-secrets-of-dual-booting-effortlessly-run-ubuntu-linux-within-macs-xcode-a-step-by-step-guide/"><u>Unlock the Secrets of Dual-Booting: Effortlessly Run Ubuntu Linux Within Mac's Xcode | A Step-by-Step Guide</u></a></li>
+</ul></div>
 

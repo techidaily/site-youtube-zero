@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Avoid Blandness in Your Vids  Top Recommended YouTube Thumbnail Heights\""
-date: 2024-07-29T15:32:39.213Z
-updated: 2024-07-30T15:32:39.213Z
+date: 2025-01-02T03:23:42.310Z
+updated: 2025-01-06T02:50:51.646Z
 tags:
   - ai video
   - ai youtube
@@ -52,6 +52,10 @@ The maximum YouTube thumbnail size must be below 2MB. Keeping the limit in mind 
 
 Usually, the 16:9 ratio is deemed an ideal choice for any YouTube video aiming high view volume. As it is most widely used in YouTube players and previews.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: Upload and Change a Custom YouTube Thumbnail
 
 With a verified account, you can upload custom thumbnail on new videos as well as change the thumbnail of uploaded videos.
@@ -62,34 +66,24 @@ YouTube makes it very simple and easy for any content creator to publish custom 
 
 * Upload your desired video to YouTube in the Upload section.
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![change thumbnail size](https://images.wondershare.com/filmora/article-images/upload-thumbnail-image1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * When your upload to the YouTube is completed a section will appear at the down portion of the browser screen showing **Video Thumbnails**. Here YouTube automatically creates some thumbnail images from your uploaded video and shows them here. These are the screenshots from your video, and you can select any one of them to be your thumbnail.
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![set video thumbnail](https://images.wondershare.com/filmora/article-images/video-thumbnail2.jpg)
 
 * You will be able to see a button right next to the image – **Custom thumbnail**. Click on the button and you can upload a set of images of your choice as the thumbnail of your video.
 * Once done you can see the custom image just uploaded as the thumbnail of your video.
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![custom thumbnail size](https://images.wondershare.com/filmora/article-images/custom-thumbnail3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * If you want to update the image or change it with another one you can just click on the same image in the video thumbnail section and swap it with any other image.
 
@@ -104,13 +98,13 @@ To change the thumbnail on an already uploaded video you need to follow these st
 
 ![upload thumbnail image](https://images.wondershare.com/filmora/article-images/change-thumbnail5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Now in the thumbnail section if you already haven’t uploaded a custom thumbnail, click **Custom thumbnail**.
 * Select your intended thumbnail file and click **Save**.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
-<!-- affiliate ads end -->
 ![best thumbnail size](https://images.wondershare.com/filmora/article-images/change-thumbnail6.jpg)
 
 ## Part 3: Q&A-- About YouTube Thumbnail Images
@@ -120,9 +114,6 @@ You may want to know:
 * [**Question 1:** **How do I make my youtube thumbnail less than 2mb?**](#question1)
 * [**Question 2:** **How can I create an attractive youtube thumbnail?**](#question2)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 1\. How do I make my youtube thumbnail less than 2mb?
 
 YouTube will not allow you to upload a custom thumbnail image if it is bigger than the 2MB limit. So, you need to make sure the file size is below the limit to be able to successfully upload a custom thumbnail. To reduce the image size you can follow the steps below:
@@ -131,6 +122,10 @@ YouTube will not allow you to upload a custom thumbnail image if it is bigger th
 * 2\. Now go to the File menu and click **Save as** then select JPEG picture
 * 3\. Select the location you want the file to be saved to
 * 4\. The thumbnail picture will be reduced to Kilobytes only while maintaining the image quality
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. How can I create an attractive youtube thumbnail?
 
@@ -142,9 +137,6 @@ Wondershare Filmora is an outstanding tool if you want to make a perfect thumbna
 
 Let's see how you can create your thumbnail using Wondershare Filmora:
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
-<!-- affiliate ads end -->
 **[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)**
 
 #### 2\. [Try Wondershare PixStudio>>](https://tools.techidaily.com/wondershare/fotophire/download/)
@@ -159,9 +151,6 @@ With Canva you can make a distinct and stand-out YouTube thumbnail image. Canva 
 
 To download the image without the watermark you’ll need to sign-up for a premium account on the Canva.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **To sum up**
 
 YouTube thumbnail plays an important part for the audience's first impression on your video. And it is of essential essence as it can attract more viewers to your content. So you should get the right **youtube thumbnail size** before you start customing your thumbnail. We’ve gone through all the detailed requirements of **youtube thumbnail size** and how to make the best thumbnail by using the best software solutions. Please leave your comments below if any suggestions. We'd love to hear them!
@@ -174,14 +163,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -190,4 +176,19 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-lessons.techidaily.com/new-a-step-further-elite-video-editing-hacks-for-tiktok/"><u>[New] A Step Further Elite Video Editing Hacks for TikTok</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/levate-video-reach-with-peak-watch-hours/"><u>[New] Elevate Video Reach with Peak Watch Hours</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nhanced-engagement-with-effective-youtube-video-outros-strategies-for-2024/"><u>[New] Enhanced Engagement with Effective YouTube Video Outros Strategies for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-enhancing-playback-speed-in-tiktok-videos-for-2024/"><u>[New] Enhancing Playback Speed in TikTok Videos for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-a-journey-through-the-digital-landscape-six-engaging-quizzes-for-every-vlogger-admirer/"><u>[Updated] A Journey Through the Digital Landscape Six Engaging Quizzes for Every Vlogger Admirer</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-score-high-on-youtube-with-these-ranking-factors/"><u>2024 Approved Score High on YouTube with These Ranking Factors</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-top-9-free-android-mp3-extractors/"><u>2024 Approved Top 9 FREE Android MP3 Extractors</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/discover-the-top-15-freeware-for-easy-program-removal/"><u>Discover the Top 15 Freeware for Easy Program Removal</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/ds-530-printer-and-its-compatible-64-bit-drivers-for-windows-10-download-and-installation-help/"><u>DS-530 Printer and Its Compatible 64-Bit Drivers for Windows 10 - Download & Installation Help</u></a></li>
+<li><a href="https://win-cloud.techidaily.com/navigating-the-ups-and-downs-of-gold-price-fluctuations-strategies-for-trading-stability-insights-from-yl-computing-and-yl-software/"><u>Navigating the Ups and Downs of Gold Price Fluctuations: Strategies for Trading Stability - Insights From YL Computing & YL Software</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-honor-v-purse-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Honor V Purse | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-honor-magic-vs-2-drfone-by-drfone-virtual-android/"><u>Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Honor Magic Vs 2 | Dr.fone</u></a></li>
+</ul></div>
 

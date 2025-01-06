@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Configure YouTube's Audience Options with Ease"
-date: 2024-07-29T15:30:28.043Z
-updated: 2024-07-30T15:30:28.043Z
+date: 2025-01-03T22:30:14.322Z
+updated: 2025-01-05T16:49:45.759Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/d4a369170dd24048d49b11ae6cda29b689bc2d38a
 
 # How to Change the Privacy Setting on Your YouTube Videos
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -61,14 +58,12 @@ thumbnail: https://thmb.techidaily.com/d4a369170dd24048d49b11ae6cda29b689bc2d38a
 
  It won’t show up on searches, as related or suggested videos, or even when imbedded in other sites. This is the best setting for a video you need to share with only very specific people, if anyone. Below is a comparison table to know more about [privacy settings](https://support.google.com/youtube/answer/157177?co=GENIE.Platform%3DDesktop&hl=en&oco=1).
 
-<!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![youtube privacy setting](https://images.wondershare.com/filmora/article-images/youtube-privacy-setting.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2: How to Change Privacy Settings
 
  There are two ways to change the privacy settings: firstly, when you upload the video, and secondly through Creator Studio.
@@ -83,30 +78,27 @@ thumbnail: https://thmb.techidaily.com/d4a369170dd24048d49b11ae6cda29b689bc2d38a
 
  To change the privacy setting later, go to Creator Studio, then Video Manager. On the right-hand side you’ll see one of three icons: a world, a chain, and a lock. The world means **"public"**, the chain means **"unlisted"**, and the lock is for **"private"**.
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![youtube privacy settings](https://images.wondershare.com/filmora/article-images/unlisted-video.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  To change the privacy, click the icon. You’ll be taken to the video's info and settings page. Down below where you see the thumbnails you'll see the selected privacy setting. Click this to open a drop down menu, and select your desired privacy level.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: Sharing Private Videos
 
  If a video is set to "private', you'll have the option to share it with specific people. Below where it says "private" on the info and settings page you'll see a button labeled "share". Click this and type in the email addresses of the people you want to be able to watch the video. You’ll also have the option of notifying the people via email that you’ve shared the video with them.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
-<!-- affiliate ads end -->
 ![share youtube privacy video](https://images.wondershare.com/filmora/article-images/share-private-video.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -114,10 +106,11 @@ thumbnail: https://thmb.techidaily.com/d4a369170dd24048d49b11ae6cda29b689bc2d38a
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -125,14 +118,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -141,4 +131,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/1-fitness-youtube-video-ideas-to-keep-you-and-your-viewers-moving-for-2024/"><u>[New] 11 Fitness YouTube Video Ideas to Keep You and Your Viewers Moving for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-unlocking-viral-potential-with-ai-driven-video-titles/"><u>[New] 2024 Approved Unlocking Viral Potential with AI-Driven Video Titles</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/rom-buffer-to-broadcast-learn-how-to-convert-your-youtube-viewing-into-a-screenshot-for-free-for-2024/"><u>[New] From Buffer to Broadcast Learn How to Convert Your YouTube Viewing Into a Screenshot for Free for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-monetize-like-a-pro-how-to-use-youtube-studio-on-any-device/"><u>[Updated] In 2024, Monetize Like a Pro How to Use Youtube Studio on Any Device</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-mastering-youtube-tags-a-guide-to-identifying-top-picks/"><u>2024 Approved Mastering YouTube Tags A Guide to Identifying Top Picks</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-principles-for-orderly-youtube-broadcasts/"><u>Design Principles for Orderly YouTube Broadcasts</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-everything-you-need-to-know-about-lock-screen-settings-on-your-google-pixel-fold-by-drfone-android/"><u>In 2024, Everything You Need to Know about Lock Screen Settings on your Google Pixel Fold</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-changeadd-location-filters-on-snapchat-for-your-oppo-find-x7-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change/Add Location Filters on Snapchat For your Oppo Find X7 | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-get-the-apple-id-verification-code-from-iphone-se-2022-in-the-best-ways-by-drfone-ios/"><u>In 2024, How To Get the Apple ID Verification Code From iPhone SE (2022) in the Best Ways</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-intercept-text-messages-on-asus-rog-phone-8-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Intercept Text Messages on Asus ROG Phone 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/infographics-spotlight-on-future-social-trends-for-2024/"><u>Infographics Spotlight on Future Social Trends for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/mastering-windows-file-management-tools-enhancements/"><u>Mastering Windows File Management Tools Enhancements</u></a></li>
+<li><a href="https://driver-error.techidaily.com/no-more-frustration-quickly-fix-driver-not-available-for-itbm/"><u>No More Frustration – Quickly Fix 'Driver Not Available' For ITBM</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-to-remove-unseen-portions-in-streamed-youtube-videos/"><u>Steps to Remove Unseen Portions in Streamed YouTube Videos</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/why-is-ipogo-not-working-on-realme-11-pro-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Realme 11 Pro? Fixed | Dr.fone</u></a></li>
+</ul></div>
 

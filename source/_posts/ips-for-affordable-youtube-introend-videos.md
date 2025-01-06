@@ -1,7 +1,7 @@
 ---
 title: "DIY Tips for Affordable YouTube Intro/End Videos"
-date: 2024-12-17T16:02:45.810Z
-updated: 2024-12-21T16:02:12.905Z
+date: 2025-01-01T21:35:11.259Z
+updated: 2025-01-05T21:40:59.817Z
 tags:
   - ai video
   - ai youtube
@@ -46,7 +46,7 @@ thumbnail: https://thmb.techidaily.com/056b5dc5bf38553fc5e62980ac558058cdfef6fae
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part1: Intros
@@ -78,7 +78,7 @@ You can create a simple intro card in **Filmora**.
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
@@ -130,7 +130,7 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -154,24 +154,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/p-formula-how-to-check-youtube-income-for-2024/"><u>[3-Step Formula] How To Check YouTube Income for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-seamless-broadcasting-gamers-secrets-from-obs/"><u>[New] 2024 Approved Seamless Broadcasting Gamers' Secrets From OBS</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-harnessing-youtube-content-for-engaging-animation-gifs-for-2024/"><u>[New] Harnessing YouTube Content for Engaging Animation GIFs for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/n-2024-decoding-youtube-community-terms-and-policies/"><u>[New] In 2024, Decoding YouTube Community Terms and Policies</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-ranking-youtube-download-apps-for-android-users/"><u>[Updated] 2024 Approved Ranking YouTube Download Apps for Android Users</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-elite-visionaries-video-realm-for-2024/"><u>[Updated] Elite Visionaries Video Realm for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-enhancing-youtube-presence-with-strategic-banners/"><u>[Updated] In 2024, Enhancing YouTube Presence with Strategic Banners</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-essential-asmr-creators-to-follow/"><u>[Updated] In 2024, Essential ASMR Creators to Follow</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-channel-dominance-plan-studio-protocol-vs-beta-update/"><u>2024 Approved Channel Dominance Plan Studio Protocol Vs. Beta Update</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-navigating-youtubes-profit-maze/"><u>2024 Approved Navigating YouTube's Profit Maze</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/ais-premium-convo-boost-chatgpt-plus-unveiled-at-20mo-us-only/"><u>AI's Premium Convo Boost: ChatGPT Plus Unveiled at $20/Mo (US-Only)</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/como-mover-tu-sistema-completo-del-disco-duro-al-ssd-manteniendo-la-configuracion-actual-de-windows/"><u>Cómo Mover Tu Sistema Completo Del Disco Duro Al SSD Manteniendo La Configuración Actual De Windows</u></a></li>
-<li><a href="https://techtrends.techidaily.com/fixing-android-communication-breakdown-no-more-failed-calls/"><u>Fixing Android Communication Breakdown: No More Failed Calls</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-earn-big-on-youtube-strategies-for-successful-creators/"><u>In 2024, Earn Big on YouTube Strategies for Successful Creators</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/se-viewing-in-youtube-original-ideas-for-rewinders-for-2024/"><u>Inverse Viewing in YouTube Original Ideas for Rewinders for 2024</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/most-asked-questions-about-pokemon-go-battle-league-rewards-on-apple-iphone-8-drfone-by-drfone-virtual-ios/"><u>Most Asked Questions about Pokemon Go Battle League Rewards On Apple iPhone 8 | Dr.fone</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/study-highlights-misleading-material-claims-in-half-of-the-tested-pc-cooling-systems-lack-of-promoted-copper-usage-exposed/"><u>Study Highlights Misleading Material Claims in Half of the Tested PC Cooling Systems - Lack of Promoted Copper Usage Exposed</u></a></li>
-<li><a href="https://fox-that.techidaily.com/ten-proven-methods-to-restore-cellular-connectivity-in-your-iphone/"><u>Ten Proven Methods to Restore Cellular Connectivity in Your iPhone</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/titan-p27a2r-180hz-gaming-monitor-evaluation-ultimate-budget-friendly-gear/"><u>Titan P27A2R 180Hz Gaming Monitor Evaluation: Ultimate Budget-Friendly Gear</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-how-to-find-your-niche-and-style-a-starters-guide/"><u>[New] 2024 Approved How to Find Your Niche and Style - a Starter's Guide</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-how-to-rotate-youtube-videos-by-any-angle-2023-guide-andeditors/"><u>[New] 2024 Approved How to Rotate YouTube Videos by Any Angle [2023 Guide &Editors]</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-mastering-youtube-broadcast-wirecast-streaming-guide/"><u>[New] 2024 Approved Mastering YouTube Broadcast WireCast Streaming Guide</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-maximizing-impact-with-youtube-micro-videos/"><u>[New] 2024 Approved Maximizing Impact with YouTube Micro Videos</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-deep-dive-exploring-free2webcam-recording-tools/"><u>[New] In 2024, Deep Dive Exploring Free2WebCam Recording Tools</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-unveiling-celestial-beauty-premium-hdr-sky-portals/"><u>[New] In 2024, Unveiling Celestial Beauty Premium HDR Sky Portals</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-mastering-the-art-of-uploading-videos-into-personalized-playlists-for-2024/"><u>[New] Mastering the Art of Uploading Videos Into Personalized Playlists for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-unveiling-the-syma-x5c-a-beginners-prime-drone-choice/"><u>[Updated] In 2024, Unveiling the Syma X5C A Beginner’s Prime Drone Choice</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-the-ultimate-list-of-instagram-downloaders-for-2024/"><u>[Updated] The Ultimate List of Instagram Downloaders for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/among-us-update-clears-loading-screen-glitches-enhances-gameplay-experience/"><u>Among Us Update Clears Loading Screen Glitches, Enhances Gameplay Experience</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/from-social-media-to-monetary-success-the-roadmap-for-instagram-sponsorship-for-2024/"><u>From Social Media to Monetary Success The Roadmap for Instagram Sponsorship for 2024</u></a></li>
+<li><a href="https://driver-download.techidaily.com/get-the-latest-drivers-how-to-properly-setup-a-samsung-960-evo-m2-ssd-in-windows/"><u>Get the Latest Drivers: How to Properly Setup a Samsung 960 EVO M.2 SSD in Windows</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-analysis-of-tropico-6-ruling-over-a-dream-island/"><u>In-Depth Analysis of Tropico 6: Ruling Over a Dream Island</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-video-creation-software-for-smartphone-users/"><u>Prime Video Creation Software for Smartphone Users</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-up-viewers-the-science-behind-successful-youtube-shorts/"><u>Sweep Up Viewers The Science Behind Successful YouTube Shorts</u></a></li>
 </ul></div>
 
