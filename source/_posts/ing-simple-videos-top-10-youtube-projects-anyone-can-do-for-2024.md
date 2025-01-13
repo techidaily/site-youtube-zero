@@ -1,7 +1,7 @@
 ---
 title: "\"Creating Simple Videos  Top 10 YouTube Projects Anyone Can Do for 2024\""
-date: 2025-01-03T03:44:10.578Z
-updated: 2025-01-05T18:58:13.020Z
+date: 2025-01-10T16:10:38.916Z
+updated: 2025-01-12T18:38:30.551Z
 tags:
   - ai video
   - ai youtube
@@ -46,15 +46,15 @@ They say that less is more, so let's have a look at how you can apply this princ
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Introduce Yourself
 
 Let the world know who you are and what you do. If you are planning on starting a YouTube channel, or if you’ve already been posting videos on a topic but haven’t formally introduced yourself, it’s a great idea to put some thought into an introduction video. Producing such a YouTube video will enable you to introduce yourself to your future subscribers and give them an idea as to what your channel is all about.
 
 These kinds of videos make great channel trailers, and they’re a good way to highlight the topics you'll be covering on your channel in the future.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 2\. Vlog About Your Day
 
@@ -63,7 +63,7 @@ Anything that happens during your day can become a topic for your YouTube vlog. 
 Strive to make visually dynamic videos, because just sitting or standing and talking in front of a camera for a few minutes isn't going to create much on-screen action.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. Express An Opinion
@@ -81,7 +81,7 @@ Everywhere around you, there are items you can review. The Apple Watch and the l
 Review videos can also be a source of revenue because a lot of companies sponsor YouTubers who review their products.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 5\. Your Favorite Songs / Movies / Etc
@@ -97,7 +97,7 @@ There were over two billion smartphone users worldwide in 2017, and this number 
 Finding a way to talk about the apps you like to use the most can be a good idea if you want to attract more visitors to your YouTube channel. However, you need to be clear about whether this is a lifestyle or vlog-style video covering a topic that usually exists in the tech genre, or if you are a tech YouTuber, so as not to confuse your audience (you don’t want people to start expecting app reviews if that’s not what you usually do).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 7\. Make a Slideshow
@@ -118,6 +118,10 @@ Being open is important, so why not share 10 things about yourself you think you
 
 These types of videos tend to create a better relationship with your audience because they make the viewer feel as if they know the person on the screen.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 10\. Video Rant
 
 Doing things when you are angry is usually a bad idea, but if you feel so strongly about a particular subject then creating a video rant can be a great idea. Rants don’t even have to be angry, they can be about something that puzzles you or something so great you just can’t get over it. These kinds of videos can get your YouTube channel a lot of comments, likes, and subscribers.
@@ -131,10 +135,6 @@ Do you have any [easy video ideas for other creators](https://tools.techidaily.c
 If you start your YouTube channel but have no video editing experience, Wondershare Filmora will definitely help you get over the problems. Download Filmora now!
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -159,16 +159,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-winning-the-subscriber-race-on-youtube/"><u>[New] 2024 Approved Winning the Subscriber Race on YouTube</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-step-by-step-guide-to-edges-pip-functionality-for-2024/"><u>[New] Step-by-Step Guide to Edge’s PIP Functionality for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-from-unknown-to-famous-boosting-video-views-on-youtube-step-by-step/"><u>[Updated] From Unknown to Famous Boosting Video Views on YouTube Step-by-Step</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-the-quickstep-into-viral-audio-youtubes-short-musical-journey/"><u>[Updated] In 2024, The Quickstep Into Viral Audio YouTube's Short Musical Journey</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-make-a-mark-with-your-first-cool-mac-video-post-on-youtube/"><u>2024 Approved Make a Mark with Your First Cool Mac Video Post on YouTube</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-navigating-youtube-music-eclecticism/"><u>2024 Approved Navigating YouTube Music Eclecticism</u></a></li>
-<li><a href="https://extra-information.techidaily.com/chromesafari-blank-screens-here-are-9-tips-to-restore-your-video/"><u>Chrome/Safari Blank Screens? Here Are 9 Tips to Restore Your Video</u></a></li>
-<li><a href="https://fox-info.techidaily.com/innovative-titles-to-lengthen-viewing-times-within-limit/"><u>Innovative Titles to Lengthen Viewing Times (Within Limit)</u></a></li>
-<li><a href="https://driver-error.techidaily.com/overcoming-computer-glitches-fix-your-final-usb-device-when-its-ignored-by-windows-systems/"><u>Overcoming Computer Glitches: Fix Your Final USB Device When It's Ignored By Windows Systems</u></a></li>
-<li><a href="https://extra-support.techidaily.com/savvy-photographers-guide-to-pristine-cloud-space-cost-free-and-paid-choices-for-2024/"><u>Savvy Photographers' Guide to Pristine Cloud Space Cost-Free & Paid Choices for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ited-visual-potential-free-themes-for-channels-for-2024/"><u>Unlimited Visual Potential – Free Themes for Channels for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-interactive-vs-passive-content-consumption-twitch-vs-youtube/"><u>[New] Interactive vs Passive Content Consumption Twitch Vs YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/avigating-youtubes-revenue-tools-for-mobile-creators-for-2024/"><u>[New] Navigating YouTube's Revenue Tools for Mobile Creators for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/he-essential-blueprint-to-compiling-youtube-soundscape-for-2024/"><u>[New] The Essential Blueprint to Compiling YouTube Soundscape for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-unraveling-best-practices-for-effective-fb-healthcare-promos/"><u>[New] Unraveling Best Practices for Effective FB Healthcare Promos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/outubes-video-editing-power-plus-professional-equivalents/"><u>[New] YouTube's Video Editing Power + Professional Equivalents</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-best-budget-friendly-video-stock-sites/"><u>[Updated] 2024 Approved Best Budget-Friendly Video Stock Sites</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-dive-into-screen-recording-expert-insights-on-top-obs-software/"><u>[Updated] Dive Into Screen Recording Expert Insights on Top OBS Software</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-8-best-apps-for-screen-mirroring-poco-m6-5g-pc-drfone-by-drfone-android/"><u>In 2024, 8 Best Apps for Screen Mirroring Poco M6 5G PC | Dr.fone</u></a></li>
+<li><a href="https://fox-that.techidaily.com/1721466516371-trouble-receiving-late-imessages-discover-9-effective-solutions/"><u>Trouble Receiving Late iMessages? Discover 9 Effective Solutions</u></a></li>
 </ul></div>
 

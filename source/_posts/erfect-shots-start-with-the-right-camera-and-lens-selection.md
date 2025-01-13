@@ -1,7 +1,7 @@
 ---
 title: "[New] Perfect Shots Start With The Right Camera & Lens Selection"
-date: 2025-01-01T19:38:49.626Z
-updated: 2025-01-05T22:46:03.360Z
+date: 2025-01-10T16:48:01.042Z
+updated: 2025-01-12T23:08:39.878Z
 tags:
   - ai video
   - ai youtube
@@ -46,7 +46,7 @@ In this article, I’m going to help you figure that out.
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Three Focal Length Groups: Wide, Standard, Telephoto
@@ -64,10 +64,6 @@ With standard lenses or normal lenses, you won’t get the stretched out objects
 #### Telephoto Lens
 
 Out of all the other ranges in focal lengths, telephoto lenses will appear the most zoomed in. This can be beneficial for the shooter who wants to get a closer shot of a scene without having to physically be in close proximity to the scene. Objects that are further away in the background also appear larger and closer than they would appear on wide-angle or standard lenses.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Vlogging With Each Focal Length Group
 
@@ -97,11 +93,11 @@ Focal lengths in camera lenses are measured in millimeters. You can vlog yoursel
 
  ![Crop Factor](https://images.wondershare.com/filmora/article-images/camera-lenses-crop-factor.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Focal Length Equivalency Table
 
@@ -118,13 +114,13 @@ This table shows you the focal lengths needed to achieve the same shot between c
 | Telephoto                   | 100mm      | 63mm  | 50mm      |
 | Telephoto                   | 200mm      | 125mm | 100mm     |
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Aperture
 
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
 
@@ -135,6 +131,10 @@ This table shows you the focal lengths needed to achieve the same shot between c
 Fast lenses are more expensive because they cost more to produce. There’s a lot more that goes into them, including larger and higher quality glass elements.
 
 But do you even need a fast lens?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Vlogging With a Fast Lens
 
@@ -151,7 +151,7 @@ But do you even need a fast lens?
 * Better continuous autofocus performance needed when shooting moving subjects with a large aperture
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Optical Image Stabilization
@@ -189,22 +189,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-superior-earners-on-social-media-platform/"><u>[New] 2024 Approved Superior Earners on Social Media Platform</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/aking-your-slides-come-alive-with-youtube-in-ppt/"><u>[New] Making Your Slides Come Alive with YouTube in PPT</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-iphone-hacks-seamless-video-repetition/"><u>[Updated] 2024 Approved IPhone Hacks Seamless Video Repetition</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-6-completely-different-places-to-get-youtube-icons-and-logos-for-2024/"><u>[Updated] 6 Completely Different Places to Get YouTube Icons and Logos for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-content-creation-conundrums-understanding-the-differences-between-igtv-and-youtube-for-2024/"><u>[Updated] Content Creation Conundrums Understanding the Differences Between IGTV and YouTube for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-photovideo-tips-manipulating-text-with-style-for-2024/"><u>[Updated] Photo/Video Tips Manipulating Text with Style for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-the-ultimate-guide-to-picture-text-enhancement/"><u>[Updated] The Ultimate Guide to Picture Text Enhancement</u></a></li>
-<li><a href="https://extra-information.techidaily.com/2024-approved-clear-up-cloud-calls-resolving-zoom-audio-glitches/"><u>2024 Approved Clear Up Cloud Calls Resolving Zoom Audio Glitches</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-retrace-steps-how-to-turn-your-yt-queue-on-its-head/"><u>2024 Approved Retrace Steps How to Turn Your YT Queue on Its Head</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-scripting-an-emotionally-charged-trailer-draft/"><u>2024 Approved Scripting an Emotionally Charged Trailer Draft</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-vloggers-guide-to-choosing-camera-essentials-the-top-9-accessories/"><u>2024 Approved Vloggers' Guide to Choosing Camera Essentials - The Top 9 Accessories</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ing-your-youtube-presence-key-tips-for-popularity-for-2024/"><u>Boosting Your YouTube Presence Key Tips for Popularity for 2024</u></a></li>
-<li><a href="https://win11.techidaily.com/how-to-fix-a-high-cpu-usage-when-gaming-on-windows/"><u>How to Fix a High CPU Usage When Gaming on Windows</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-music-on-honor-magic-v2-by-fonelab-android-recover-music/"><u>How to restore wiped music on Honor Magic V2</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-social-media-strategists-guide-top-10-ig-video-editing-apps/"><u>In 2024, Social Media Strategists' Guide Top 10 IG Video Editing Apps</u></a></li>
-<li><a href="https://win-net.techidaily.com/step-by-step-instructions-for-crafting-a-sony-vaio-system-repair-disc-with-windows-7/"><u>Step-by-Step Instructions for Crafting a Sony Vaio System Repair Disc with Windows 7</u></a></li>
-<li><a href="https://article-files.techidaily.com/tiktok-effect-overhaul-the-two-pronged-approach-for-2024/"><u>TikTok Effect Overhaul The Two-Pronged Approach for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-capturing-top-notch-audio-without-microphone-dependency-for-2024/"><u>[Updated] Capturing Top-Notch Audio Without Microphone Dependency for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-designing-youtube-ads-that-grab-attention-a-compreeher-guide-for-2024/"><u>[Updated] Designing Youtube Ads That Grab Attention A Compreeher Guide for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-rapidly-enhance-your-content-reach-with-simple-steps/"><u>[Updated] In 2024, Rapidly Enhance Your Content Reach with Simple Steps</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-mastering-text-design-with-ae-top-10-tips/"><u>[Updated] Mastering Text Design with AE Top 10 Tips</u></a></li>
+<li><a href="https://win11.techidaily.com/a-universal-companion-windows-now-app-for-iosmac-and-windows-devices/"><u>A Universal Companion: Windows Now App for iOS/Mac and Windows Devices</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/chatgpt-strategies-for-reducing-stress/"><u>ChatGPT Strategies for Reducing Stress</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/discover-asrocks-latest-breakthrough-dual-27-inch-1440p-ips-screens-with-built-in-wifi-antennas-on-desk-mounts/"><u>Discover ASRock's Latest Breakthrough: Dual 27-Inch 1440P IPS Screens with Built-In WiFi Antennas on Desk Mounts</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-itel-p55-5g-by-drfone-android/"><u>In 2024, AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Itel P55 5G</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-elevating-your-artistry-in-lyric-videos-through-lyric-video-maker-mastery/"><u>In 2024, Elevating Your Artistry in Lyric Videos Through Lyric Video Maker Mastery</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-youtube-earnings-per-thousand-views-explained/"><u>In 2024, YouTube Earnings Per Thousand Views Explained</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-achieving-sonic-clarity-overcoming-hiss-and-other-unwanted-noises-in-audio-tracks/"><u>New Achieving Sonic Clarity Overcoming Hiss and Other Unwanted Noises in Audio Tracks</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/5-leading-influencers-in-the-stock-market-realm-for-2024/"><u>The 15 Leading Influencers in the Stock Market Realm for 2024</u></a></li>
+<li><a href="https://win-lab.techidaily.com/1728466298657-windows-11/"><u>Windows 11: 問題解決！「このフォルダは空です」メッセージを消します方法</u></a></li>
 </ul></div>
 

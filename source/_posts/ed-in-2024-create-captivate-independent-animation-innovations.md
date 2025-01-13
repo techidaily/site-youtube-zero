@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Create, Captivate  Independent Animation Innovations\""
-date: 2025-01-05T01:49:40.203Z
-updated: 2025-01-06T06:56:05.723Z
+date: 2025-01-05T20:59:45.604Z
+updated: 2025-01-12T21:52:03.539Z
 tags:
   - ai video
   - ai youtube
@@ -52,7 +52,7 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Mt. Mograph](https://www.youtube.com/channel/UCSUSgx9qc%5FNydrOL59xbJIA)**
@@ -60,7 +60,7 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 On this YouTube channel, motion graphics specialist Matt offers free animation tutorials using a variety of programs including Adobe After Effects and Cinema 4D. His lessons are for a range of skill levels, from beginner to advanced. If you are just starting out then Mt.Mograph is a great resource.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Richard Harrington on Lynda](https://www.lynda.com/Rich-Harrington/120-1.html)**
@@ -70,7 +70,7 @@ Lynda isn’t free, but the 10-day free trial period is definitely long enough f
 What’s great about this course is that it assumes you have no animation experience, and it walks you through the main thing a lot of YouTubers want to learn animation for – creating an animated logo.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Bloop Animation](https://www.bloopanimation.com/)**
@@ -78,7 +78,7 @@ What’s great about this course is that it assumes you have no animation experi
  Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Video Copilot](http://www.videocopilot.net/)**
@@ -88,7 +88,7 @@ This site has a huge number of free After Effects tutorials. There are basic int
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -112,18 +112,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-techniques-for-efficiently-blending-flv-files/"><u>[New] 2024 Approved Techniques for Efficiently Blending FLV Files</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/oost-visibility-selecting-the-right-youtube-thumbnail-dimensions/"><u>[New] Boost Visibility Selecting the Right YouTube Thumbnail Dimensions</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/mpowering-learning-through-educational-videos-on-youtube/"><u>[New] Empowering Learning Through Educational Videos on YouTube</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-secrets-to-joining-friends-tiktok-live-events-for-2024/"><u>[Updated] Secrets to Joining Friends' TikTok Live Events for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-5-star-channel-cutting-long-urls-down-for-youtube-videos/"><u>2024 Approved 5-Star Channel Cutting Long URLs Down for YouTube Videos</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-imovie-tricks-for-perfecting-your-video-introduction-craft/"><u>2024 Approved IMovie Tricks for Perfecting Your Video Introduction Craft</u></a></li>
-<li><a href="https://win-cheats.techidaily.com/1728465519091-windows-11/"><u>最新のWindows 11セットアップ - ダウンロードからインストールまでガイド付き</u></a></li>
-<li><a href="https://win-dash.techidaily.com/efficient-printing-with-hp-color-laserjet-pro-m452dn-secure-driver-downloads-here/"><u>Efficient Printing with HP Color LaserJet Pro M452dn - Secure Driver Downloads Here!</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-tips-of-transferring-messages-from-xiaomi-redmi-note-12r-to-iphone-1415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Tips of Transferring Messages from Xiaomi Redmi Note 12R to iPhone 14/15 | Dr.fone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-unveiling-the-secrets-of-professional-free-youtube-transcription/"><u>In 2024, Unveiling the Secrets of Professional Free YouTube Transcription</u></a></li>
-<li><a href="https://review-topics.techidaily.com/issues-playing-h-265-hevc-video-on-galaxy-a14-4g-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>Issues playing H.265 HEVC video on Galaxy A14 4G</u></a></li>
-<li><a href="https://facebook.techidaily.com/privacy-rankings-which-is-safer-meta-or-fb-for-rift-2/"><u>Privacy Rankings: Which Is Safer, Meta or FB for Rift 2?</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/video-zoom-editor/"><u>Video Zoom Editor</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/onetize-youtube-videos-the-ultimate-guide-to-ad-revenue/"><u>[New] Monetize YouTube Videos | The Ultimate Guide to Ad Revenue</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-hire-harmony-a-collection-of-inspirational-clips/"><u>[Updated] 2024 Approved Hire Harmony A Collection of Inspirational Clips</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-the-breakdown-of-youtubes-shorts-initiative/"><u>[Updated] 2024 Approved The Breakdown of YouTube's Shorts Initiative</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-expedite-your-file-format-journey-from-srt-to-txt/"><u>[Updated] Expedite Your File Format Journey From SRT to TXT</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-ultimate-tutorial-downloading-and-extracting-audio-from-vids-on-social-platforms/"><u>[Updated] Ultimate Tutorial Downloading and Extracting Audio From Vids on Social Platforms</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-elevating-your-yt-content-with-the-top-thumbnail-hacks/"><u>2024 Approved Elevating Your YT Content with the Top Thumbnail Hacks</u></a></li>
+<li><a href="https://solve-lab.techidaily.com/access-denied-clearly-describing-the-users-problem-and-includes-the-brand-name-digiarty/"><u>Access Denied, Clearly Describing the User's Problem, and Includes the Brand Name Digiarty.</u></a></li>
+<li><a href="https://video-capture.techidaily.com/elevating-ppt-impact-through-high-quality-recordings/"><u>Elevating PPT Impact Through High-Quality Recordings</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/tial-templates-and-makers-insights-for-end-credits-for-2024/"><u>Essential Templates & Makers' Insights for End Credits for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/how-cookiebot-fuels-tailored-website-engagement-strategies/"><u>How Cookiebot Fuels Tailored Website Engagement Strategies</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-maximizing-engagement-in-your-tiktok-unpacking-sessions/"><u>In 2024, Maximizing Engagement in Your TikTok Unpacking Sessions</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-youtube-mastery-creating-quality-videos-on-phones/"><u>In 2024, YouTube Mastery Creating Quality Videos on Phones</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/live-streaming-mastery-with-manycam-advanced-virtual-webcam-solutions/"><u>Live Streaming Mastery with ManyCam: Advanced Virtual Webcam Solutions</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/watch-tracker-applications-for-2024/"><u>Live Watch Tracker Applications for 2024</u></a></li>
+<li><a href="https://discover-exclusive.techidaily.com/secure-your-winxdvd-purchase-with-a-hassle-free-full-refund-safeguard-offer/"><u>Secure Your WinXDVD Purchase with a Hassle-Free, Full-Refund Safeguard Offer!</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ifying-iphoneipad-screen-captures-for-online-sharing/"><u>Simplifying iPhone/iPad Screen Captures for Online Sharing</u></a></li>
+<li><a href="https://extra-information.techidaily.com/sky-high-creations-professional-tips-for-drone-video-mastery/"><u>Sky High Creations Professional Tips for Drone Video Mastery</u></a></li>
 </ul></div>
 

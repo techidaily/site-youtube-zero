@@ -1,7 +1,7 @@
 ---
 title: Quick Solutions When Your Laptop's Audio Output Fails
-date: 2025-01-01T05:50:06.426Z
-updated: 2025-01-06T00:57:04.835Z
+date: 2025-01-06T21:39:44.690Z
+updated: 2025-01-12T21:54:08.991Z
 tags:
   - win11
   - win10
@@ -25,7 +25,7 @@ thumbnail: https://thmb.techidaily.com/9b6869e231e2667ce5b62099e4b236daaa6b93b4b
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Try these fixes**
@@ -41,7 +41,7 @@ thumbnail: https://thmb.techidaily.com/9b6869e231e2667ce5b62099e4b236daaa6b93b4b
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **Fix 1: Run Windows audio playback troubleshooter**
@@ -55,10 +55,14 @@ thumbnail: https://thmb.techidaily.com/9b6869e231e2667ce5b62099e4b236daaa6b93b4b
 3. Follow the on-screen instructions to troubleshoot the audio playback issue.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  When it is completed, play a song on your HP laptop to see if you resolved the no sound issue. If not, try the next fix, below.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **Fix 2: Update your audio driver**
 
@@ -85,15 +89,7 @@ thumbnail: https://thmb.techidaily.com/9b6869e231e2667ce5b62099e4b236daaa6b93b4b
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/Snap908-2.png)  
  You can do it for free if you like, but it’s partly manual.  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  If you need assistance, please contact **Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/)**  .
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **Fix 3: Check your audio settings**
 
@@ -112,12 +108,16 @@ thumbnail: https://thmb.techidaily.com/9b6869e231e2667ce5b62099e4b236daaa6b93b4b
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/Snap442-1.jpg)
 5. Click**OK** to save the changes.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 6. On your desktop,   **right-click**  **the speaker icon**  on the lower-right corner, and then select**Open Volume Mixer**  .  
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/snap000233.png)
 7. If you see some application is muted, click**the speaker icon** under that application to unmute it.  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/snap000235-2.png)
@@ -129,10 +129,14 @@ thumbnail: https://thmb.techidaily.com/9b6869e231e2667ce5b62099e4b236daaa6b93b4b
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/snap000240.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Play a song on your HP laptop to see if the no sound issue is resolved. If not, try the next fix to restart Windows audio service.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **Fix 4: Restart Windows audio service**
 
@@ -147,10 +151,6 @@ thumbnail: https://thmb.techidaily.com/9b6869e231e2667ce5b62099e4b236daaa6b93b4b
 4. Navigate to the **Recovery**   tab. For **First failure** , select **Restart the Service** . Then click **OK**   to save the changes.  
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/Snap195-5.png)
 5. Locate the service **Windows Audio Endpoint Builder** . Follow step 3 and step 4 above to do the same thing for Windows Audio Endpoint Builder.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 6. Restart your PC.
 
@@ -186,20 +186,21 @@ thumbnail: https://thmb.techidaily.com/9b6869e231e2667ce5b62099e4b236daaa6b93b4b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-digital-dominance-highest-viewed-youtube-videos-today/"><u>[New] 2024 Approved Digital Dominance Highest Viewed YouTube Videos Today</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-from-script-to-screen-the-compreeved-guide-to-youtube-video-edits/"><u>[New] 2024 Approved From Script to Screen The Compreeved Guide to YouTube Video Edits</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-joining-google-meet-from-computerphone-for-2024/"><u>[New] Joining Google Meet From Computer/Phone for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/nveiling-your-signature-look-a-beginners-blueprint-for-2024/"><u>[New] Unveiling Your Signature Look A Beginner's Blueprint for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-content-creation-in-todays-revenue-landscape/"><u>[Updated] 2024 Approved Content Creation in Today’s Revenue Landscape</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/vate-viewers-designing-engaging-youtube-trailers-with-filmora-for-2024/"><u>Captivate Viewers Designing Engaging YouTube Trailers with Filmora for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/conquering-bsod-blues-steps-for-recovering-from-a-computer-bugcheck-and-prevent-future-issues/"><u>Conquering BSOD Blues: Steps for Recovering From a Computer Bugcheck and Prevent Future Issues</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-fix-unresponsive-phone-touchscreen-of-xiaomi-civi-3-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Unresponsive Phone Touchscreen Of Xiaomi Civi 3 | Dr.fone</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-iphone-7-plus-with-an-apple-watch-and-what-to-do-if-it-doesnt-work-by-drfone-ios/"><u>How to Unlock iPhone 7 Plus With an Apple Watch & What to Do if It Doesnt Work</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-beyond-basic-the-advanced-techniques-of-youtube-counts/"><u>In 2024, Beyond Basic The Advanced Techniques of YouTube Counts</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-comparing-the-best-in-class-for-4k-screen-reality/"><u>In 2024, Comparing the Best in Class for 4K Screen Reality</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-your-oppo-reno-10-5g-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Your Oppo Reno 10 5G Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-integrating-timestamps-youtube-video-link-enhancement-techniques/"><u>In 2024, Integrating Timestamps YouTube Video Link Enhancement Techniques</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-the-easy-way-to-remove-an-apple-id-from-your-macbook-for-your-apple-iphone-8-plus-by-drfone-ios/"><u>In 2024, The Easy Way to Remove an Apple ID from Your MacBook For your Apple iPhone 8 Plus</u></a></li>
-<li><a href="https://win-data.techidaily.com/troubleshooting-how-to-fix-a-printer-that-cant-read-your-papers-insights-from-yl-computing/"><u>Troubleshooting: How to Fix a Printer That Can't Read Your Papers - Insights From YL Computing</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/rom-boring-to-breathtaking-the-transformation-of-channel-titles/"><u>[New] From Boring to Breathtaking The Transformation of Channel Titles</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/rom-hundreds-to-millions-a-youtube-growth-journey/"><u>[New] From Hundreds to Millions A YouTube Growth Journey</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/echnique-to-implement-youtube-playlists-smoothly-into-web-pages/"><u>[New] Technique to Implement YouTube Playlists Smoothly Into Web Pages</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-building-a-powerhouse-business-channel-in-under-5-minutes/"><u>[Updated] 2024 Approved Building a Powerhouse Business Channel in Under 5 Minutes</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-no-more-youtube-the-best-5-alternative-editors-await/"><u>[Updated] In 2024, No More Youtube? The Best 5 Alternative Editors Await</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-ultimate-guide-to-easy-content-making-10-basic-youtube-videos/"><u>[Updated] The Ultimate Guide to Easy Content Making 10 Basic YouTube Videos</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-revolutionize-your-audio-pazera-free-extractor-insights/"><u>2024 Approved Revolutionize Your Audio Pazera Free Extractor Insights</u></a></li>
+<li><a href="https://techtrends.techidaily.com/comprehensive-guide-to-resolving-dll-file-missing-issues/"><u>Comprehensive Guide to Resolving .dll File Missing Issues</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/exploring-value-for-money-cpus-in-depth-tutorial-and-ranking-hardware-central/"><u>Exploring Value for Money CPUs : In-Depth Tutorial and Ranking - Hardware Central</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-deal-with-the-vivo-v30-lite-5g-screen-black-but-still-works-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Deal With the Vivo V30 Lite 5G Screen Black But Still Works? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-does-apple-iphone-xs-max-have-find-my-friends-drfone-by-drfone-virtual-ios/"><u>In 2024, Does Apple iPhone XS Max Have Find My Friends? | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/props-to-the-best-android-tools-for-playstation-2-experience-for-2024/"><u>Props to the Best Android Tools for PlayStation 2 Experience for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/the-real-cost-behind-ea-play-experience/"><u>The Real Cost Behind EA Play Experience</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ideo-creators-guide-to-igtv-and-youtube-finding-the-right-fit/"><u>The Video Creator’s Guide to IGTV & YouTube Finding the Right Fit</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/top-10-best-4k-dslr-shoulder-rigs/"><u>Top 10 Best 4K DSLR Shoulder Rigs</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ing-the-tape-youtube-video-rotation-techniques-unveiled-for-2024/"><u>Twisting the Tape YouTube Video Rotation Techniques Unveiled for 2024</u></a></li>
 </ul></div>
 

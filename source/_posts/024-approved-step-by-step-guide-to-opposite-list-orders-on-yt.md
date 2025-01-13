@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Step by Step Guide to Opposite List Orders on YT\""
-date: 2024-07-29T08:31:58.779Z
-updated: 2024-07-30T08:31:58.779Z
+date: 2025-01-10T17:34:09.728Z
+updated: 2025-01-12T21:38:58.087Z
 tags:
   - ai video
   - ai youtube
@@ -22,9 +22,6 @@ Surprisingly, there is no built-in way to do this on YouTube. However, four simp
 
 So, keep reading to learn how to reverse a YouTube playlist so you can watch the videos in the order you want!
 
-<!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Reverse a YouTube Playlist?
 
 Below we've provided four different solutions to help you reverse your YouTube playlist on your computer:
@@ -38,10 +35,11 @@ The ["Iridium for YouTube"](https://chrome.google.com/webstore/detail/iridium-fo
 Here's how to install the "Iridium for YouTube" extension on your Chrome browser to reverse the playlist:  
 Step 1: In the first step, launch a browser on your computer and click the three dots (ellipsis icon) in the top-right corner of the screen. Scroll down, select "More Tools," and click Extensions."
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ![access google web store](https://images.wondershare.com/filmora/article-images/accessing-google-web-store.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step 2:
 
@@ -51,16 +49,16 @@ Step 2:
 
 ![search irdium youtube extension](https://images.wondershare.com/filmora/article-images/searching-iridium-for-youtube-extension.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step 3:
 
 * Open the extension page.
 * Click"Add to Chrome."
 * Click the"Add Extension"option in the pop-up menu.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
-<!-- affiliate ads end -->
 ![add extension on youtube](https://images.wondershare.com/filmora/article-images/adding-iridium-for-youtube-to-chrome.png)
 
 Step 4:Open a new page, visit [YouTube](https://www.youtube.com/), and a pop-up window will appear. Select"Close"to terminate it, and clickthe"Menu"(hamburger) icon in the top left corner of the screen. Next, scroll down and open your savedPlaylistthat you want to reverse.
@@ -69,9 +67,6 @@ Step 4:Open a new page, visit [YouTube](https://www.youtube.com/), and a pop-up 
 
 Step 5: Click the "Play All" option in the details section of the playlist and click the Iridium button on the right side of the screen. This will open a new tab with different settings for your playlist. Go to the Video tab, and under the "Playlist" header, toggle the button next to "Enable reverse playlist control" to change the settings.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![set iridim for youtube](https://images.wondershare.com/filmora/article-images/setting-iridium-for-youtube-to-reverse-playlist.png)
 
 That's about it. You will now be able to watch a YouTube playlist in reverse order.
@@ -90,9 +85,6 @@ Step 2: In the next step, open a new tab and visit the ["Playlist.Tools"](https:
 
 Step 3: Finally, click the "Sort" icon and select descending order to reverse your playlist. You can always return to the original sequence by clicking the "Original Sequence" option in the top right corner of the screen.
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Changing the Ordering in Settings
 
 If you are a content creator on YouTube and want to reverse the videos' order in a playlist on your channel, do the following steps in sequence:
@@ -103,10 +95,11 @@ Step 2: Hover over the video, and you will see two horizontal lines next to it. 
 
 You can also utilize the "Sort" option to reverse the playlist. To do so, click "Sort" at the top of the playlist above the videos and select "Date Published (Oldest)" to change the order.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
-<!-- affiliate ads end -->
 ![reverse youtube playlist order](https://images.wondershare.com/filmora/article-images/sorting-the-playlist-order-to-reverse-it.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## A Bonus Tip for YouTube Creator: Make Your Own YouTube Channel Trailer
 
@@ -124,16 +117,21 @@ Step 2: In the next step, click your Profile at the top right of the screen and 
 
 Step 3: Scroll down on your channel's dashboard, select a video, and click the three dots next to it. Next, click "Add to Playlist" from the drop-down list and select the "Create a New Playlist" option to make a new one.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ![youtube playlist reverse order](https://images.wondershare.com/filmora/article-images/adding-playlist-to-private-playlist-to-reverse-order.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Next, provide a name, set the privacy settings to "Private," and click "Create."
 
 Step 4: In the final step, head to the Playlist tab, click "View Full Playlist" to open the new playlist, and click the "three dots" in the details area on the left. Next, select "Playlist Settings" and toggle the button next to "Add new videos to top of playlist" to enable it.
 
 You can now add more videos to your playlist, and each one will be added to the top. This method helps you arrange the YouTube playlist as you desire.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The Bottom Line
 
@@ -147,14 +145,11 @@ Surprisingly, there is no built-in way to do this on YouTube. However, four simp
 
 So, keep reading to learn how to reverse a YouTube playlist so you can watch the videos in the order you want!
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -163,4 +158,23 @@ So, keep reading to learn how to reverse a YouTube playlist so you can watch the
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-11-free-youtube-playlist-downloadersonlinepcandroidios/"><u>[New] 2024 Approved 11 FREE YouTube Playlist Downloaders[Online/PC/Android/iOS)</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-bulk-buy-subscribers-cost-effective-growth-strategy/"><u>[New] 2024 Approved Bulk Buy Subscribers Cost-Effective Growth Strategy</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-decoding-youtubes-user-comment-selection-criteria/"><u>[New] 2024 Approved Decoding YouTube's User-Comment Selection Criteria</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-making-money-with-media-mastery-of-merchandise-musings/"><u>[New] 2024 Approved Making Money with Media Mastery of Merchandise Musings</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-best-online-youtube-tag-extractors-for-2024/"><u>[New] 7 Best Online YouTube Tag Extractors for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-mastering-instagram-video-editing-tips-with-fcpx-for-2024/"><u>[New] Mastering Instagram Video Editing Tips with FCPX for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-melodic-memberships-leading-online-hubs-for-got-ringtone-purchases/"><u>[New] Melodic Memberships Leading Online Hubs for GoT Ringtone Purchases</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-pinnacle-mac-screen-plus-audio-transcription-system/"><u>[Updated] 2024 Approved Pinnacle Mac Screen + Audio Transcription System</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/dayzoned-crash-woes-heres-how-to-fix-them/"><u>DayZoned Crash Woes? Here's How to Fix Them</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/diy-picture-by-picture-tutorial-for-linking-laptop-and-television-seamlessly/"><u>DIY Picture-by-Picture Tutorial for Linking Laptop and Television Seamlessly</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-footsteps-in-youtube-landscape-setting-up-shop-and-earning-profitably-for-2024/"><u>First Footsteps in YouTube Landscape Setting Up Shop and Earning Profitably for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-lost-data-on-iphone-11-pro-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>How To Recover Lost Data on iPhone 11 Pro? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-send-and-fake-live-location-on-facebook-messenger-of-your-honor-x50-gt-drfone-by-drfone-virtual-android/"><u>How to Send and Fake Live Location on Facebook Messenger Of your Honor X50 GT | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-routines-to-rearrange-youtube-playlists-effectively-for-2024/"><u>Rapid Routines to Rearrange YouTube Playlists Effectively for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/ultimate-budget-headphones-to-enhance-game-sounds/"><u>Ultimate Budget Headphones to Enhance Game Sounds</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/yt-insider-tips-from-chroma-keying-to-cinematic-creations-for-2024/"><u>YT Insider Tips From Chroma Keying to Cinematic Creations for 2024</u></a></li>
+</ul></div>
 

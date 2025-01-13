@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Thumbnails That Captivate  A Professional's Guide to Visual Lures\""
-date: 2025-01-01T01:43:51.889Z
-updated: 2025-01-06T03:29:55.498Z
+date: 2025-01-09T17:49:25.238Z
+updated: 2025-01-12T22:31:09.913Z
 tags:
   - ai video
   - ai youtube
@@ -41,6 +41,10 @@ Viewers click on thumbnails that both standout and feel relevant to their search
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to Make a YouTube Thumbnail
 
 In order to create a custom video thumbnail, you’ll need a program to put it together in. You can use an image editing program like Photoshop if you have one, but if you don’t you can check out these [free thumbnail makers](#makers).
@@ -50,11 +54,11 @@ Here are some examples of popular thumbnail styles.
  ![Popular YouTube Thumbnail Layout](https://images.wondershare.com/filmora/article-images/popular-youtube-thumbnail-layout.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. The Classic Thumbnail (Photo or Screenshot)
@@ -92,7 +96,7 @@ The three main elements of the Emotional Laser thumbnail are a background (usual
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### #1. Ham It Up (Take Your Reaction Photo)
@@ -134,6 +138,10 @@ YouTube recommends that thumbnail images have a resolution of **1280x720px**, an
 
 Make sure that all of your thumbnails adhere to YouTube’s Community guidelines. Anything sexually suggestive, violent, or otherwise graphic could result in your video being age-restricted.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: YouTube Thumbnail Makers
 
 You don’t have to go out and buy a photo editor like Photoshop to make custom video thumbnails (although it’s a good thing to use if you already have it). Here are two free online programs you can use instead:
@@ -147,10 +155,6 @@ Generally, using Canva is as easy as dragging and dropping things where you want
 You can make changes to the colors in your Spark thumbnail easily by selecting a new color scheme or filter. You can even toggle through layouts easily. When you choose a new layout, Spark will rearrange all the pieces of your current thumbnail to align with the new layout so you can quickly see what it looks like instead of having to rebuild.
 
 Click to check more [YouTube thumbnail makers](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 4: How to Make Thumbnails That Get Clicks (Without Clickbait!)
 
@@ -190,10 +194,6 @@ Type your video’s title or topic into the search engine on YouTube and look at
 
 Generally, if most of the thumbnails have the same layout, you’ll want to mimic that layout. Where you can break from the crowd is in the colors, fonts, and graphics you use.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 5: Animated YouTube Thumbnails
 
 Whether or not you upload a custom thumbnail to YouTube, YouTube’s A.I will choose what it thinks are the 3 juiciest seconds of your video (you cannot choose for yourself) and play them as a GIF-like animation when people mouseover your video thumbnails.
@@ -231,17 +231,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-cutting-edge-notebooks-and-tools-to-elevate-your-editing-game/"><u>[New] 2024 Approved Cutting Edge Notebooks and Tools to Elevate Your Editing Game</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-quick-guide-to-youtube-trailer-making-with-filmora/"><u>[New] 2024 Approved Quick Guide to YouTube Trailer Making with Filmora</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ecoding-youtubes-earning-rules-update-for-2024/"><u>[New] Decoding YouTube's Earning Rules Update for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-panning-for-priceless-pieces-in-open-source-archives/"><u>[New] Panning for Priceless Pieces in Open-Source Archives</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/nveiling-the-art-of-designing-captivating-valorant-thumbnails-for-2024/"><u>[New] Unveiling the Art of Designing Captivating Valorant Thumbnails for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-quintessential-vr-cinematic-treasures/"><u>[Updated] Quintessential VR Cinematic Treasures</u></a></li>
-<li><a href="https://techidaily.com/how-to-reset-a-infinix-smart-8-phone-that-is-locked-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset a Infinix Smart 8 Phone That Is Locked | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-android-to-apple-how-to-transfer-photos-from-tecno-phantom-v-fold-to-ipad-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Android to Apple How To Transfer Photos From Tecno Phantom V Fold to iPad Easily | Dr.fone</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-sharing-tunes-instagram-copyright-edicts/"><u>In 2024, Sharing Tunes Instagram Copyright Edicts</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/1106036-9781781604458-los-cuerpos-sutiles-del-hombre/"><u>Los cuerpos sutiles del hombre | Free Book</u></a></li>
-<li><a href="https://fox-web3.techidaily.com/system-health-checks-made-simple-setting-the-standard-for-regular-maintenanc-with-yls-expertise-and-tools/"><u>System Health Checks Made Simple: Setting the Standard for Regular Maintenanc with YL's Expertise & Tools</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On Oppo Find X7 Ultra | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-digital-asset-management-implementing-watermarks-on-instagram/"><u>[New] 2024 Approved Digital Asset Management Implementing Watermarks on Instagram</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-deep-dive-into-the-top-9-youtube-downloader-apps-for-android-for-2024/"><u>[New] A Deep Dive Into the Top 9 YouTube Downloader Apps for Android for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-in-2024-peak-psd-gradient-innovations/"><u>[New] In 2024, Peak PSD Gradient Innovations</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/he-blueprint-for-viral-video-mastery/"><u>[New] The Blueprint for Viral Video Mastery</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-tune-treasure-hunt-finding-the-perfect-audio/"><u>[New] Tune Treasure Hunt Finding the Perfect Audio</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-closer-conversations-mastering-in-camera-precision/"><u>[Updated] 2024 Approved Closer Conversations Mastering In-Camera Precision</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-economical-options-best-11-vlogging-gear-for-2024/"><u>[Updated] Economical Options Best 11 Vlogging Gear for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-famebit-alternatives-for-finding-youtube-sponsorships/"><u>2024 Approved FameBit Alternatives for Finding YouTube Sponsorships</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-from-concept-to-classroom-a-guide-to-creating-engaging-edu-videos-on-youtube/"><u>2024 Approved From Concept to Classroom A Guide to Creating Engaging Edu-Videos on YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-secrets-of-filmo/"><u>2024 Approved Secrets of Filmo</u></a></li>
+<li><a href="https://fox-access.techidaily.com/beatbell-instructions-making-tamil-music-your-call-alerts-for-2024/"><u>BeatBell Instructions Making Tamil Music Your Call Alerts for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/tless-media-incorporation-youtube-to-slides-for-2024/"><u>Effortless Media Incorporation YouTube to Slides for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-prevent-cross-site-tracking-on-vivo-s18-pro-and-browser-drfone-by-drfone-virtual-android/"><u>In 2024, Prevent Cross-Site Tracking on Vivo S18 Pro and Browser | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-strategies-for-soaring-up-the-youtube-ranks-list/"><u>In 2024, Strategies for Soaring Up the YouTube Ranks List</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-ways-to-find-unlocking-codes-for-samsung-galaxy-m14-5g-phones-by-drfone-android/"><u>In 2024, Ways To Find Unlocking Codes For Samsung Galaxy M14 5G Phones</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/izing-video-how-much-does-a-single-streamer-earn/"><u>Monetizing Video How Much Does a Single Streamer Earn?</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/safeguard-your-sensitive-information-the-downsides-of-trusting-it-with-chatgpt/"><u>Safeguard Your Sensitive Information: The Downsides of Trusting It with ChatGPT</u></a></li>
 </ul></div>
 

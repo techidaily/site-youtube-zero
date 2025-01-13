@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Understanding Light Settings in YouTube Video Editing"
-date: 2025-01-01T06:01:00.604Z
-updated: 2025-01-05T18:01:56.501Z
+date: 2025-01-11T19:34:05.988Z
+updated: 2025-01-12T21:14:28.216Z
 tags:
   - ai video
   - ai youtube
@@ -40,13 +40,13 @@ Below, I’ll go into detail on how you can set up your lighting equipment to ma
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: Using Light You Already Have
 
 Most beginner YouTubers light their videos with what they already have. That’s what I did to start as well. In the past, my video recording space consisted of natural sunlight coming from my window and ceiling light for times when the sunlight wasn’t strong enough.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1.  Window Lighting
 
@@ -56,10 +56,14 @@ Window lighting for me was especially difficult to work with because I live in a
 
 ![  YouTube Video Lighting ](https://images.wondershare.com/filmora/article-images/window-lighting-comparison.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Above are two freeze frames from one of Daniel's past window-lit vlogs. Although these two frames are both from the same vlog, you can see that the image on the right looks brighter due to clearer skies at that moment. These varying amounts of light is what you will have to deal with if you choose to light your YouTube video with window lighting.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2. Home Lighting
@@ -69,7 +73,7 @@ Home lighting is another source of light that many new YouTubers use. In the pas
 ![Mixed Lighting](https://images.wondershare.com/filmora/article-images/home-lighting-for-youtube-videos.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Notice how the color of Daniel's skin looks much more orange here (above) than the color of the skin in the two side-by-side window lighting examples? The side of the face also appears to look bluer. This all happened because he mixed up different color temperatures shining out of the two lights (cooler window light and warmer ceiling light).
@@ -78,13 +82,13 @@ Most home lighting is warmer in its color temperature. If you want to use your h
 
 Ceiling lights are also typically situated in the center of a room in order to light an entire room evenly. This is not likely to be the best location for your filming video. Since the ceiling light was directly above the face in the above example, you can see harder shadows beneath his cheeks.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: Home Studio Lighting
 
 If you rather not deal with all the window and home lighting challenges, you can set up studio lighting in your home.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1. Light Control
 
@@ -118,10 +122,6 @@ For more information on lighting equipment, check out my [Top 17 Video Lighting 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -143,22 +143,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/he-easy-way-to-embed-youtube-into-google-slides/"><u>[New] The Easy Way to Embed YouTube Into Google Slides</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-essential-ios-video-editor-apps-top-10-best-to-know/"><u>[Updated] 2024 Approved Essential iOS Video Editor Apps Top 10 Best to Know</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-starting-off-determining-your-creative-passion/"><u>[Updated] 2024 Approved Starting Off Determining Your Creative Passion</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-unlocking-earnings-potential-with-youtube-adsense-payments-per-1k-viewer/"><u>[Updated] In 2024, Unlocking Earnings Potential with Youtube AdSense Payments Per 1K Viewer</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-video-editing-software-showdown-bandicam-vs-camtasia-for-2024/"><u>[Updated] Video Editing Software Showdown Bandicam vs Camtasia for 2024</u></a></li>
-<li><a href="https://location-fake.techidaily.com/5-hassle-free-solutions-to-fake-location-on-find-my-friends-of-samsung-galaxy-s24-drfone-by-drfone-virtual-android/"><u>5 Hassle-Free Solutions to Fake Location on Find My Friends Of Samsung Galaxy S24 | Dr.fone</u></a></li>
-<li><a href="https://fox-that.techidaily.com/correctly-identifying-individuals-a-step-by-step-guide-to-managing-mistakes-in-apple-photos/"><u>Correctly Identifying Individuals: A Step-by-Step Guide to Managing Mistakes in Apple Photos</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/vering-if-quick-youtube-subscriptions-really-work/"><u>Discovering if Quick YouTube Subscriptions Really Work</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-fix-the-unable-to-record-macro-error-in-excel-2000-by-stellar-guide/"><u>How to Fix the Unable to Record Macro Error in Excel 2000?</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/how-to-release-a-stuck-window-updates-on-legacy-oss-like-windows-seven-updated-tips-and-techniques-for-better-user-experience-in-the-year-2024-helpful-tips-148/"><u>How To Release A Stuck Window Updates On Legacy OSs Like WIndows Seven - Updated Tips And Techniques For Better User Experience In The Year 2024 (Helpful Tips & Guide)</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-optimal-solution-screen-capture-for-youtube-success/"><u>In 2024, Optimal Solution Screen Capture for YouTube Success</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-transform-your-copy-with-strategic-slug-line-usage/"><u>In 2024, Transform Your Copy with Strategic Slug Line Usage</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/cing-channel-trailer-synopses-a-guide-for-2024/"><u>Producing Channel Trailer Synopses A Guide for 2024</u></a></li>
-<li><a href="https://win-top.techidaily.com/quest-ce-qui-se-passe-avec-les-fichiers-recuperes-quand-on-vide-la-corbeille-sous-windows-11/"><u>Qu'est-Ce Qui Se Passe Avec Les Fichiers Recupérés Quand On Vide La Corbeille Sous Windows 11?</u></a></li>
-<li><a href="https://games-able.techidaily.com/tech-triumph-decision-choosing-your-ideal-display-out-of-oled-amoled-or-ips/"><u>Tech Triumph Decision: Choosing Your Ideal Display Out of OLED, AMOLED or IPS</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/oadmap-for-effective-education-videos-making-a-mark-on-youtube/"><u>The Roadmap for Effective Education Videos - Making a Mark on YouTube</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/0-historical-youtube-hubs-essential-viewing-for-students-and-enthusiasts/"><u>Top 10 Historical YouTube Hubs Essential Viewing For Students & Enthusiasts</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-navigating-fbs-automatic-video-sync-feature/"><u>[New] 2024 Approved Navigating FB's Automatic Video Sync Feature</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/amer-wealth-wave-the-year-ahead-for-2024/"><u>[New] Gamer Wealth Wave The Year Ahead for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-enhancing-your-creative-vision-iphones-new-camera-tools/"><u>[New] In 2024, Enhancing Your Creative Vision IPhone's New Camera Tools</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/aunchpad-gear-your-youtube-channels-first-steps/"><u>[New] Launchpad Gear Your YouTube Channel's First Steps</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nderstanding-youtubes-rating-mechanism-nuances/"><u>[New] Understanding YouTube's Rating Mechanism Nuances</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-worlds-richest-content-creator-on-youtube/"><u>[Updated] 2024 Approved World's Richest Content Creator on YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-free-image-savers-optimizing-video-graphics/"><u>[Updated] FREE Image Savers Optimizing Video Graphics</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-ice-warriors-battle-the-spectacular-winter-olympics-snowboard-showdown/"><u>[Updated] Ice Warriors Battle - The Spectacular Winter Olympics Snowboard Showdown</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-propel-views-up-top-hashtag-combinations-for-youtube-profit/"><u>[Updated] In 2024, Propel Views Up Top Hashtag Combinations for YouTube Profit</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-proven-methods-for-capturing-ipad-content/"><u>[Updated] Proven Methods for Capturing iPad Content</u></a></li>
+<li><a href="https://techtrends.techidaily.com/crack-the-code-effective-strategies-for-dealing-with-error-message-0x80004005/"><u>Crack the Code: Effective Strategies for Dealing with Error Message 0X80004005</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/decoding-playstation-4s-colorful-cues-understanding-why-controllers-flash-blue-white-red-and-orange/"><u>Decoding PlayStation 4'S Colorful Cues: Understanding Why Controllers Flash Blue, White, Red, and Orange</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/how-do-these-top-7-gpt-4-powered-applications-function/"><u>How Do These Top 7 GPT-4 Powered Applications Function?</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-vivo-x100-location-by-number-drfone-by-drfone-virtual-android/"><u>How to Track Vivo X100 Location by Number | Dr.fone</u></a></li>
+<li><a href="https://program-issues.techidaily.com/resolved-fixes-for-obs-streaming-and-recording-latency-problems/"><u>Resolved: Fixes for OBS Streaming and Recording Latency Problems</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ng-stories-that-resonate-with-a-digital-audience-yt-for-2024/"><u>Sharing Stories that Resonate with a Digital Audience YT. For 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/egies-for-designing-youtube-video-flow-for-2024/"><u>Strategies for Designing YouTube Video Flow for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/hing-spotify-playlists-transferring-to-youtube-music-format-for-2024/"><u>Switching Spotify Playlists Transferring to YouTube Music Format for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/the-definitive-guide-fixing-missing-haldll-troubles-on-windows-xp-pcs/"><u>The Definitive Guide: Fixing 'Missing Hal.dll' Troubles on Windows XP PCs</u></a></li>
 </ul></div>
 

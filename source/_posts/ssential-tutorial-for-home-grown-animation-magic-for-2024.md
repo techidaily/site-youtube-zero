@@ -1,7 +1,7 @@
 ---
 title: "\"The Essential Tutorial for Home-Grown Animation Magic for 2024\""
-date: 2024-12-29T16:11:29.970Z
-updated: 2025-01-06T05:49:32.656Z
+date: 2025-01-08T22:43:15.432Z
+updated: 2025-01-12T22:35:08.438Z
 tags:
   - ai video
   - ai youtube
@@ -52,7 +52,7 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Mt. Mograph](https://www.youtube.com/channel/UCSUSgx9qc%5FNydrOL59xbJIA)**
@@ -60,7 +60,7 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 On this YouTube channel, motion graphics specialist Matt offers free animation tutorials using a variety of programs including Adobe After Effects and Cinema 4D. His lessons are for a range of skill levels, from beginner to advanced. If you are just starting out then Mt.Mograph is a great resource.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Richard Harrington on Lynda](https://www.lynda.com/Rich-Harrington/120-1.html)**
@@ -70,7 +70,7 @@ Lynda isn’t free, but the 10-day free trial period is definitely long enough f
 What’s great about this course is that it assumes you have no animation experience, and it walks you through the main thing a lot of YouTubers want to learn animation for – creating an animated logo.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Bloop Animation](https://www.bloopanimation.com/)**
@@ -78,7 +78,7 @@ What’s great about this course is that it assumes you have no animation experi
  Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Video Copilot](http://www.videocopilot.net/)**
@@ -88,7 +88,7 @@ This site has a huge number of free After Effects tutorials. There are basic int
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -112,18 +112,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-top-10-online-video-tools-perfecting-webcam-footage/"><u>[New] 2024 Approved Top 10 Online Video Tools Perfecting Webcam Footage</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/xploring-youtubes-latest-revenue-guidelines-for-2024/"><u>[New] Exploring YouTube's Latest Revenue Guidelines for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/n-2024-how-many-viewer-thumbs-up-equals-money-youtube-tips/"><u>[New] In 2024, How Many Viewer Thumbs Up Equals Money? YouTube Tips</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-bridging-the-gap-transitioning-youtube-to-televisions-smoothly/"><u>[Updated] 2024 Approved Bridging the Gap Transitioning YouTube to Televisions Smoothly</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-elite-screening-pacts-how-to-choose-a-cms/"><u>[Updated] 2024 Approved Elite Screening Pacts How to Choose a CMS</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-youtube-sub4sub-does-it-really-work/"><u>[Updated] 2024 Approved YouTube Sub4Sub Does It Really Work?</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-boost-your-videos-impact-with-top-ranking-software-solutions/"><u>[Updated] Boost Your Videos' Impact with Top-Ranking Software Solutions</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-perfect-your-playback-implementing-a-countdown-in-obs/"><u>[Updated] Perfect Your Playback Implementing a Countdown in OBS</u></a></li>
-<li><a href="https://howto.techidaily.com/android-safe-mode-how-to-turn-off-safe-mode-on-xiaomi-14-ultra-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Safe Mode - How to Turn off Safe Mode on Xiaomi 14 Ultra? | Dr.fone</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/essential-audio-interface-guide-for-podcasters-for-2024/"><u>Essential Audio Interface Guide for Podcasters for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-revolutionizing-education-through-vr/"><u>In 2024, Revolutionizing Education Through VR</u></a></li>
-<li><a href="https://win-answers.techidaily.com/team-fortress-2-launch-problems-resolved-and-ready-for-action/"><u>Team Fortress 2 Launch Problems – Resolved and Ready for Action</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ltimate-checklist-of-essential-equipment/"><u>The Ultimate Checklist of Essential Equipment</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-apex-design-suite-assessment/"><u>[New] 2024 Approved Apex Design Suite Assessment</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/astering-youtube-live-thumbnails-essentials/"><u>[New] Mastering YouTube Live Thumbnails Essentials</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-streamlining-your-screen-share-experience-with-meet/"><u>[New] Streamlining Your Screen Share Experience with Meet</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-youtubes-journey-seamlessly-converted-into-high-quality-avis/"><u>[Updated] YouTube's Journey Seamlessly Converted Into High-Quality AVIs</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/cost-vs-capabilities-nikon-sb-700-revealed/"><u>Cost vs Capabilities: Nikon SB-700 Revealed</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1722975622535-download-logitech-drivers-fast-compatible-with-windows-systems/"><u>Download Logitech Drivers Fast: Compatible with Windows Systems!</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/dynamic-lighting-feature-added-to-logitech-accessories-on-windows-11/"><u>Dynamic Lighting Feature Added to Logitech Accessories on Windows 11</u></a></li>
+<li><a href="https://win-able.techidaily.com/fixing-hyper-scape-pc-crashes-step-by-step-troubleshooting-guide/"><u>Fixing Hyper Scape PC Crashes: Step-by-Step Troubleshooting Guide</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-international-ranks-youtube-stars-with-the-most-loyal-viewers/"><u>In 2024, International Ranks YouTube Stars With the Most Loyal Viewers</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-premiere-sneak-peeks-cinema-edition/"><u>In 2024, Premiere Sneak Peeks - Cinema Edition</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ize-online-revenue-monetizing-on-youtube-with-500plus-viewers-for-2024/"><u>Maximize Online Revenue Monetizing on Youtube with 500+ Viewers for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/sion-playback-aligning-video-views-in-real-time-for-2024/"><u>Precision Playback Aligning Video Views in Real-Time for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/whats-new-with-the-tesla-robotaxi-projections-on-cost-rollout-dates-and-specs-explored/"><u>What's New with the Tesla Robotaxi? Projections on Cost, Rollout Dates & Specs Explored</u></a></li>
 </ul></div>
 

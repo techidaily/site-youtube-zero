@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Unleash Creativity in YouTube Short Video Production\""
-date: 2024-07-29T08:30:29.449Z
-updated: 2024-07-30T08:30:29.449Z
+date: 2025-01-11T16:51:17.132Z
+updated: 2025-01-12T17:27:41.325Z
 tags:
   - ai video
   - ai youtube
@@ -34,16 +34,10 @@ That said, in the following sections you will learn everything about the **YouTu
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **Part 1: What Is YouTube Shorts?**
 
 A short and quick answer to the question is, **YouTube Shorts** is a Tik Tok competitor developed by Google and can be accessed via the YouTube app on an Android or iOS device. In order to use the **YouTube Shorts app**, all you need to do is, sign in to your YouTube account on the YouTube app, and you are good to go.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### 1\. YouTube Shorts Release History
 
 At the time of this writing, **YouTube Shorts** is still in the Beta phase, and there is a lot more that the developers at Google have yet to explore and discover. However, for now, the fully functional variant of the program is available only for users in India on Android and iOS platforms.
@@ -63,6 +57,10 @@ The type of contents that the viewers expect to see as YouTube Shorts could incl
 
 In addition to the above, a few other categories could be People and Places, Music, Domestic and Wild Animals, Education, etc.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3\. YouTube Shorts Content Requirements
 
 While creating **YouTube Shorts**, there are certain guidelines that must be followed. These points include:
@@ -81,15 +79,16 @@ Certain things that you must keep in mind while creating **YouTube Shorts** incl
 
 As mentioned earlier, **YouTube Shorts** can be accessed by launching the YouTube app on your Android or iOS device. You can use **YouTube Shorts** by clicking the **+** (**Add**) icon present at the bottom. Once the **YouTube Shorts app** is initialized, you can easily create and publish short videos by following the simple on-screen instructions.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Part 2: How to Make and Upload a YouTube Shorts Video with Shorts App?**
 
 You can follow the instructions given below to make and [upload a YouTube Shorts](https://tools.techidaily.com/wondershare/filmora/download/) video using the **YouTube Shorts app**:
 
 **Step 1: Record a Video with YouTube Shorts**
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
-<!-- affiliate ads end -->
 ![ Record YouTube Shorts video](https://images.wondershare.com/filmora/article-images/record-create-youtube-short-video-mobile.jpg)
 
 Launch the YouTube app on your Android or iOS smart device (Samsung Galaxy Note 10+ is used here for demonstration), make sure that you are signed in to your Google account, tap the **+** (**Add**) button present at the bottom of the screen, tap **Create a Short** on the popup box that appears next, tap the **Record** button on the next window to start the recording. Once you are done, tap the **Stop** button to stop the recording.
@@ -98,10 +97,11 @@ Launch the YouTube app on your Android or iOS smart device (Samsung Galaxy Note 
 
 Tap **Music** from the bottom of the screen to add background music to the video. The music that you can use in your short videos must be either created by you, or you should have permission to use them. However, the audio files that the Music library contains is made available by Google, is royalty-free, and can be used throughout the platform.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1611407/17882" target="_top" id="1611407"><img src="//a.impactradius-go.com/display-ad/17882-1611407" border="0" alt="" width="300" height="485"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1611407/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ Edit YouTube Shorts video - Add text and music](https://images.wondershare.com/filmora/article-images/edit-youtube-short-video.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Likewise, you can tap **Text** to add captions as well. As for the text type, the app offers various formatting options such as alignment (left, center, and right), text highlighter, font changer, and even color selector. Further, the Speed and Timer icons at the top-right area allow you to manage the playback speed anywhere between 0.3x to 3x, and automatically stop the recording after the set time limit respectively. Once everything is set up, tap **NEXT** from the top-right corner to proceed to the next step.
 
@@ -111,18 +111,16 @@ On the **Add details** window, tap **Select audience**, and on the **Select audi
 
 ![ Upload YouTube Shorts video - add details ](https://images.wondershare.com/filmora/article-images/add-details-youtube-shorts-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 4: Add Details and Upload the Video**
 
 Enter a title for the video in the **Title** field. Make sure to include **#shorts** to help YouTube understand that you are preparing a **YouTube Shorts** video. Next, tap **UPLOAD** from the upper-right corner of the screen to submit the video for review. Once YouTube reviews the recording and finds it appropriate, it will be published on the portal, and will be visible throughout and even under the **Shorts** category of the main page.
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ Upload YouTube Shorts video ](https://images.wondershare.com/filmora/article-images/upload-youtube-shorts-video.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Part 3: How to Create a Vertical YouTube Shorts Video in Filmora?**
 
 The **YouTube Shorts app** is pretty convenient to access and use alright. However, it doesn’t allow you to fine edit the videos. The app doesn’t even have many filtering options such as Effects, Elements, etc. to make your videos more engaging.
@@ -135,9 +133,6 @@ When talking about Wondershare Filmora, it is a production and post-production a
 
 For Win 7 or later (64-bit)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
 
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -145,6 +140,10 @@ For Win 7 or later (64-bit)
 For macOS 10.12 or later
 
 ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The following step-by-step guide teaches you how to use Wondershare Filmora to create a vertical **YouTube Shorts** video:
 
@@ -154,9 +153,6 @@ The following step-by-step guide teaches you how to use Wondershare Filmora to c
 
 Launch Wondershare Filmora on your Windows or Mac PC (a Windows 10 computer is used here for demonstration), go to **File** \> **New Project**, and click **9:16 (Portrait)**. Click anywhere inside the **Media** box, and select and import the source vertical video from your PC to Filmora.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ Upload YouTube Shorts video ](https://images.wondershare.com/filmora/article-images/upload-youtube-shorts-video.jpg)
 
 Next, hover the mouse over the clip in the **Media** box, click the **+** button that appears at the bottom-right corner of the thumbnail, and in the resolution confirmation box that comes up next, click the button under the **Match to Media** section to add the video in the correct orientation to the Timeline at the bottom.
@@ -165,10 +161,11 @@ Next, hover the mouse over the clip in the **Media** box, click the **+** button
 
 Select the clip in the Timeline, and use the **Split**, **Crop**, **Speed**, etc. buttons above the Timeline itself to remove the unwanted portions from the clip, manage its playback speed, and do other fine-tuning tasks.
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ Edit YouTube Shorts video in Filmora - split/crop/change speed ](https://images.wondershare.com/filmora/article-images/split-crop-youtube-shorts-video.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You can even click the **Edit** button, and use the available editing features like **Motion Tracking** and **Stabilization** to add text or objects to a moving body in the video and stabilize the clip if the camera shook during the recording session respectively. Click **OK** to save the changes when done.
 
@@ -178,9 +175,6 @@ You can even click the **Edit** button, and use the available editing features l
 
 **Step 3: Beautify the Video**
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Add Title to YouTube Shorts video with Filmora](https://images.wondershare.com/filmora/article-images/youtube-shorts-video-add-title.jpg)
 
 Click **Titles** from the standard toolbox at the top, choose your preferred text category from the list in the left, hover the mouse over a decent preset in the right window, and click the **+** button at the bottom-right corner of the thumbnail to add the preset on top of the media track in the Timeline. Next, you can double-click the preset track in the Timeline to modify the text and make granular modifications to it as needed. Click **OK** to save the changes.
@@ -189,15 +183,16 @@ Similarly, you can select the **Effects** and **Elements** tools to add effects 
 
 ![Add effects to YouTube Shorts video with Filmora](https://images.wondershare.com/filmora/article-images/youtube-shorts-video-add-effects.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 After this, optionally, you can go to **Split Screen** from the standard toolbar at the top, and use your preferred Split Screen preset to club multiple video clips into one screen. In Filmora, you can add as many as 6 screens in a video.
 
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
 For Win 7 or later (64-bit)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
 
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -211,6 +206,10 @@ For macOS 10.12 or later
 Once everything is set up, click **EXPORT** from the top of the window, go to the **Local** tab on the **Export** window, select **MP4** from the formats list in the left, give a name and configure other settings from the available options in the right, and click **EXPORT** from the bottom-right corner to create a **YouTube Shorts** video. Once the clip is generated, you can upload the video to YouTube using **#Shorts** in the title or description to publish the video under the **YouTube Shorts** section.
 
 ![ Edit YouTube Shorts video in Filmora- export ](https://images.wondershare.com/filmora/article-images/export-youtube-shorts-video-in-filmora.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### FAQs About YouTube Shorts
 
@@ -246,14 +245,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -262,4 +258,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-webs-winners-circle-worlds-most-subscribed-youtubers/"><u>[New] 2024 Approved Web's Winners Circle World's Most Subscribed YouTubers</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-the-ultimate-selection-of-6-pioneering-instagram-reel-apps/"><u>[New] The Ultimate Selection of 6 Pioneering Instagram Reel Apps</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-simplified-methods-to-validate-your-youtube-status/"><u>[Updated] In 2024, Simplified Methods to Validate Your YouTube Status</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/can-t-play-mov-files-on-samsung-galaxy-s23-ultra-by-aiseesoft-video-converter-play-mov-on-android/"><u>Can't play .mov files on Samsung Galaxy S23 Ultra</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-a-step-by-step-approach-to-mastering-free-youtube-video-transcription/"><u>In 2024, A Step-by-Step Approach to Mastering Free YouTube Video Transcription</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-ace-your-youtube-livestreams-mastering-broadcast-techniques-using-wirecast/"><u>In 2024, Ace Your Youtube Livestreams Mastering Broadcast Techniques Using WireCast</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-breaking-barriers-worlds-best-and-largest-shorts-downloaders/"><u>In 2024, Breaking Barriers World’s Best & Largest Shorts Downloaders</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-dive-into-digital-green-magic-top-4-youtube-sources-for-no-cost-background-workshops/"><u>In 2024, Dive Into Digital Green Magic Top 4 YouTube Sources for No-Cost Background Workshops</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/protective-phone-cases-with-screen-shields-for-2024/"><u>Protective Phone Cases with Screen Shields for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/0plus-free-video-intro-makers-for-youtubers-for-2024/"><u>Top 10+ Free Video Intro Makers for Youtubers for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/top-voice-altering-tool-for-free-enhance-your-valorant-experience-for-2024/"><u>Top Voice Altering Tool for Free - Enhance Your Valorant Experience for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/ultimate-fixes-to-combat-freezing-and-increase-frames-per-second-in-fortnites-battle-royale-mode-warzone-edition/"><u>Ultimate Fixes to Combat Freezing and Increase Frames Per Second in Fortnite's Battle Royale Mode - Warzone Edition</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-poco-c50-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Poco C50 | Dr.fone</u></a></li>
+<li><a href="https://win-able.techidaily.com/ultimate-guide-to-resolving-assassins-creed-odyssey-freezes-in-pc-gaming-fixes-and-workarounds/"><u>Ultimate Guide to Resolving Assassin's Creed Odyssey Freezes in PC Gaming - Fixes & Workarounds</u></a></li>
+</ul></div>
 

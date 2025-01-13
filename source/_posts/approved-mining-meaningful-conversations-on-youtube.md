@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Mining Meaningful Conversations on YouTube\""
-date: 2025-01-04T17:43:58.750Z
-updated: 2025-01-05T20:33:06.188Z
+date: 2025-01-10T20:57:40.433Z
+updated: 2025-01-12T16:05:30.123Z
 tags:
   - ai video
   - ai youtube
@@ -64,6 +64,10 @@ Besides the comment search feature, the YouTube Studio also has some in-built se
 
 ![  YouTube Studio comment filter](https://images.wondershare.com/filmora/article-images/youtube-studio-comment-filter-search.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You can combine these additional filters to narrow your comments search for YouTube.
 
 ## Part 2: Using YCS – YouTube Comment Search Extension
@@ -79,7 +83,11 @@ You can use the YouTube Comment Search browser extension supported by Google Chr
 ![ YouTube Comment Search Extension](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: Using Comments Search for YouTube Extension
@@ -108,19 +116,11 @@ This mode allows you to enter special commands to carry out an advanced search. 
 2. ‘:all’ to see all comments
 3. ‘:creator’ to get comments made by the creator
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 4: How Do You Search Comments You Have Posted on YouTube?
 
 Did you post a comment on your favorite celebrity’s video? Do you think it may be embarrassing and want to delete it now but cannot find it now amidst so many comments? It is where you can make use of YouTube’s Comment History feature.
 
 YouTube has now added this feature which you can see all the comments you ever posted on YouTube in one place.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### How to Use the Comment History feature to Search Comments?
 
@@ -135,7 +135,7 @@ You can see all the comments you have posted in the Comment History in a few qui
 You can also access the Comments History page directly from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 5: How to Find Out Who Posts the Most Comments on Your YouTube Videos?
@@ -162,7 +162,7 @@ Find feedback or questions. Report offensive comments. If you are a regular YouT
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -186,16 +186,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-seo-101-skyrocket-your-youtube-traffic/"><u>[New] 2024 Approved SEO 101 Skyrocket Your YouTube Traffic</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-in-depth-review-the-full-picture-of-facetunes-new-features/"><u>[New] In-Depth Review The Full Picture of Facetune's New Features</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-the-essential-blueprint-for-configuring-a-zoom-space/"><u>[New] The Essential Blueprint for Configuring a Zoom Space</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/oom-in-or-out-tailoring-your-youtube-viewing-pace/"><u>[New] Zoom in or Out? Tailoring Your YouTube Viewing Pace</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-from-raw-footage-to-final-cut-chroma-mastery/"><u>[Updated] In 2024, From Raw Footage to Final Cut Chroma Mastery</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-in-2024-unlocking-efficiency-the-top-5-video-shortener-tools/"><u>[Updated] In 2024, Unlocking Efficiency The Top 5 Video Shortener Tools</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-mastering-the-art-of-farewell-in-the-instagram-world/"><u>[Updated] Mastering the Art of Farewell in the Instagram World</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/tial-football-info-youtube-trend-infographics/"><u>Essential Football Info YouTube Trend Infographics</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-6-ways-to-transfer-contacts-from-nokia-105-classic-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 6 Ways To Transfer Contacts From Nokia 105 Classic to iPhone | Dr.fone</u></a></li>
-<li><a href="https://some-tips.techidaily.com/shop-the-best-ring-indoor-security-camera-at-just-30-dont-miss-out-on-amazon-prime-day-specials-tips-from-zdnet/"><u>Shop the Best Ring Indoor Security Camera at Just $30 – Don't Miss Out on Amazon Prime Day Specials! | Tips From ZDNET</u></a></li>
-<li><a href="https://win11.techidaily.com/step-by-step-to-rectify-windows-defenders-error-0x80004004/"><u>Step-by-Step to Rectify Windows Defender’s Error 0X80004004</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-audio-to-video-bridge-easy-3-step-guide-for-mp3-to-youtube-uploads/"><u>[New] In 2024, Audio-to-Video Bridge Easy 3-Step Guide for MP3 to YouTube Uploads</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/op-youtube-fonts-for-striking-shareable-thumbnails/"><u>[New] Top YouTube Fonts for Striking, Shareable Thumbnails</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-tutorial-posting-restricted-youtube-to-gmail-accounts/"><u>[New] Tutorial Posting Restricted YouTube to Gmail Accounts</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-miniature-melodic-maps-actors-in-audio-landscape/"><u>[Updated] 2024 Approved Miniature Melodic Maps Actors in Audio Landscape</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-cost-effective-obs-setup-tips-for-2024/"><u>[Updated] Cost-Effective OBS Setup Tips for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-cutting-edge-tips-for-professional-youtube-content-creation-for-2024/"><u>[Updated] Cutting-Edge Tips for Professional YouTube Content Creation for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-dialing-in-on-youtube-success-identifying-ranks-boosters-for-2024/"><u>[Updated] Dialing in on YouTube Success Identifying Ranks Boosters for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-exploring-the-mechanisms-of-noteworthy-youtube-discussions/"><u>[Updated] Exploring the Mechanisms of Noteworthy YouTube Discussions</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/e-written-guide-on-incorporating-markup-features-in-youtube/"><u>Compre Written Guide on Incorporating Markup Features in YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ng-edge-method-quick-erasure-of-youtube-comments/"><u>Cutting-Edge Method Quick Erasure of Youtube Comments</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-revive-your-bricked-oppo-f25-pro-5g-in-minutes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Revive Your Bricked Oppo F25 Pro 5G in Minutes | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-imei-unlokers-for-your-nubia-phone-by-drfone-android/"><u>In 2024, Top IMEI Unlokers for Your Nubia Phone</u></a></li>
+<li><a href="https://discover-forum.techidaily.com/mastering-the-basics-of-crypto-trading-a-beginners-guide-yl-computing/"><u>Mastering the Basics of Crypto Trading: A Beginner's Guide - YL Computing</u></a></li>
+<li><a href="https://common-error.techidaily.com/optimizing-fortnite-performance-with-non-supported-pc-graphics-drivers/"><u>Optimizing Fortnite Performance with Non-Supported PC Graphics Drivers</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/resolving-the-dll-not-found-and-missing-dll-issues-a-step-by-step-guide/"><u>Resolving the 'DLL Not Found' And 'Missing DLL' Issues: A Step-by-Step Guide</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/smart-traveling-locating-convenient-gas-stops-with-google-maps-directions-feature/"><u>Smart Traveling: Locating Convenient Gas Stops with Google Map's Directions Feature</u></a></li>
+<li><a href="https://extra-information.techidaily.com/ultimate-list-of-mac-friendly-video-to-mp4-codecs/"><u>Ultimate List of Mac-Friendly Video to MP4 Codecs</u></a></li>
 </ul></div>
 

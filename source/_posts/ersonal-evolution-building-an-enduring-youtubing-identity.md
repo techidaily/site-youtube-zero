@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Personal Evolution  Building an Enduring YouTubing Identity\""
-date: 2024-12-30T21:39:00.283Z
-updated: 2025-01-06T02:24:35.952Z
+date: 2025-01-11T17:51:25.902Z
+updated: 2025-01-12T17:01:00.937Z
 tags:
   - ai video
   - ai youtube
@@ -41,7 +41,7 @@ YouTube is oversaturated. If you do comedy, fashion, gaming, vlogging, or any ot
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Bonus Tip-Make A Creative YouTube Video with Wondershare Filmora
@@ -51,12 +51,20 @@ No Doubt, Filmora is the one of the best tools for newbie editors, vloggers and 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Your Brand is Your Unique Message
 
 Competing on YouTube is all about offering value. Viewers should be able to find something on your channel that they can’t find anywhere else. This doesn’t mean you need to bend over backwards trying to[invent brand new video ideas that nobody has ever tried before](https://www.filmora.io/community-blog/how-to-be-original-on-youtube-289.html) – it just means you need to focus on building your unique brand. That is what will make viewers subscribe to you instead of just watching one of your videos and then clicking away.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The Elevator Pitch
 
@@ -75,7 +83,7 @@ You need to be able to do that when you talk about your channel.
 Work on developing an elevator pitch for your channel. It will help you define your brand for yourself, and it’ll be useful if you make a channel trailer.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Start Building Your Brand
@@ -87,10 +95,6 @@ Building a brand should be intentional. You need to be yourself, but it’s not 
 You will notice patterns. There will be things you do in your video that people consistently like more and less. The way you build your brand is by cutting out the stuff that isn’t working and focusing more intentionally on the stuff that is. If people like it when you do meme humor, for example, do more meme humor and make incorporating that in your videos part of your brand.
 
 Banners and thumbnails are also a part of your brand. [More on that here](https://www.filmora.io/community-blog/how-to-make-youtube-banners-and-thumbnails-316.html).
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Being Consistent
 
@@ -111,10 +115,6 @@ The answers to these questions make up your brand. They may change gradually ove
 When you intentionally create your personal brand on YouTube, you take charge of the message you're sending.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -137,20 +137,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-stories-in-simplicity/"><u>[New] Stories in Simplicity</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/treamline-your-content-with-essential-ratio-knowledge-for-youtube/"><u>[New] Streamline Your Content with Essential Ratio Knowledge for YouTube</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-affordable-pc-video-recording-tools/"><u>[Updated] 2024 Approved Affordable PC Video Recording Tools</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-selecting-gear-for-youtube-a-filmmakers-essentials/"><u>[Updated] 2024 Approved Selecting Gear for YouTube A Filmmaker's Essentials</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-channel-growth-strategy-going-with-studio-or-beta-progression/"><u>[Updated] Channel Growth Strategy Going with Studio or Beta Progression</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-becoming-a-billionaire-on-the-blockchain-non-ad-profits-on-youtube/"><u>[Updated] In 2024, Becoming a Billionaire on the Blockchain Non-Ad Profits on YouTube</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-understanding-youtubes-earnings-structure/"><u>[Updated] In 2024, Understanding YouTube's Earnings Structure</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-timing-and-frequency-what-is-the-best-day-to-release-a-podcast-in-2024/"><u>[Updated] Timing & Frequency What Is the Best Day to Release a Podcast, In 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-from-creation-to-calculation-your-guide-to-a-3-step-strategy-for-youtube-revenue-insight/"><u>2024 Approved From Creation to Calculation Your Guide to a 3-Step Strategy for YouTube Revenue Insight</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/elevate-expression-explore-5-innovative-ai-text-engines/"><u>Elevate Expression: Explore 5 Innovative AI Text Engines</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/face-off-between-googles-bard-and-microsofts-bing-chat-which-wins/"><u>Face-Off Between Google's Bard and Microsoft's Bing Chat: Which Wins?</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-mastering-360-videos-for-fb-creation-and-sharing-guide/"><u>In 2024, Mastering 360 Videos for FB Creation & Sharing Guide</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-the-updated-method-to-bypass-tecno-pova-6-pro-5g-frp-by-drfone-android/"><u>In 2024, The Updated Method to Bypass Tecno Pova 6 Pro 5G FRP</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/echniques-for-a-thorough-review-of-youtube-stats-for-2024/"><u>Key Techniques for a Thorough Review of YouTube Stats for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/mastering-troubleshooting-techniques-for-defeating-code-28-problems-in-windows-operating-systems/"><u>Mastering Troubleshooting Techniques for Defeating Code 28 Problems in Windows Operating Systems</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-essential-steps-for-seamless-youtube-video-loops/"><u>[New] In 2024, Essential Steps for Seamless YouTube Video Loops</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-optimizing-youtube-view-duration-three-steps-52-chars/"><u>[New] In 2024, Optimizing YouTube View Duration - Three Steps (52 Chars)</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/uick-fixes-how-to-shorten-youtube-videos-easily-for-2024/"><u>[New] Quick Fixes How to Shorten YouTube Videos Easily for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/product-name-the-revolutionary-accessory-for-upgrading-to-dual-twin-4k-displays-on-any-laptop-regardless-of-inbuilt-capabilities/"><u>[Product Name]: The Revolutionary Accessory for Upgrading to Dual Twin 4K Displays on Any Laptop, Regardless of Inbuilt Capabilities</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-cut-to-perfection-top-video-editors-for-youtubers/"><u>[Updated] In 2024, Cut to Perfection Top Video Editors for YouTubers</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-quench-your-relaxation-aspertronics-guide/"><u>[Updated] In 2024, Quench Your Relaxation Aspertronics Guide</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-top-pick-of-vocal-transformation-apps-for-youtubers/"><u>[Updated] In 2024, Top Pick of Vocal Transformation Apps for YouTubers</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-launchpad-equipment-the-beginners-checklist/"><u>2024 Approved Launchpad Equipment The Beginner's Checklist</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-unlocking-visual-magic-diy-animation-and-fx-crafts/"><u>2024 Approved Unlocking Visual Magic DIY Animation and FX Crafts</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-nokia-c12-plus-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Nokia C12 Plus | Dr.fone</u></a></li>
+<li><a href="https://win-excellent.techidaily.com/guia-para-desfazer-a-exclusao-de-pasta-do-usuario-em-windows-10-ou-11/"><u>Guia Para Desfazer a Exclusão De Pasta Do Usuário Em Windows 10 Ou 11</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-unveiling-the-shadows-a-systematic-guide-to-hidden-youtube-content/"><u>In 2024, Unveiling the Shadows A Systematic Guide to Hidden YouTube Content</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/latest-updates-on-playstation-5-slim-pricing-launch-timeline-and-technical-specifications/"><u>Latest Updates on PlayStation 5 Slim: Pricing, Launch Timeline & Technical Specifications</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/solved-warning-camera-failed-on-vivo-v29e-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Solved Warning Camera Failed on Vivo V29e | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-ultimate-checklist-8-key-points-for-smart-desktop-shopping/"><u>The Ultimate Checklist: 8 Key Points for Smart Desktop Shopping</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/top-5-no-cost-video-merge-apps-with-zero-watermarks/"><u>Top 5 No-Cost Video Merge Apps with Zero Watermarks</u></a></li>
 </ul></div>
 

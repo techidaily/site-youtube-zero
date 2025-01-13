@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] DIY Audio Excellence  No Mic Necessary for 2024\""
-date: 2025-01-03T21:23:06.419Z
-updated: 2025-01-06T01:21:36.443Z
+date: 2025-01-08T21:58:29.287Z
+updated: 2025-01-12T19:26:48.214Z
 tags:
   - ai video
   - ai youtube
@@ -45,7 +45,7 @@ Luckily, there are a lot of easy, free, things you can do to protect the quality
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. Keep Your Camera Close (like, really close)
@@ -57,7 +57,7 @@ For example, your camera’s mic might be just as good as a clip-on LAV, but tha
 Moving your camera/smartphone physically closer to you will make it hard to include anything besides your head and shoulders in your shot, but it will get you significantly better audio.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2.Shoot Somewhere Quiet
@@ -65,6 +65,10 @@ Moving your camera/smartphone physically closer to you will make it hard to incl
 The best way to limit the amount of background noise you pick up in your sound recording is to shoot somewhere where there’s no background noise. That probably seems really basic, but it’s something a lot of people just don’t do. It’s easy to default to recording in your home office, even though it’s right next to the kitchen where your family is bustling around, or in your bedroom even though there’s a busy street right outside your window.
 
 Sometimes the best thing you can do for your audio is simply to scout out a quiet room in your house where the sound recording conditions are better. Speaking of recording conditions…
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 3\. Pick a Good Room
 
@@ -75,7 +79,7 @@ You should also pay attention to what’s in the room you’re recording in. Avo
 Look for a room that has a lot of soft things in it, like beds and sofas.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. Protect your Built-In Mic from Wind
@@ -92,16 +96,12 @@ If your built-in mic is on top of your camera you can get something called a ‘
 
 ![Record better audio from wind with micromuff](https://images.wondershare.com/filmora/article-images/record-better-audio-from-wind.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 _You use the adhesive backing to attach the base velcro to your camera. The other side of the velcro has your fluff attached to the back._
 
 The only thing about a micromuff is that it costs about $30, and if you’re going to spend $30 on audio equipment then you could just buy yourself an inexpensive LAV mic. I only bring up the micromuff because it’s a very simple design you can probably DIY – you just need velcro with adhesive backing and any of the fluff-sources we just discussed.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 5\. Use a Free Audio App
@@ -149,24 +149,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-in-depth-review-free2x-webcam-capturing-software/"><u>[New] In-Depth Review Free2X Webcam Capturing Software</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/anking-the-top-12-streamlined-screen-swivel-cams-for-content-for-2024/"><u>[New] Ranking the Top 12 Streamlined Screen-Swivel Cams for Content for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/crutinizing-youtubes-top-viewed-community-inputs/"><u>[New] Scrutinizing YouTube's Top Viewed Community Inputs</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/op-10-video-capture-tools-for-blogging-platforms/"><u>[New] Top 10 Video Capture Tools for Blogging Platforms</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-unlimited-premium-slide-decks-for-entrepreneurs-for-2024/"><u>[New] Unlimited Premium Slide Decks for Entrepreneurs for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-improve-your-channels-meta-description-powerfully/"><u>[Updated] 2024 Approved Improve Your Channel's Meta Description Powerfully</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-the-complete-guide-to-youtube-ad-free-viewing-chrome-and-safari/"><u>[Updated] 2024 Approved The Complete Guide to YouTube Ad-Free Viewing (Chrome & Safari)</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-get-rid-of-youtube-ads-with-ease-on-chrome-firefox-ios-android/"><u>[Updated] In 2024, Get Rid of YouTube Ads with Ease on Chrome, Firefox, iOS, Android</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-explore-top-8-zero-cost-3d-vids-plugins-for-windows-and-mac-os/"><u>2024 Approved Explore Top 8 Zero-Cost 3D Vids Plugins For Windows & Mac OS</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-the-iron-throne-of-sound-best-websites-for-got-ringtone-downloads/"><u>2024 Approved The Iron Throne of Sound Best Websites for GoT Ringtone Downloads</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-your-ultimate-youtube-to-avi-transformation-guidebook/"><u>2024 Approved Your Ultimate YouTube-to-AVI Transformation Guidebook</u></a></li>
-<li><a href="https://games-able.techidaily.com/all-you-need-to-know-about-amds-graphics-lineup-rx-7800-and-7700xt/"><u>All You Need to Know About AMD's Graphics Lineup: RX 7800 & 7700XT</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-realme-v30-phone-without-password-by-drfone-android/"><u>How To Unlock Realme V30 Phone Without Password?</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-reset-your-oppo-a79-5g-lock-screen-password-by-drfone-android/"><u>In 2024, How to Reset your Oppo A79 5G Lock Screen Password</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ity-query-personal-savings-of-youtube-videos/"><u>Legality Query Personal Savings of YouTube Videos</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/mastering-microsoft-teams-with-github-copilot-a-step-by-step-guide/"><u>Mastering Microsoft Teams with GitHub Copilot: A Step-by-Step Guide</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/izing-moolah-on-youtube-a-creators-handbook/"><u>Maximizing Moolah on YouTube A Creator's Handbook</u></a></li>
-<li><a href="https://ai-video-editing.techidaily.com/new-use-the-best-luts-for-lightroom-for-2024/"><u>New Use The Best LUTs for Lightroom for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/protect-your-mobile-experience-6-stellar-iphone-antivirus-tools-ranked/"><u>Protect Your Mobile Experience: 6 Stellar iPhone Antivirus Tools Ranked</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-crafting-a-powerful-content-strategy-uncover-the-best-5-youtube-marketing-tactics/"><u>[New] In 2024, Crafting a Powerful Content Strategy Uncover the Best 5 YouTube Marketing Tactics</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-safekeep-stories-the-unlimited-save-service/"><u>[New] In 2024, Safekeep Stories The Unlimited Save Service</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-unlocking-youtubes-potential-subscriber-triumph-tactics/"><u>[Updated] 2024 Approved Unlocking YouTube's Potential Subscriber Triumph Tactics</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-facebook-video-vanishing-act-heres-how-to-perform-the-counter-with-12-steps/"><u>[Updated] In 2024, Facebook Video Vanishing Act? Here's How to Perform the Counter with 12 Steps</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-unexpected-vertical-tilt-in-instagram-vids-why/"><u>[Updated] In 2024, Unexpected Vertical Tilt in Instagram Vids? Why?</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-expert-recommendations-10-high-end-podcast-mics/"><u>2024 Approved Expert Recommendations 10 High-End Podcast Mics</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-the-pathway-to-creating-high-quality-youtube-ads-on-a-dime/"><u>2024 Approved The Pathway to Creating High-Quality YouTube Ads on a Dime</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/boost-your-sites-traffic-with-advanced-cookiebot-technology/"><u>Boost Your Site's Traffic with Advanced Cookiebot Technology</u></a></li>
+<li><a href="https://win-dash.techidaily.com/impact-of-microsofts-latest-ai-advancements-on-portable-gaming-pc-futures/"><u>Impact of Microsoft's Latest AI Advancements on Portable Gaming PC Futures</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/is-fake-gps-location-spoofer-a-good-choice-on-realme-12plus-5g-drfone-by-drfone-virtual-android/"><u>Is Fake GPS Location Spoofer a Good Choice On Realme 12+ 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/g-fx-magic-a-novices-step-into-animated-worlds-for-2024/"><u>Making FX Magic A Novice's Step Into Animated Worlds for 2024</u></a></li>
+<li><a href="https://win-cheats.techidaily.com/1728479151860-qnap-nas/"><u>QNAP NASデータ移行とバックアップ手順 - 迅速なスイープ上で</u></a></li>
 </ul></div>
 
