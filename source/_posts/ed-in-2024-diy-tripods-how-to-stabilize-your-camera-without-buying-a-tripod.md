@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, DIY Tripods| How to Stabilize Your Camera without Buying a Tripod"
-date: 2025-01-07T16:28:07.158Z
-updated: 2025-01-12T23:05:06.570Z
+date: 2025-01-13T18:04:57.185Z
+updated: 2025-01-18T14:22:20.731Z
 tags:
   - ai video
   - ai youtube
@@ -39,11 +39,11 @@ Wondershare Filmora has the best video stabilization tool is your videos have a 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Here are 3 of our favorite DIY tripods.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **DIY smartphone tripod using binder clips or hair clips**
 
@@ -60,7 +60,7 @@ Here it is with binder clips:
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 And here it is with hair clips:
@@ -68,12 +68,16 @@ And here it is with hair clips:
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **DIY adjustable tripod using books and a towel**
 
@@ -92,10 +96,6 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -103,10 +103,6 @@ Gorillapod’s are cool because you can use them like normal tripods, carry them
 Your wire should be fairly stiff and you’ll need three pieces the same length, which should be at least 10 inches. Old clothes hangers work well. This needs to be something strong enough to support the weight of your camera, but soft enough that it’s not impossible for you to bend.
 
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
 
@@ -130,6 +126,10 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -151,18 +151,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-posts.techidaily.com/new-2024-approved-the-ultimate-iphone-x-handbook-for-users/"><u>[New] 2024 Approved The Ultimate iPhone X Handbook for Users</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-in-2024-ultimate-razer-webcam-analysis/"><u>[New] In 2024, Ultimate Razer Webcam Analysis</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/trategies-for-maximizing-video-impact-while-staying-in-cc-zone-for-2024/"><u>[New] Strategies for Maximizing Video Impact While Staying in CC Zone for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-9-ultimate-free-online-editors-for-content-creators/"><u>[Updated] 2024 Approved 9 Ultimate Free Online Editors for Content Creators</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-boost-your-content-access-free-vocal-sfx/"><u>[Updated] 2024 Approved Boost Your Content Access Free Vocal SFX!</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-mastering-yt-creator-hub-the-ultimate-playbook/"><u>[Updated] 2024 Approved Mastering YT Creator Hub The Ultimate Playbook</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-simplified-steps-capturing-breathtaking-time-lapses-on-black-hero5/"><u>[Updated] Simplified Steps Capturing Breathtaking Time-Lapses on Black Hero5</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-writers-guide-embedding-images-in-articles-without-spending/"><u>2024 Approved Writers' Guide Embedding Images in Articles Without Spending</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/3-ways-to-unlock-apple-iphone-13-without-passcode-or-face-id-by-drfone-ios/"><u>3 Ways to Unlock Apple iPhone 13 without Passcode or Face ID</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/cambia-archivos-de-audio-formato-sin-coste-con-la-herramienta-online-gratuita-convertaflc/"><u>Cambia Archivos De Audio Formato Sin Coste Con La Herramienta Online Gratuita ConvertAFLC</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-check-distance-and-radius-on-google-maps-for-your-poco-x5-drfone-by-drfone-virtual-android/"><u>In 2024, How to Check Distance and Radius on Google Maps For your Poco X5 | Dr.fone</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/top-rated-video-convertors-from-avi-to-mp4-on-windows-10-and-11/"><u>Top Rated Video Convertors From AVI to MP4 on Windows 10 & 11</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/k-youtube-success-with-top-8-thumbnail-strategies/"><u>Unlock YouTube Success with Top 8 Thumbnail Strategies</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-explore-innovative-ways-for-sound-capture-in-modern-windows-11-pcs/"><u>[New] Explore Innovative Ways for Sound Capture in Modern Windows 11 PCs</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-delving-deep-youtubes-revenue-system-from-publisher-to-you/"><u>[Updated] 2024 Approved Delving Deep YouTube's Revenue System From Publisher to You</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-dive-deep-into-unreal-worlds-with-these-titles/"><u>[Updated] 2024 Approved Dive Deep Into Unreal Worlds with These Titles</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-streaming-to-profit-youtube-policy-changes/"><u>[Updated] 2024 Approved Streaming to Profit YouTube Policy Changes</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-maximize-your-youtube-impact-with-perfect-aspect-ratios/"><u>[Updated] In 2024, Maximize Your YouTube Impact with Perfect Aspect Ratios</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-the-essential-guide-to-metaverse-brand-strategies/"><u>[Updated] In 2024, The Essential Guide to Metaverse Brand Strategies</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-high-end-drones-expert-buyers-choices-top-5/"><u>2024 Approved High-End Drones - Expert Buyers' Choices, Top 5</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-the-best-of-budget-a-guide-to-the-top-10-economical-video-design-schools-on-youtube/"><u>2024 Approved The Best of Budget A Guide to the Top 10 Economical Video Design Schools on YouTube</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/customizing-chatgpts-style-how-to-coach-a-chatbot-to-mimic-your-voice/"><u>Customizing ChatGPT's Style: How to Coach a Chatbot to Mimic Your Voice</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/decoding-the-art-of-video-production-in-filmora/"><u>Decoding the Art of Video Production in Filmora</u></a></li>
+<li><a href="https://win-able.techidaily.com/fixing-the-entry-point-not-available-error-in-fortnite/"><u>Fixing the 'Entry Point Not Available' Error in Fortnite</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-google-pixel-7a-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Google Pixel 7a Phones with/without a PC</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-how-to-loop-youtube-videos-on-tv/"><u>In 2024, How to Loop YouTube Videos on TV</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/iosandroiddvd/"><u>IOS/AndroidにDVD動画移行法：スマホ向け視聴方法</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-2024-approved-trim-and-cut-mov-files-without-spending-a-dime/"><u>New 2024 Approved Trim and Cut MOV Files without Spending a Dime</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/mline-your-vlogs-sound-with-effective-tips-for-2024/"><u>Streamline Your Vlog's Sound with Effective Tips for 2024</u></a></li>
 </ul></div>
 

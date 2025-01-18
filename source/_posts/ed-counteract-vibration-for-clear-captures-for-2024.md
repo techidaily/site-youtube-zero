@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Counteract Vibration for Clear Captures for 2024"
-date: 2025-01-08T20:26:51.610Z
-updated: 2025-01-12T18:20:18.285Z
+date: 2025-01-15T14:19:43.838Z
+updated: 2025-01-18T09:20:43.050Z
 tags:
   - ai video
   - ai youtube
@@ -33,16 +33,24 @@ When you’re trying to grow a channel on YouTube it can feel like equipment is 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### DIY Your Video with Wondershare Filmora
 
 Wondershare Filmora has the best video stabilization tool is your videos have a bad frame or were recorded in dim lights. If a video is shot in bad weather or unfriendly situation where you don’t have all the equipment required for a quality recording, Wondershare Filmora can help you in the background to edit your videos like a pro. And it has all the relevant tools like effects, transitions, background removal, overlays, and background music that could turn your normal video to a professional one.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Here are 3 of our favorite DIY tripods.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **DIY smartphone tripod using binder clips or hair clips**
@@ -60,24 +68,16 @@ Here it is with binder clips:
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **DIY adjustable tripod using books and a towel**
 
@@ -96,6 +96,10 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -103,10 +107,6 @@ Gorillapod’s are cool because you can use them like normal tripods, carry them
 Your wire should be fairly stiff and you’ll need three pieces the same length, which should be at least 10 inches. Old clothes hangers work well. This needs to be something strong enough to support the weight of your camera, but soft enough that it’s not impossible for you to bend.
 
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
 
@@ -151,22 +151,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-advanced-guide-to-clear-cut-and-ship-video-for-2024/"><u>[New] Advanced Guide to Clear, Cut, and Ship Video for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/n-2024-continuous-streams-perfect-loops-of-youtube-videos-for-tvs/"><u>[New] In 2024, Continuous Streams Perfect Loops of YouTube Videos for TVs</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-the-ultimate-explanimation-what-pfp-means-on-tiktok-in-2024/"><u>[New] The Ultimate Explanimation What PFP Means on TikTok, In 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ransforming-raw-footage-into-youtube-gold-via-sony-vegas-for-2024/"><u>[New] Transforming Raw Footage Into YouTube Gold via Sony Vegas for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-understanding-legality-in-screenshots-from-youtube/"><u>[Updated] 2024 Approved Understanding Legality in Screenshots From YouTube</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-streamlined-online-gif-conversion-for-videos-top-5/"><u>[Updated] In 2024, Streamlined Online GIF Conversion for Videos (Top 5)</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/2024-approved-android-guide-for-backward-video-display/"><u>2024 Approved Android Guide for Backward Video Display</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-mastering-video-trailers-on-youtube-via-filmora-tools/"><u>2024 Approved Mastering Video Trailers on YouTube via Filmora Tools</u></a></li>
-<li><a href="https://extra-information.techidaily.com/chuckle-away-with-premium-complimentary-meme-templates/"><u>Chuckle Away with Premium Complimentary Meme Templates</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-legal-means-to-elevate-your-youtube-popularity-by-one-million/"><u>In 2024, Legal Means to Elevate Your YouTube Popularity by One Million</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-unlock-your-youtube-shorts-earnings-potential/"><u>In 2024, Unlock Your YouTube Shorts Earnings Potential</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-youtube-stardom-made-easy-essential-editing-strategies-explored/"><u>In 2024, YouTube Stardom Made Easy Essential Editing Strategies Explored</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/g-money-from-youtube-shorts-key-elements-and-profit-possibilities-for-2024/"><u>Making Money From YouTube Shorts Key Elements & Profit Possibilities for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/mastering-iphone-camera-settings-corrective-actions-for-autofocus-failures/"><u>Mastering iPhone Camera Settings: Corrective Actions for Autofocus Failures</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ssential-guide-to-free-attractive-youtube-intros/"><u>The Essential Guide to Free, Attractive YouTube Intros</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/top-5-vivo-y100i-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>Top 5 Vivo Y100i Bypass FRP Tools for PC That Actually Work</u></a></li>
-<li><a href="https://change-location.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-vivo-y78-5g-drfone-by-drfone-virtual-android/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On Vivo Y78 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nhance-visibility-with-any-channel-title-through-free-makers/"><u>[New] Enhance Visibility With Any Channel Title Through Free Makers</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/astering-youtube-audio-uploads-for-2024/"><u>[New] Mastering YouTube Audio Uploads for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nleash-youtube-potential-with-imaginative-splitscreens/"><u>[New] Unleash YouTube Potential with Imaginative Splitscreens</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/isionary-video-download-engine-capture-and-save-anywhere-for-2024/"><u>[New] Visionary Video Download Engine - Capture & Save Anywhere for 2024</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/1-windows-11-photos-app-a-comprehensive-guide-to-video-editing-techniques/"><u>1. Windows 11 Photos App: A Comprehensive Guide to Video Editing Techniques</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-boost-engagement-with-effortless-youtube-thumbnail-tips/"><u>2024 Approved Boost Engagement with Effortless Youtube Thumbnail Tips</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/up-your-videos-best-winter-bgs-revealed-for-2024/"><u>Cozy Up Your Videos Best Winter Bg's Revealed for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-my-oneplus-nord-n30-5g-location-is-wrong-drfone-by-drfone-virtual-android/"><u>How to Fix My OnePlus Nord N30 5G Location Is Wrong | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-sound-sanitization-cleaning-up-your-online-footage/"><u>In 2024, Sound Sanitization Cleaning Up Your Online Footage</u></a></li>
+<li><a href="https://program-issues.techidaily.com/master-the-solution-eradicating-dev-error-6634-in-cod-warzone/"><u>Master the Solution: Eradicating Dev Error 6634 in Cod: Warzone</u></a></li>
+<li><a href="https://fox-http.techidaily.com/rising-stars-top-sierra-dvd-production-tools-for-2024/"><u>Rising Stars Top Sierra DVD Production Tools for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/star-wars-squadrons-reviewed-a-deep-dive-into-authentic-x-wing-aerial-combat-action/"><u>Star Wars Squadrons Reviewed: A Deep Dive Into Authentic X-Wing Aerial Combat Action</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/tailored-editing-for-impeccable-instagram-videos/"><u>Tailored Editing for Impeccable Instagram Videos</u></a></li>
+<li><a href="https://some-skills.techidaily.com/ultimate-rotation-video-setup-for-2024/"><u>Ultimate Rotation Video Setup for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/winxvideo-ai-advanced-video-and-image-optimization-suite-with-conversion-recording-and-editing-capabilities/"><u>WinxVideo AI – Advanced Video & Image Optimization Suite with Conversion, Recording, and Editing Capabilities</u></a></li>
 </ul></div>
 

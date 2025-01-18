@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Maximizing Click-Through Rates with Youtube Images\""
-date: 2024-08-08T15:28:33.654Z
-updated: 2024-08-09T15:28:33.654Z
+date: 2025-01-15T14:26:54.969Z
+updated: 2025-01-17T18:06:04.182Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/f7008ec86977e694421ef724a35a33c6fec32d457
 
 # How to Make YouTube Banners and Thumbnails
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -30,8 +27,9 @@ thumbnail: https://thmb.techidaily.com/f7008ec86977e694421ef724a35a33c6fec32d457
 The art on your [YouTube channel](https://tools.techidaily.com/wondershare/filmora/download/) – banners, thumbnails, icons, and watermarks – will help to determine how viewers feel about your vlog. If your art does not look like it all goes together then people will get a sloppy, amateurish, impression of your channel. However, if your different pieces of channel art all seem to complement each other and match the tone and theme of your channel then it will help viewers to have a pleasant browsing experience. They will get the impression that you take your YouTube channel seriously and that they can trust you as a source of information, comedy, or general entertainment.
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Make YouTube Banners and Thumbnails
 
 YouTube Banners and Thumbnails are two of the most important pieces of channel art you will need. This article will explain the best practices for both, and suggest sites where you will be able to build your own banners and thumbnails for free.
@@ -69,24 +67,27 @@ One thumbnail taboo that you should never break is using an image that has nothi
 
 There are sites online that will allow you to edit images and use them in templates for YouTube banners. You can also use these services to edit your thumbnails. Two of the most popular, free, online photo editors are PicMonkey.com and Canva.com.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ![banner n thumb Canva](https://images.wondershare.com/filmora/article-images/banner-n-thumb-Canva.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Canva** has templates you can use to create YouTube banners, as well as a variety of stock images you can use in combination with your own when creating channel art. It is free to edit images on Canva, but they do have some premium features which cost $1 each to access. This service has both a desktop version and an iPad app.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
-<!-- affiliate ads end -->
 ![banner n thumb PicMonkey](https://images.wondershare.com/filmora/article-images/banner-n-thumb-PicMonkey.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **PicMonkey** lets you import images from your computer or social media accounts, edit them, and use them in templates for YouTube banners or other kinds of social media graphics. PicMonkey is free to use, but you can only access their more advanced editing tools if you buy a paid subscription. Monthly subscriptions are $4.99 per month, and yearly subscriptions are $2.75 per month.
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -94,14 +95,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -110,6 +108,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/new-illustrators-secret-creating-seamless-image-movement/"><u>[New] Illustrator's Secret Creating Seamless Image Movement</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nnovating-with-structured-content-on-youtube-for-2024/"><u>[New] Innovating with Structured Content on YouTube for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-tickle-treasure-trove-uncovering-best-apps-for-memes/"><u>[New] Tickle Treasure Trove Uncovering Best Apps for Memes</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ransform-your-youtube-videos-into-webm-easily-for-2024/"><u>[New] Transform Your YouTube Videos Into WebM Easily for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/outube-writers-and-their-payment-frequency/"><u>[New] YouTube' Writers and Their Payment Frequency</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-how-to-get-free-views-on-youtube-2-easy-ways/"><u>[Updated] 2024 Approved How to Get Free Views on YouTube [2 Easy Ways]</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-command-your-tech-not-money-needed-for-2024/"><u>[Updated] Command Your Tech, Not Money Needed for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-crafting-success-leading-business-channels-for-professionals/"><u>[Updated] Crafting Success Leading Business Channels for Professionals</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-build-your-brands-success-on-top-business-youtube-channels/"><u>[Updated] In 2024, Build Your Brand's Success on Top Business YouTube Channels</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-elite-gaming-setup-essentials-revealed/"><u>[Updated] In 2024, Elite Gaming Setup Essentials Revealed</u></a></li>
+<li><a href="https://solve-helper.techidaily.com/abbyy-lance-version-5-nouveau-module-de-reconnaissance-des-taches-integre/"><u>ABBYY Lance Version 5 : Nouveau Module De Reconnaissance Des Tâches Intégré</u></a></li>
+<li><a href="https://win11.techidaily.com/environment-variables-configuration/"><u>Environment Variables Configuration</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/tial-8-linux-software-for-editors/"><u>Essential 8 Linux Software for Editors</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/noob-to-pro-selecting-webcams-that-make-a-difference-in-youtube-livestreams/"><u>From Noob to Pro Selecting Webcams That Make a Difference in YouTube Livestreams</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-mastering-instagram-reel-creating-stunning-slow-motion-content/"><u>In 2024, Mastering Instagram Reel Creating Stunning Slow-Motion Content</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-the-perfect-loop-technique-for-all-your-youtube-favorites/"><u>In 2024, The Perfect Loop Technique for All Your YouTube Favorites</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/maximizing-wireless-connectivity-a-thorough-review-of-netgears-ex3700-wifi-range-booster-ac750/"><u>Maximizing Wireless Connectivity: A Thorough Review of Netgear's EX3700 WiFi Range Booster (AC750)</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/social-media-mastery-how-to-make-a-post-take-off-on-fb-for-2024/"><u>Social Media Mastery How to Make a Post Take Off on FB for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/understanding-server-errors-is-battlenet-down-or-personal-connection-problems/"><u>Understanding Server Errors: Is Battle.net Down or Personal Connection Problems?</u></a></li>
+</ul></div>
 

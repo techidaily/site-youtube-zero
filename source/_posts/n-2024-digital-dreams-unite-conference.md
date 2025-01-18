@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Digital Dreams Unite Conference"
-date: 2025-01-11T19:36:40.202Z
-updated: 2025-01-12T20:16:09.347Z
+date: 2025-01-12T17:19:48.388Z
+updated: 2025-01-18T03:36:48.599Z
 tags:
   - ai video
   - ai youtube
@@ -65,7 +65,7 @@ _Tess takes you to some of her favorite places in Dumbo._
 Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators who attended the summit probably had a lot of fun exploring it.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. Post Cards
@@ -76,35 +76,31 @@ One of the major benefits of attending this summit would have been networking wi
 
 S’well bottles are stainless steel beverage containers that keep drinks hot or cold. They retail for around $45\. YouTubers invited to the Creator Summit received ones with YouTube branding on them. A good water bottle is a convention/conference essential, so this was a very practical gift.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 4\. Branded slippers
 
 To help them relax after long days at the summit, YouTube provided creators with YouTube-branded slippers. They look pretty comfy. Plus, now every time these YouTubers look down at their feet they’ll be reminded to go make some videos.
 
 ![Branded slippers - 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-branded-slippers.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 _thinknoodles wearing his YouTube slippers._
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 5\. Pins, pins, pins
 
 There were numerous custom pins available at different events at the summit. Aside from a complementary Brooklyn and 1 Hotel Brooklyn Bridge (the hotel the creators were staying at) pins, the creators did not receive these in their swag boxes – they had to collect them.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 6\. Denim jacket
 
 A denim jacket with a play button on it was also in the box. The idea was that creators would collect pins and display them on their new jackets. At the end of the week, they would have a great souvenir reminding them of every event they attended at the summit.
 
 _![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 _Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
 
@@ -115,10 +111,14 @@ Want to join the YouTube Creator Summit in the future? We all know that there is
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -141,24 +141,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-elite-sites-and-strategies-finding-the-best-deals-on-tamil-melodies/"><u>[New] Elite Sites & Strategies Finding the Best Deals on Tamil Melodies</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/n-2024-high-level-behavior-tips-for-youtube-users/"><u>[New] In 2024, High-Level Behavior Tips for YouTube Users</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/olvedhow-to-blur-faces-or-objects-in-youtube-videos/"><u>[New] Solved How to Blur Faces or Objects in YouTube Videos</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-learn-to-turn-comments-on-or-off-on-youtube-easily/"><u>[Updated] 2024 Approved Learn to Turn Comments On or Off on YouTube Easily</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-demystifying-video-profit-on-youtube/"><u>[Updated] Demystifying Video Profit on YouTube</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-from-viewing-voids-to-viral-videos-the-top-ten-reasons-and-cures-for-zero-traffic-for-2024/"><u>[Updated] From Viewing Voids to Viral Videos The Top Ten Reasons & Cures for Zero Traffic for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-crafting-an-apple-powered-athletic-broadcast-platform/"><u>[Updated] In 2024, Crafting an Apple-Powered Athletic Broadcast Platform</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-decoding-snapchats-technique-for-clockwise-video-reversal/"><u>[Updated] In 2024, Decoding Snapchat's Technique for Clockwise Video Reversal</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-perfecting-video-frames-for-instagram-shares/"><u>[Updated] In 2024, Perfecting Video Frames for Instagram Shares</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-the-stepwise-route-to-discovering-elusive-youtube-footage/"><u>[Updated] In 2024, The Stepwise Route to Discovering Elusive YouTube Footage</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/conveniently-record-and-preserve-your-online-gatherings-for-2024/"><u>Conveniently Record and Preserve Your Online Gatherings for 2024</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/free-amd-radeon-graphic-card-software-for-windows-8-systems/"><u>Free AMD Radeon Graphic Card Software for Windows 8 Systems</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/in-2024-harness-the-power-of-youtube-studio-for-ultimate-edits/"><u>In 2024, Harness the Power of YouTube Studio for Ultimate Edits</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-how-to-keep-your-audience-engaged-top-6-strategies-for-higher-youtube-stickiness/"><u>In 2024, How To Keep Your Audience Engaged Top 6 Strategies for Higher YouTube Stickiness</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ring-the-art-of-monetization-with-ajey-carryminati/"><u>Mastering the Art of Monetization with Ajey (CarryMinati)</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/izing-profits-ensuring-proper-youtube-channel-monetization-for-2024/"><u>Maximizing Profits Ensuring Proper YouTube Channel Monetization for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/d-screen-craftsman-for-2024/"><u>Second-Screen Craftsman for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ssential-guide-to-free-attractive-youtube-intros-for-2024/"><u>The Essential Guide to Free, Attractive YouTube Intros for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/top-5-techniques-to-seamlessly-transform-h265-videos-into-unlimited-size-h264-files/"><u>Top 5 Techniques to Seamlessly Transform H.265 Videos Into Unlimited-Size H.264 Files</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/iscovering-success-through-the-most-effective-15-youtube-themes/"><u>[New] Discovering Success Through the Most Effective 15 YouTube Themes</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ilmmaker-tips-youtube-trailers-using-filmora-for-2024/"><u>[New] Filmmaker Tips YouTube Trailers Using Filmora for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/napshots-of-success-jake-pauls-youtube-milestones/"><u>[New] Snapshots of Success Jake Paul’s YouTube Milestones</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/emplate-mastery-a-step-by-step-to-epic-gamers-logos/"><u>[New] Template Mastery A Step-by-Step to Epic Gamers' Logos</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-screen-grab-specialists-top-apps-for-windows-10-users/"><u>[Updated] 2024 Approved Screen Grab Specialists Top Apps for Windows 10 Users</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-directly-embedding-google-meet-in-youtubes-video-library/"><u>[Updated] Directly Embedding Google Meet in YouTube's Video Library</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-crafting-a-cash-cascade-on-youtube-strategies-beyond-the-ad-model/"><u>2024 Approved Crafting a Cash Cascade on YouTube Strategies Beyond the Ad Model</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/beyond-viral-tactics-uncovering-the-facts-about-reels-on-instagram/"><u>Beyond Viral Tactics Uncovering the Facts About Reels on Instagram</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-your-csr-bluetooth-drivers-here-for-instant-download/"><u>Get Your CSR Bluetooth Drivers Here for Instant Download</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-changeadd-location-filters-on-snapchat-for-your-vivo-y100i-drfone-by-drfone-virtual-android/"><u>How to Change/Add Location Filters on Snapchat For your Vivo Y100i | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-one-youtube-feed-how-to-merge-multiple-videos/"><u>In 2024, One YouTube Feed How to Merge Multiple Videos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ring-gameplay-with-best-gadgets/"><u>Mastering Gameplay with Best Gadgets</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/resolved-b200-pc-error/"><u>Resolved: B200 PC Error</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/secure-unlimited-access-with-a-5-year-vpn-deal-at-only-35-available-now-on-zdnet/"><u>Secure Unlimited Access with a 5-Year VPN Deal at Only $35 - Available Now on ZDNet!</u></a></li>
+<li><a href="https://windows11.techidaily.com/secure-your-connection-top-fixes-for-hidden-wireless-networks-in-windows/"><u>Secure Your Connection: Top Fixes for Hidden Wireless Networks in Windows</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/step-by-step-repair-solving-issues-with-a-nonfunctioning-firestick-remote-control/"><u>Step-by-Step Repair: Solving Issues with a Nonfunctioning Firestick Remote Control</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/what-to-do-if-your-iphone-15-pro-max-has-bad-esn-or-blacklisted-imei-by-drfone-ios/"><u>What to do if your iPhone 15 Pro Max has bad ESN or blacklisted IMEI?</u></a></li>
 </ul></div>
 

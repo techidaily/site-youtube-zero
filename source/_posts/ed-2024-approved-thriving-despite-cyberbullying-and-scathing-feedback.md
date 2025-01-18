@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Thriving Despite Cyberbullying and Scathing Feedback\""
-date: 2024-12-30T03:41:25.336Z
-updated: 2025-01-05T19:13:10.924Z
+date: 2025-01-14T11:55:34.476Z
+updated: 2025-01-18T09:59:09.795Z
 tags:
   - ai video
   - ai youtube
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/8607afd112c21db80344a74ef1409282fa825e22b
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/8607afd112c21db80344a74ef1409282fa825e22b
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -83,16 +83,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-how-to-spark-interest-with-unique-channel-names/"><u>[New] 2024 Approved How to Spark Interest With Unique Channel Names</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-more-than-just-watch-time-understanding-youtube-views-calculation/"><u>[New] 2024 Approved More than Just Watch Time Understanding YouTube Views Calculation</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-optimizing-profits-on-youtube-studio-for-all-device-users/"><u>[New] 2024 Approved Optimizing Profits on YouTube Studio for All-Device Users</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-proactive-strategies-in-building-an-irresistible-online-identity-on-youtube/"><u>[New] 2024 Approved Proactive Strategies in Building an Irresistible Online Identity on YouTube</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-scan-for-collective-shared-content-on-messenger-for-2024/"><u>[New] Scan for Collective Shared Content on Messenger for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-metaverse-comedy-the-art-and-science-of-creating-viral-online-laughs/"><u>[Updated] In 2024, Metaverse Comedy The Art & Science of Creating Viral Online Laughs</u></a></li>
-<li><a href="https://win-superb.techidaily.com/immediate-solution-needed-unable-to-rearrange-directory-due-to-conflicting-onedrive-folder/"><u>Immediate Solution Needed: Unable to Rearrange Directory Due to Conflicting Onedrive Folder</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/moving-beyond-chatgpt-for-better-interaction/"><u>Moving Beyond ChatGPT for Better Interaction</u></a></li>
-<li><a href="https://article-helps.techidaily.com/optimal-steadicams-matched-with-dslr-cameras-for-2024/"><u>Optimal Steadicams Matched with DSLR Cameras for 2024</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/trustworthy-methods-to-validate-wellness-tips-received-via-chatbots-and-ai-entities/"><u>Trustworthy Methods to Validate Wellness Tips Received via Chatbots and AI Entities</u></a></li>
-<li><a href="https://techidaily.com/video-file-repair-how-to-fix-corrupted-video-files-of-razr-40-ultra-by-stellar-video-repair-mobile-video-repair/"><u>Video File Repair - How to Fix Corrupted video files of Razr 40 Ultra?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-easy-efficient-and-essential-top-23-tools-to-downgrade-youtube-audios/"><u>[New] 2024 Approved Easy, Efficient, and Essential Top 23 Tools to Downgrade YouTube Audios</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-discovering-top-10-must-watch-business-video-hubs/"><u>[New] In 2024, Discovering Top 10 Must-Watch Business Video Hubs</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-transform-ideas-into-laughter-generate-text-memes-for-2024/"><u>[New] Transform Ideas Into Laughter Generate Text Memes for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-15-best-free-youtube-introduction-tools-for-2024/"><u>[Updated] 15 Best Free YouTube Introduction Tools for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-ethical-approaches-to-extract-mp4-from-youtube/"><u>2024 Approved Ethical Approaches to Extract MP4 From YouTube</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-how-to-increase-followers-on-instagram-ultimate-guide/"><u>2024 Approved How to Increase Followers on Instagram - Ultimate Guide</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/cing-user-experience-strategic-placement-of-alerts-on-youtube-content/"><u>Enhancing User Experience Strategic Placement of Alerts on YouTube Content</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-6-methods-to-share-apple-iphone-13-mini-screen-with-pc-drfone-by-drfone-ios/"><u>In 2024, 6 Methods to Share Apple iPhone 13 mini Screen with PC | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-learn-how-to-lock-stolen-your-apple-iphone-se-properly-by-drfone-ios/"><u>In 2024, Learn How To Lock Stolen Your Apple iPhone SE Properly</u></a></li>
 </ul></div>
 

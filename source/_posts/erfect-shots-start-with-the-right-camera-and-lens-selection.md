@@ -1,7 +1,7 @@
 ---
 title: "[New] Perfect Shots Start With The Right Camera & Lens Selection"
-date: 2025-01-10T16:48:01.042Z
-updated: 2025-01-12T23:08:39.878Z
+date: 2025-01-12T02:32:55.656Z
+updated: 2025-01-18T01:58:25.078Z
 tags:
   - ai video
   - ai youtube
@@ -45,10 +45,6 @@ In this article, I’m going to help you figure that out.
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Three Focal Length Groups: Wide, Standard, Telephoto
 
 There are three main ranges in focal lengths that camera lenses can be categorized into wide, standard, and telephoto.
@@ -87,16 +83,24 @@ As telephoto lenses are even more zoomed in, you’ll need to be even further aw
 
   In the above video, Marcos Rocha compares different focal lengths for talking head videos. Which focal length range do you like the look of?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Crop Factor
 
 Focal lengths in camera lenses are measured in millimeters. You can vlog yourself handheld with a 24mm lens on a camera with a full-frame sensor (the sensor is the piece of hardware inside your camera that turns the light it receives into a digital image). But if you use a 24mm lens on a camera with a smaller sensor, like an APS-C sensor or even smaller Micro 4/3 sensor, more of you will get cropped out (see below).
 
  ![Crop Factor](https://images.wondershare.com/filmora/article-images/camera-lenses-crop-factor.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Focal Length Equivalency Table
@@ -114,13 +118,13 @@ This table shows you the focal lengths needed to achieve the same shot between c
 | Telephoto                   | 100mm      | 63mm  | 50mm      |
 | Telephoto                   | 200mm      | 125mm | 100mm     |
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Aperture
 
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
 
@@ -131,10 +135,6 @@ This table shows you the focal lengths needed to achieve the same shot between c
 Fast lenses are more expensive because they cost more to produce. There’s a lot more that goes into them, including larger and higher quality glass elements.
 
 But do you even need a fast lens?
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Vlogging With a Fast Lens
 
@@ -151,7 +151,7 @@ But do you even need a fast lens?
 * Better continuous autofocus performance needed when shooting moving subjects with a large aperture
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Optical Image Stabilization
@@ -189,18 +189,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/ed-capturing-top-notch-audio-without-microphone-dependency-for-2024/"><u>[Updated] Capturing Top-Notch Audio Without Microphone Dependency for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-designing-youtube-ads-that-grab-attention-a-compreeher-guide-for-2024/"><u>[Updated] Designing Youtube Ads That Grab Attention A Compreeher Guide for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-rapidly-enhance-your-content-reach-with-simple-steps/"><u>[Updated] In 2024, Rapidly Enhance Your Content Reach with Simple Steps</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-mastering-text-design-with-ae-top-10-tips/"><u>[Updated] Mastering Text Design with AE Top 10 Tips</u></a></li>
-<li><a href="https://win11.techidaily.com/a-universal-companion-windows-now-app-for-iosmac-and-windows-devices/"><u>A Universal Companion: Windows Now App for iOS/Mac and Windows Devices</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/chatgpt-strategies-for-reducing-stress/"><u>ChatGPT Strategies for Reducing Stress</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/discover-asrocks-latest-breakthrough-dual-27-inch-1440p-ips-screens-with-built-in-wifi-antennas-on-desk-mounts/"><u>Discover ASRock's Latest Breakthrough: Dual 27-Inch 1440P IPS Screens with Built-In WiFi Antennas on Desk Mounts</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-itel-p55-5g-by-drfone-android/"><u>In 2024, AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Itel P55 5G</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-elevating-your-artistry-in-lyric-videos-through-lyric-video-maker-mastery/"><u>In 2024, Elevating Your Artistry in Lyric Videos Through Lyric Video Maker Mastery</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-youtube-earnings-per-thousand-views-explained/"><u>In 2024, YouTube Earnings Per Thousand Views Explained</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/new-achieving-sonic-clarity-overcoming-hiss-and-other-unwanted-noises-in-audio-tracks/"><u>New Achieving Sonic Clarity Overcoming Hiss and Other Unwanted Noises in Audio Tracks</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/5-leading-influencers-in-the-stock-market-realm-for-2024/"><u>The 15 Leading Influencers in the Stock Market Realm for 2024</u></a></li>
-<li><a href="https://win-lab.techidaily.com/1728466298657-windows-11/"><u>Windows 11: 問題解決！「このフォルダは空です」メッセージを消します方法</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-the-creative-edge-filmmakers-blueprint-for-captivating-anime-subscribers-filmora/"><u>[Updated] 2024 Approved The Creative Edge Filmmaker's Blueprint for Captivating Anime Subscribers (Filmora)</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-top-zero-cost-image-amplifier-desktopmobile-edition/"><u>[Updated] 2024 Approved Top Zero-Cost Image Amplifier Desktop/Mobile Edition</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-premier-select-affordable-youtube-sbs-extraction/"><u>[Updated] In 2024, Premier Select Affordable YouTube SBS Extraction</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-how-to-make-your-youtube-moments-come-alive-creating-dynamic-gifs/"><u>2024 Approved How to Make Your YouTube Moments Come Alive Creating Dynamic GIFs</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-retrospective-viewing-inventive-approaches-for-backward-youtube-content/"><u>2024 Approved Retrospective Viewing Inventive Approaches for Backward YouTube Content</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-tailoring-drop-dates-to-maximize-listener-interest/"><u>2024 Approved Tailoring Drop Dates to Maximize Listener Interest</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-the-most-economical-tools-for-youtube-audio-conversion/"><u>2024 Approved The Most Economical Tools for YouTube Audio Conversion</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-unveil-the-best-of-history-top-10-youtube-channel-list/"><u>2024 Approved Unveil the Best of History Top 10 YouTube Channel List</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/cting-the-narrative-in-youtube-dialogues-for-2024/"><u>Dissecting the Narrative in YouTube Dialogues for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-se-2022-by-drfone-ios/"><u>In 2024, How to Unlock Apple iPhone SE (2022)?</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-methods-to-change-gps-location-on-realme-12plus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Methods to Change GPS Location On Realme 12+ 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/refined-connections-zoom-insight-for-professional-google-meets-for-2024/"><u>Refined Connections Zoom Insight for Professional Google Meets for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/reveal-hidden-gems-top-12-steps-to-make-your-fb-videos-show-up-for-2024/"><u>Reveal Hidden Gems Top 12 Steps to Make Your FB Videos Show Up for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/unlocking-efficiency-in-video-editing-with-these-top-10-apps-for-2024/"><u>Unlocking Efficiency in Video Editing with These Top 10 Apps for 2024</u></a></li>
+<li><a href="https://win-docs.techidaily.com/wiederherstellung-von-daten-aus-einem-bootfahigen-usb-auf-windows-11-schritt-fur-schritt-anleitung/"><u>Wiederherstellung Von Daten Aus Einem Bootfähigen USB Auf Windows 11: Schritt-Für-Schritt-Anleitung</u></a></li>
 </ul></div>
 

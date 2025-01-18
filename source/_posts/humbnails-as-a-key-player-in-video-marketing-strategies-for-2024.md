@@ -1,7 +1,7 @@
 ---
 title: "[New] Thumbnails as a Key Player in Video Marketing Strategies for 2024"
-date: 2025-01-10T19:47:56.403Z
-updated: 2025-01-12T17:38:36.990Z
+date: 2025-01-14T03:13:27.425Z
+updated: 2025-01-18T14:07:28.278Z
 tags:
   - ai video
   - ai youtube
@@ -42,7 +42,7 @@ Viewers click on thumbnails that both standout and feel relevant to their search
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: How to Make a YouTube Thumbnail
@@ -52,6 +52,10 @@ In order to create a custom video thumbnail, you’ll need a program to put it t
 Here are some examples of popular thumbnail styles.
 
  ![Popular YouTube Thumbnail Layout](https://images.wondershare.com/filmora/article-images/popular-youtube-thumbnail-layout.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. The Classic Thumbnail (Photo or Screenshot)
 
@@ -109,10 +113,6 @@ In your thumbnail maker or a program like Photoshop, you’ll need to put your p
 
 If instead of an object you plan to fill the other side of your thumbnail with text, question marks, emojis, or some other graphic element then now is the time to add it.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: How to Upload a YouTube Thumbnail
 
 When you upload a new video to YouTube, you will see a **Custom thumbnail** option under **Video thumbnails** after your upload is complete.
@@ -130,6 +130,10 @@ YouTube recommends that thumbnail images have a resolution of **1280x720px**, an
 
 Make sure that all of your thumbnails adhere to YouTube’s Community guidelines. Anything sexually suggestive, violent, or otherwise graphic could result in your video being age-restricted.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: YouTube Thumbnail Makers
 
 You don’t have to go out and buy a photo editor like Photoshop to make custom video thumbnails (although it’s a good thing to use if you already have it). Here are two free online programs you can use instead:
@@ -143,10 +147,6 @@ Generally, using Canva is as easy as dragging and dropping things where you want
 You can make changes to the colors in your Spark thumbnail easily by selecting a new color scheme or filter. You can even toggle through layouts easily. When you choose a new layout, Spark will rearrange all the pieces of your current thumbnail to align with the new layout so you can quickly see what it looks like instead of having to rebuild.
 
 Click to check more [YouTube thumbnail makers](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 4: How to Make Thumbnails That Get Clicks (Without Clickbait!)
 
@@ -187,7 +187,7 @@ Type your video’s title or topic into the search engine on YouTube and look at
 Generally, if most of the thumbnails have the same layout, you’ll want to mimic that layout. Where you can break from the crowd is in the colors, fonts, and graphics you use.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 5: Animated YouTube Thumbnails
@@ -199,7 +199,7 @@ As of now, this only works in the Google Chrome desktop browser. Videos have to 
 Alright, now that you know everything about YouTube thumbnails, go make one! Tell us in the comments what you’re going to do to make your video thumbnails stand out.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Touch Up YouTube Videos with Effects & Elements in Filmora
@@ -231,19 +231,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-decode-and-resolve-youtube-short-errors-for-2024/"><u>[New] Decode and Resolve YouTube Short Errors for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/n-2024-elevate-video-popularity-12-key-strategies-unveiled/"><u>[New] In 2024, Elevate Video Popularity 12 Key Strategies Unveiled</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-from-viewers-to-vips-ajays-strategy-for-sustainable-income-streams/"><u>[Updated] 2024 Approved From Viewers to VIPs Ajay's Strategy for Sustainable Income Streams</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-how-to-create-animated-bouncing-text/"><u>[Updated] 2024 Approved How to Create Animated Bouncing Text</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-premier-collectors-list-top-shorts-for-free-online/"><u>[Updated] 2024 Approved Premier Collector's List Top Shorts for FREE Online</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-making-your-mark-on-youtube-a-branding-blueprint/"><u>[Updated] In 2024, Making Your Mark on YouTube – A Branding Blueprint</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/2024-approved-crafting-a-connected-collection-across-applications/"><u>2024 Approved Crafting a Connected Collection Across Applications</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-earnings-exploration-how-youtube-turns-viewers-into-cash/"><u>2024 Approved Earnings Exploration How YouTube Turns Viewers Into Cash</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/2024-approved-mastering-the-art-of-igtv-production-phone-and-dslr-techniques/"><u>2024 Approved Mastering the Art of IGTV Production Phone and DSLR Techniques</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-on-storm-5g-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to recover deleted photos on Storm 5G</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-track-imei-number-of-tecno-spark-20-pro-through-google-earth-by-drfone-android/"><u>In 2024, How To Track IMEI Number Of Tecno Spark 20 Pro Through Google Earth?</u></a></li>
-<li><a href="https://discover-able.techidaily.com/is-replacing-your-laptops-cooling-unit-essential-insights-by-yl-software-and-hardware-experts/"><u>Is Replacing Your Laptop's Cooling Unit Essential? Insights by YL Software & Hardware Experts</u></a></li>
-<li><a href="https://fox-tips.techidaily.com/quickly-resolve-windows-11-safe-mode-failed-discover-3-simple-troubleshooting-steps/"><u>Quickly Resolve 'Windows 11 Safe Mode Failed'? Discover 3 Simple Troubleshooting Steps</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ue-rise-at-the-half-million-club-500-subs-count-for-2024/"><u>Revenue Rise at the Half-Million Club 500 Subs Count for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/rom-raw-footage-to-youtube-a-step-by-step-process-unveiled/"><u>[New] From Raw Footage to YouTube A Step-by-Step Process Unveiled</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-diving-into-video-quality-dslr-vs-mirrorless-cameras/"><u>[New] In 2024, Diving Into Video Quality DSLR vs Mirrorless Cameras</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-from-raw-footage-to-youtube-perfection-premiere-pro-techniques/"><u>[New] In 2024, From Raw Footage to YouTube Perfection - Premiere Pro Techniques</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-premier-experts-innovative-instragram-hlv-designs/"><u>[New] In 2024, Premier Experts Innovative Instragram HLV Designs</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/astering-multi-platform-content-delivery-youtube-and-beyond-for-2024/"><u>[New] Mastering Multi-Platform Content Delivery YouTube & Beyond for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nveiling-youtube-live-an-overview-of-thumbnails/"><u>[New] Unveiling YouTube Live An Overview of Thumbnails</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-turn-your-tactical-talks-into-a-thriving-youtube-trade/"><u>[Updated] 2024 Approved Turn Your Tactical Talks Into a Thriving YouTube Trade</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-breaking-down-youtube-tv-must-know-aspects-for-consumers/"><u>[Updated] In 2024, Breaking Down YouTube TV Must Know Aspects for Consumers</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-infinite-professional-slideshow-resource-for-businesses/"><u>[Updated] Infinite Professional Slideshow Resource for Businesses</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-unlocking-maximum-video-sizes-in-instagram-upload-for-2024/"><u>[Updated] Unlocking Maximum Video Sizes in Instagram Upload for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-navigating-video-uploads-and-enhancements-in-instagram/"><u>2024 Approved Navigating Video Uploads and Enhancements in Instagram</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/bypass-icloud-activation-lock-with-imei-code-from-iphone-12-pro-by-drfone-ios/"><u>Bypass iCloud Activation Lock with IMEI Code From iPhone 12 Pro</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-how-to-check-distance-and-radius-on-google-maps-for-your-apple-iphone-11-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Check Distance and Radius on Google Maps For your Apple iPhone 11 | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-lock-your-realme-note-50-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>In 2024, Lock Your Realme Note 50 Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ly-income-on-youtubes-revenue-model/"><u>Monthly Income on YouTube's Revenue Model?</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/prime-buzz-generator-prodigy/"><u>Prime Buzz Generator Prodigy</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/secure-iphone-file-deletion-apps-how-to-permanently-remove-personal-information/"><u>Secure iPhone File Deletion Apps: How to Permanently Remove Personal Information</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nail-magic-a-filmmakers-mobile-techniques-for-youtube-for-2024/"><u>Thumbnail Magic A Filmmaker's Mobile Techniques for YouTube for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/unlock-better-performance-in-tainted-grail-conquest-a-guide-to-higher-fps/"><u>Unlock Better Performance in 'Tainted Grail: Conquest': A Guide to Higher FPS</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Prove Your Expertise in Minutes  Essential YouTube Hacks at a Glance\""
-date: 2025-01-03T19:10:15.577Z
-updated: 2025-01-06T02:45:29.907Z
+date: 2025-01-15T14:25:34.338Z
+updated: 2025-01-18T15:23:33.476Z
 tags:
   - ai video
   - ai youtube
@@ -37,6 +37,10 @@ With that said, the following two-columned tables give you detailed information 
 
 To make things convenient for you, the shortcut keys are placed under their corresponding categories, where each category is in the form of a two-columned table.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Category 1: YouTube Playback Hotkeys
 
 While watching a YouTube video, there might be instances when you want to pause and resume the playback. This category teaches how this can be done using the keyboard:
@@ -65,10 +69,6 @@ If you’re watching videos on YouTube mobile app, you can use double-tap on the
 
 Long press the Video Player and swipe right will navigate the video forward; and long press the video player and wwipe left will navigate the video backward.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Category 3: Manage Playback Speed
 
 This category contains information on increasing or decreasing the playback speed of a YouTube video:
@@ -79,7 +79,7 @@ This category contains information on increasing or decreasing the playback spee
 | 'SHIFT' + ',' (Comma)  | Decrease playback speed |
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Category 4: Managing the Captions
@@ -94,6 +94,10 @@ This category talks about managing the video captions using the shortcut keys:
 | '-' (Minus Key)    | Reduce the font size of the captions (Minus key on the Numpad isn't supported)                                       |
 | '+' (Plus Key)     | Increase the font size of the captions (Plus key on the Numpad isn't supported)                                      |
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Category 5: Managing the Audio Video
 
 This category shows the shortcut keys to manage audio for a YouTube video:
@@ -103,10 +107,6 @@ This category shows the shortcut keys to manage audio for a YouTube video:
 | 'M'               | Mute YouTube video    |
 | '↑'               | Increase volume by 5% |
 | '↓'               | Decrease volume by 5% |
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Category 6: Switching Between Screen Modes
 
@@ -122,6 +122,10 @@ Double press F/T/I on the keyboard will exit the full-screen/theater model/indep
 
 If you are watching video on YouTube mobile app, you can swipe up the video slightly to enter the full screen mode, and swipe down the video slightly to exit the full screen.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Category 7: Viewing 360o/VR Videos
 
 In this category, the navigation and management of shortcut keys for 360o and Virtual Reality (VR) view are discussed:
@@ -133,10 +137,6 @@ In this category, the navigation and management of shortcut keys for 360o and Vi
 | '-' (Minus Key on Numpad)   | Zoom out                                              |
 | '-' (Minus Key on Keyboard) | Decrease font size                                    |
 | '+' (Plus Key on Keyboard)  | Increase font size                                    |
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Bonus: How to Get the YouTube Shortcut List with One-Click
 
@@ -159,7 +159,7 @@ As one of the most popular video editing software among YouTubers, Filmora provi
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -185,16 +185,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-capture-chuckles-quickly-efficient-methods-for-exciting-youtube-reaction-videos-3-tips/"><u>[New] 2024 Approved Capture Chuckles Quickly Efficient Methods for Exciting YouTube Reaction Videos (3 Tips)</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-content-revenue-route-map-comparing-the-best-streaming-platforms/"><u>[New] 2024 Approved Content Revenue Route Map Comparing the Best Streaming Platforms</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-elevating-your-vlogs-with-high-quality-editing-premiere-pro-style/"><u>[New] 2024 Approved Elevating Your Vlogs with High-Quality Editing - Premiere Pro Style</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-essential-strategies-for-viewing-your-subscribers/"><u>[New] 2024 Approved Essential Strategies for Viewing Your Subscribers</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-quick-guide-to-concisely-editing-youtube-videos/"><u>[New] 2024 Approved Quick Guide to Concisely Editing YouTube Videos</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-converting-moments-into-art-gopro-studios-time-lapse-blueprint-for-2024/"><u>[New] Converting Moments Into Art GoPro Studio's Time Lapse Blueprint for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-giggle-o-meter-rising-top-tiktok-joke-threads-for-laughter/"><u>[Updated] 2024 Approved Giggle-O-Meter Rising Top TikTok Joke Threads for Laughter</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-the-best-ios-camera-apps-to-elevate-your-iphone-imagery/"><u>[Updated] 2024 Approved The Best iOS Camera Apps to Elevate Your iPhone Imagery</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/ditch-premiere-elements-10-better-video-editing-options-for-you/"><u>Ditch Premiere Elements 10 Better Video Editing Options for You</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/elevating-youtube-consumption-strategies-for-organizing-videos-for-future-viewing/"><u>Elevating YouTube Consumption Strategies for Organizing Videos for Future Viewing</u></a></li>
-<li><a href="https://discover-hacks.techidaily.com/steps-to-successfully-restore-lost-email-messages-on-a-personal-computer/"><u>Steps to Successfully Restore Lost Email Messages on a Personal Computer</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-deciphering-the-world-of-youtube-media-conglomerates/"><u>[New] In 2024, Deciphering the World of YouTube Media Conglomerates</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nlock-your-videos-potential-with-these-7-audio-treasures-for-2024/"><u>[New] Unlock Your Video's Potential with These 7 Audio Treasures for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-rapid-reader-advanced-windows-photoshop/"><u>[Updated] Rapid Reader - Advanced Windows Photoshop</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-journey-to-visual-vigor-a-beginners-guidebook/"><u>2024 Approved Journey to Visual Vigor A Beginner's Guidebook</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-apple-iphone-6s-plus-drfone-by-drfone-virtual-ios/"><u>4 solution to get rid of pokemon fail to detect location On Apple iPhone 6s Plus | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-essential-techniques-in-creating-youtube-thumbnails-that-stand-out/"><u>In 2024, Essential Techniques in Creating YouTube Thumbnails That Stand Out</u></a></li>
+<li><a href="https://techidaily.com/is-your-oneplus-11-5g-working-too-slow-heres-how-you-can-hard-reset-it-drfone-by-drfone-reset-android-reset-android/"><u>Is your OnePlus 11 5G working too slow? Heres how you can hard reset it | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/hot-sentence-maker-for-2024/"><u>Snapshot Sentence Maker for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/top-windows-vob-to-xvid-converter-updated-guide-and-reviews/"><u>Top Windows VOB to XviD Converter: Updated Guide & Reviews</u></a></li>
 </ul></div>
 

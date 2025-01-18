@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to View YouTube Statistics?"
-date: 2025-01-07T20:00:56.147Z
-updated: 2025-01-12T20:43:41.808Z
+date: 2025-01-11T17:22:47.574Z
+updated: 2025-01-18T06:37:23.567Z
 tags:
   - ai video
   - ai youtube
@@ -47,17 +47,13 @@ As one of the best video editing software for YouTube, [Filmora](https://tools.t
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 [![Get free YouTube Subscribers Guide Banner](https://images.wondershare.com/filmora/article-images/get-free-youtube-subs-banner.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to View Your YouTube Statistics
@@ -67,10 +63,6 @@ In order to view your YouTube Analytics, sign in to your YouTube account and go 
 In order to check which of your videos are performing the best, click on **Watch time** under **Watch time reports**. At the top of the page there’ll be a graph of your watch time in general, and if you scroll down you’ll see a list of your videos ranked by watch time. The best performing ones will be at the top and, to see more stats related to these high-performing videos, simply click on their titles. Afterwards, you’ll be able to click around the different sections in your Analytics and see reports relating to the specific video you clicked on.
 
 The two main types of analytics reports are Watch Time Reports and Interaction Reports.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1. Interpreting YouTube Watch Time Reports
 
@@ -87,7 +79,7 @@ In the watch time reports for individual videos, you will be able to see data on
 Click here for more tips on[increasing your views](https://www.filmora.io/community-blog/12-proven-ways-to-increase-youtube-views-315.html).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2. Interpreting YouTube Interaction Reports
@@ -114,6 +106,10 @@ Interaction reports can be broken down into several different reports that can h
 
 **7\. 360 heat map reports:** A heat map report works specifically with 360° videos if you are choosing to engage your audience with this type of content. Viewing YouTube video statistics for 360° heat maps will help to show the areas on your video that viewers are most interested in.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to View Other Peoples YouTube Statistics
 
 If you want to check out the statistics of rival YouTube channels ([including the most subscribed channels on YouTube](https://www.filmora.io/community-blog/youtube-subscriber-chart---the-5-most-subscribed-youtube-channels-320.html)), or channels you’re a fan of, try using [Social Blade](http://www.socialblade.com). Social Blade is one of the most trusted sources of YouTube data, and it may actually be easier to check your own basic stats there than in the Creator Studio sometimes due to their simple layout. To get started all you need to do is type the name of any YouTube channel into the search bar. You’ll be able to see reports on daily views, channel growth, and even estimated ad revenue ([learn more about how to view a channel's ad revenue here](https://www.filmora.io/community-blog/youtube-view-calculators---calculate-youtube-money%21-322.html)).
@@ -121,6 +117,10 @@ If you want to check out the statistics of rival YouTube channels ([including th
 Now that you know how to view YouTube statistics, what will you do with them?
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -143,19 +143,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/uilding-engagement-the-role-of-youtube-shorts-template-design-for-2024/"><u>[New] Building Engagement The Role of YouTube Shorts Template Design for 2024</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/new-cinematicwave-win8-software-for-2024/"><u>[New] CinematicWave Win8 Software for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/mart-tagging-amplifying-your-youtube-presence/"><u>[New] Smart Tagging Amplifying Your YouTube Presence</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-efface-thin-borders-for-a-seamless-youtube-experience/"><u>[Updated] 2024 Approved Efface Thin Borders for a Seamless YouTube Experience</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-plotline-path-to-youtube-prosperity/"><u>[Updated] 2024 Approved Plotline Path to YouTube Prosperity</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-elevate-views-premium-hashtags-to-spark-virality-in-video-snippets/"><u>[Updated] In 2024, Elevate Views Premium Hashtags to Spark Virality in Video Snippets</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-swaying-scripts-an-introduction-to-bouncy-text-animations/"><u>2024 Approved Swaying Scripts An Introduction to Bouncy Text Animations</u></a></li>
-<li><a href="https://facebook.techidaily.com/effective-tactics-for-obtaining-a-refund-on-fb/"><u>Effective Tactics for Obtaining a Refund on FB</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/effortless-solutions-for-correcting-the-missing-bootmgr-error-illustrated-tutorial/"><u>Effortless Solutions for Correcting the Missing BOOTMGR Error – Illustrated Tutorial</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-fix-ipad-or-iphone-15-stuck-on-activation-lock-by-drfone-ios/"><u>How to Fix iPad or iPhone 15 Stuck On Activation Lock?</u></a></li>
-<li><a href="https://techidaily.com/how-to-upgrade-apple-iphone-14-plus-without-losing-any-data-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Upgrade Apple iPhone 14 Plus without Losing Any Data? | Dr.fone</u></a></li>
-<li><a href="https://some-tips.techidaily.com/prime-day-extravaganza-discover-the-finest-apple-bargains-in-store-limited-time-only/"><u>Prime Day Extravaganza: Discover the Finest Apple Bargains in Store – Limited Time Only!</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/rt-of-inserting-descriptive-commentary-in-youtube-videos-for-2024/"><u>The Art of Inserting Descriptive Commentary in YouTube Videos for 2024</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/trim-vlc-videos-like-a-pro-on-mac-no-quality-degradation-guaranteed-for-2024/"><u>Trim VLC Videos Like a Pro on Mac No Quality Degradation Guaranteed for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-a-thorough-examination-of-hero5-video-content/"><u>[Updated] 2024 Approved A Thorough Examination of Hero5 Video Content</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-masterpiece-maker-top-free-editors-for-android-devices/"><u>[Updated] 2024 Approved Masterpiece Maker Top Free Editors for Android Devices</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-crafting-effective-teacher-videos-on-youtube-top-10-strategies-for-2024/"><u>[Updated] Crafting Effective Teacher Videos on YouTube – Top 10 Strategies for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-cutting-edge-strategies-for-youtube-split-screen-videos/"><u>[Updated] Cutting-Edge Strategies for YouTube Split-Screen Videos</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-prime-window-viewer-for-speedy-images/"><u>[Updated] Prime Window Viewer for Speedy Images</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-journey-through-hybrid-horizons-understanding-mixed-reality/"><u>2024 Approved Journey Through Hybrid Horizons Understanding Mixed Reality</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-the-insiders-look-at-youtube-content-regulations/"><u>2024 Approved The Insider's Look at YouTube Content Regulations</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-youtube-cpm-rates-how-much-do-youtubers-make/"><u>2024 Approved YouTube CPM Rates How Much Do YouTubers Make</u></a></li>
+<li><a href="https://solve-popular.techidaily.com/automate-your-leads-with-cookiebot-enabled-solutions/"><u>Automate Your Leads with Cookiebot-Enabled Solutions</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/expert-tips-for-enhancing-ppts-with-auditory-content-for-2024/"><u>Expert Tips for Enhancing PPTs with Auditory Content for 2024</u></a></li>
+<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-samsung-galaxy-s24plus-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Samsung Galaxy S24+ Phones with/without a PC</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-honor-magic-vs-2-drfone-by-drfone-virtual-android/"><u>In 2024, Reasons why Pokémon GPS does not Work On Honor Magic Vs 2? | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-understanding-and-executing-essential-mukbang-elements/"><u>In 2024, Understanding and Executing Essential Mukbang Elements</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/by-step-legally-convert-youtube-to-mp4-format/"><u>Step-by-Step Legally Convert YouTube to MP4 Format</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshooting-swtors-launch-failures-solutions-inside/"><u>Troubleshooting SWTOR's Launch Failures - Solutions Inside</u></a></li>
+<li><a href="https://fake-location.techidaily.com/which-is-the-best-fake-gps-joystick-app-on-samsung-galaxy-a14-5g-drfone-by-drfone-virtual-android/"><u>Which is the Best Fake GPS Joystick App On Samsung Galaxy A14 5G? | Dr.fone</u></a></li>
 </ul></div>
 

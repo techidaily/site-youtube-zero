@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Gear Up Yourself  Selecting Prime Lenses for Successful Vlogging\""
-date: 2025-01-11T22:52:44.634Z
-updated: 2025-01-12T17:21:33.242Z
+date: 2025-01-13T16:20:24.904Z
+updated: 2025-01-18T08:36:03.723Z
 tags:
   - ai video
   - ai youtube
@@ -61,10 +61,6 @@ With standard lenses or normal lenses, you won’t get the stretched out objects
 
 Out of all the other ranges in focal lengths, telephoto lenses will appear the most zoomed in. This can be beneficial for the shooter who wants to get a closer shot of a scene without having to physically be in close proximity to the scene. Objects that are further away in the background also appear larger and closer than they would appear on wide-angle or standard lenses.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Vlogging With Each Focal Length Group
 
 You can get your talking head footage using lenses from any of the three focal length groups. Depending on how you plan to vlog most of the time, though, one of the three focal lengths might be more suitable for you.
@@ -95,6 +91,10 @@ Focal lengths in camera lenses are measured in millimeters. You can vlog yoursel
 
  In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Focal Length Equivalency Table
 
 This table shows you the focal lengths needed to achieve the same shot between cameras with different sensor sizes. In order to take a shot as wide as the shot I took of myself with the 24mm lens on my full-frame camera, I would need a 15mm lens on an APS-C sensor camera or a 12mm lens on a micro 4/3 camera.
@@ -110,12 +110,16 @@ This table shows you the focal lengths needed to achieve the same shot between c
 | Telephoto                   | 100mm      | 63mm  | 50mm      |
 | Telephoto                   | 200mm      | 125mm | 100mm     |
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Aperture
 
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
@@ -123,7 +127,7 @@ This table shows you the focal lengths needed to achieve the same shot between c
  ![Camera lenses Aperture Range](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture-range.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Because larger aperture lenses let more light in, they need a shorter time for cameras to compose an image. This is why larger aperture lenses are also called “fast” lenses.
@@ -131,6 +135,10 @@ This table shows you the focal lengths needed to achieve the same shot between c
 Fast lenses are more expensive because they cost more to produce. There’s a lot more that goes into them, including larger and higher quality glass elements.
 
 But do you even need a fast lens?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Vlogging With a Fast Lens
 
@@ -146,10 +154,6 @@ But do you even need a fast lens?
 * Moving subjects more likely to get out of focus when shooting with a large aperture
 * Better continuous autofocus performance needed when shooting moving subjects with a large aperture
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Optical Image Stabilization
 
 Finally, you’ll have to decide whether or not you want your lens to have built-in optical image stabilization (OIS).
@@ -163,10 +167,6 @@ If, however, you are shooting most of your vlogs on a tripod, you won’t need a
  Looking for ways to set up your talking-head shot for YouTube with any of these lenses? Check out our post on [4 Ways To Set Up Your Talking-Head Shots For YouTube](https://tools.techidaily.com/wondershare/filmora/download/).
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -189,17 +189,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-resources.techidaily.com/new-clarifying-gap-between-full-view-and-immersive-videos/"><u>[New] Clarifying Gap Between Full View & Immersive Videos</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ptimal-mics-tailored-to-youtube-professionals/"><u>[New] Optimal Mics Tailored to YouTube Professionals</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/rofessional-video-edits-at-zero-price-discover-these-tools/"><u>[New] Professional Video Edits at Zero Price - Discover These Tools</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-guffaw-generator-pictorial-mixer-for-2024/"><u>[Updated] Guffaw Generator Pictorial Mixer for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-explore-youtubes-finest-virtual-reality-content/"><u>[Updated] In 2024, Explore YouTube's Finest Virtual Reality Content</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-learn-the-easy-way-unlocking-iphone-screen-recording/"><u>[Updated] Learn the Easy Way Unlocking Iphone Screen Recording</u></a></li>
-<li><a href="https://location-social.techidaily.com/3-things-you-must-know-about-fake-snapchat-location-on-samsung-galaxy-f14-5g-drfone-by-drfone-virtual-android/"><u>3 Things You Must Know about Fake Snapchat Location On Samsung Galaxy F14 5G | Dr.fone</u></a></li>
-<li><a href="https://location-fake.techidaily.com/a-detailed-vpna-fake-gps-location-free-review-on-samsung-galaxy-m14-5g-drfone-by-drfone-virtual-android/"><u>A Detailed VPNa Fake GPS Location Free Review On Samsung Galaxy M14 5G | Dr.fone</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/acer-cb3-15-chromebook-assessment-topnotch-large-display-chrome-os-device/"><u>Acer CB3-15 Chromebook Assessment: Topnotch Large Display Chrome OS Device</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/avoid-these-8-steps-that-newcomers-often-miss-on-youtube/"><u>Avoid These 8 Steps that Newcomers Often Miss on YouTube</u></a></li>
-<li><a href="https://win11.techidaily.com/correcting-the-non-start-issue-for-windows-speech-recognition/"><u>Correcting the Non-Start Issue for Windows Speech Recognition</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-optimize-video-audio-discovering-affordable-wav-extraction-methods/"><u>In 2024, Optimize Video Audio Discovering Affordable WAV Extraction Methods</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-craft-compelling-openers-for-your-podcast-episodes-examples-and-tips/"><u>[New] 2024 Approved Craft Compelling Openers for Your Podcast Episodes Examples & Tips</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-elevating-twitter-interactions-through-personalized-video-previews/"><u>[New] Elevating Twitter Interactions Through Personalized Video Previews</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-ascend-your-earning-game-executing-a-three-part-blueprint-for-youtube-revenue-analysis/"><u>[New] In 2024, Ascend Your Earning Game Executing a Three-Part Blueprint for YouTube Revenue Analysis</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-the-secrets-of-effective-free-youtube-video-transcriptions-revealed/"><u>[Updated] 2024 Approved The Secrets of Effective, FREE YouTube Video Transcriptions Revealed</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-realigning-your-personal-soundtracks-from-spotify-to-youtube-music/"><u>[Updated] In 2024, Realigning Your Personal Soundtracks From Spotify to YouTube Music</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-the-ultimate-playbook-for-youtube-growth-and-recognition/"><u>[Updated] In 2024, The Ultimate Playbook for YouTube Growth and Recognition</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-top-8-validated-youtube-growth-solutions/"><u>[Updated] Top 8 Validated Youtube Growth Solutions</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-exploring-mukbang-culture-in-live-video-formats/"><u>2024 Approved Exploring Mukbang Culture in Live Video Formats</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-innovative-zooid-conceptual-models/"><u>2024 Approved Innovative Zooid Conceptual Models</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/cash-creation-101-the-snapchat-edition-for-2024/"><u>Cash Creation 101 The Snapchat Edition for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/easy-fixes-what-to-do-when-your-computer-freezes-up-unexpectedly/"><u>Easy Fixes: What to Do When Your Computer Freezes Up Unexpectedly</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ning-the-income-stream-for-t-series-youtube-channel-for-2024/"><u>Examining the Income Stream for T-Series YouTube Channel for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-nokia-c12-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Nokia C12 Pro? | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-top-picks-7-best-live-streaming-apps-to-upgrade-your-youtube-presence-iosandroid/"><u>In 2024, Top Picks 7 Best Live Streaming Apps to Upgrade Your YouTube Presence (iOS/Android)</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/350758-9781440636936-the-evolution-angel/"><u>The Evolution Angel | Free Book</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ng-viewers-into-valuables-a-creators-guide-to-youtube-monetization/"><u>Turning Viewers Into Valuables A Creator’s Guide to YouTube Monetization</u></a></li>
 </ul></div>
 

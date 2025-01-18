@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  How to Stabilize Your Camera without Buying a Tripod?\""
-date: 2024-08-08T15:29:14.018Z
-updated: 2024-08-09T15:29:14.018Z
+date: 2025-01-11T18:44:10.298Z
+updated: 2025-01-18T12:01:57.463Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/db39cf974b891a971b269fa1b5c545ac5598c4412
 
 # DIY Tripods| How to Stabilize Your Camera without Buying a Tripod
 
-<!-- affiliate ads begin -->
-<a href="https://mushroom-supplies.sjv.io/c/5597632/1692242/18134" target="_top" id="1692242"><img src="//a.impactradius-go.com/display-ad/18134-1692242" border="0" alt="" width="834" height="592"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1692242/18134" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -32,20 +29,25 @@ thumbnail: https://thmb.techidaily.com/db39cf974b891a971b269fa1b5c545ac5598c4412
 When you’re trying to grow a channel on YouTube it can feel like equipment is a barrier, but it shouldn’t be. If you can’t afford a high-end tripod, for example, there are loads of ways to get by without one.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
-<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### DIY Your Video with Wondershare Filmora
 
 Wondershare Filmora has the best video stabilization tool is your videos have a bad frame or were recorded in dim lights. If a video is shot in bad weather or unfriendly situation where you don’t have all the equipment required for a quality recording, Wondershare Filmora can help you in the background to edit your videos like a pro. And it has all the relevant tools like effects, transitions, background removal, overlays, and background music that could turn your normal video to a professional one.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Here are 3 of our favorite DIY tripods.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### **DIY smartphone tripod using binder clips or hair clips**
 
 You’re a solo operation and your best camera is on your phone. That’s pretty common.
@@ -62,18 +64,16 @@ Here it is with binder clips:
 
 And here it is with hair clips:
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
-<!-- affiliate ads end -->
 ### **DIY adjustable tripod using books and a towel**
 
 You’ve probably heard a million times that you can stabilize your camera by sitting it down on any stable surface – on your desk, on a stack of books, up in a tree, etc. This is very true!
@@ -92,8 +92,9 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -130,14 +131,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -146,6 +144,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-distance-doesnt-matter-advanced-podcast-capturing-for-2024/"><u>[New] Distance Doesn't Matter Advanced Podcast Capturing for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-diversify-earnings-multiplying-revenue-with-mobile-video-content/"><u>[New] In 2024, Diversify Earnings Multiplying Revenue with Mobile Video Content</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-mp4-player-guide-top-selections-for-2024/"><u>[New] MP4 Player Guide Top Selections for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-action-sequels-the-best-games-like-grand-theft-auto/"><u>[Updated] 2024 Approved Action Sequels The Best Games Like Grand Theft Auto</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-comedy-in-a-click-best-funny-short-video-suggestions-for-youtubers/"><u>[Updated] 2024 Approved Comedy in a Click Best Funny Short Video Suggestions for YouTubers</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-real-time-view-counter-analyzers/"><u>[Updated] In 2024, Real-Time View Counter Analyzers</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-rhythm-roundup-hot-music-for-todays-top-youtube-short-videos/"><u>[Updated] In 2024, Rhythm Roundup Hot Music for Today’s Top YouTube Short Videos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-a-step-by-step-strategy-to-design-engaging-youtube-teasers/"><u>2024 Approved A Step-by-Step Strategy to Design Engaging YouTube Teasers</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/o-strategically-use-tags-for-youtube-success/"><u>How to Strategically Use Tags for YouTube Success</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-use-ispoofer-on-nokia-105-classic-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Nokia 105 Classic? | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-profit-strategies-for-beauty-streams/"><u>In 2024, Profit Strategies for Beauty Streams</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-your-beginners-guide-to-making-money-on-youtubers/"><u>In 2024, Your Beginner's Guide to Making Money on YouTubers</u></a></li>
+<li><a href="https://driver-download.techidaily.com/network-free-driver-setup-guide-for-windows-users/"><u>Network-Free Driver Setup Guide for Windows Users</u></a></li>
+<li><a href="https://win-studio.techidaily.com/secure-restoration-simple-steps-to-recover-lost-gmail-messages/"><u>Secure Restoration: Simple Steps to Recover Lost Gmail Messages</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/step-by-step-guide-sharing-your-printer-with-multiple-devices/"><u>Step-by-Step Guide: Sharing Your Printer with Multiple Devices</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ing-as-a-novice-youtuber-sidestep-these-8-crucial-pitfalls/"><u>Thriving as a Novice YouTuber? Sidestep These 8 Crucial Pitfalls!</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/top-techniques-for-crafting-engaging-youtube-shorts-templates-for-2024/"><u>Top Techniques for Crafting Engaging YouTube Shorts Templates for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-the-0x80-grove-2f8f-error-in-windows-11-and-10/"><u>Troubleshooting the 0X80 Grove 2F8f Error in Windows 11 and 10</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/why-claude-stands-out-in-the-battle-of-ai-conversation-models-part-14/"><u>Why Claude Stands Out in the Battle of AI Conversation Models, Part 1/4</u></a></li>
+</ul></div>
 

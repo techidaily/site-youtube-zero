@@ -1,7 +1,7 @@
 ---
 title: Quick Solutions When Your Laptop's Audio Output Fails
-date: 2025-01-06T21:39:44.690Z
-updated: 2025-01-12T21:54:08.991Z
+date: 2025-01-11T16:17:33.088Z
+updated: 2025-01-17T18:31:05.610Z
 tags:
   - win11
   - win10
@@ -24,10 +24,6 @@ thumbnail: https://thmb.techidaily.com/9b6869e231e2667ce5b62099e4b236daaa6b93b4b
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Try these fixes**
 
  Here’s a list of fixes that have resolved this problem for other HP laptop users. You don’t have to try them all. Just work your way through the list until you find the one that does the trick for you.
@@ -41,7 +37,7 @@ thumbnail: https://thmb.techidaily.com/9b6869e231e2667ce5b62099e4b236daaa6b93b4b
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **Fix 1: Run Windows audio playback troubleshooter**
@@ -54,15 +50,7 @@ thumbnail: https://thmb.techidaily.com/9b6869e231e2667ce5b62099e4b236daaa6b93b4b
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/snap000232.png)
 3. Follow the on-screen instructions to troubleshoot the audio playback issue.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  When it is completed, play a song on your HP laptop to see if you resolved the no sound issue. If not, try the next fix, below.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **Fix 2: Update your audio driver**
 
@@ -89,6 +77,10 @@ thumbnail: https://thmb.techidaily.com/9b6869e231e2667ce5b62099e4b236daaa6b93b4b
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/Snap908-2.png)  
  You can do it for free if you like, but it’s partly manual.  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  If you need assistance, please contact **Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/)**  .
 
 ### **Fix 3: Check your audio settings**
@@ -99,17 +91,25 @@ thumbnail: https://thmb.techidaily.com/9b6869e231e2667ce5b62099e4b236daaa6b93b4b
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/Snap432.jpg)
 2. Navigate to**the Playback tab** .**Right-click** anywhere on the Playback tab of the Sound window, and make sure you select**Show Disabled Devices** and**Show Disconnected Devices** options.  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/snap000237-2.png)
 3. If your laptop speaker is disabled,**right-click** your laptop speaker and select**Enable** .  
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/snap000236.png)
 4. Select the speaker / headphone you’re using and  click **Set Default** .  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/Snap442-1.jpg)
 5. Click**OK** to save the changes.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 6. On your desktop,   **right-click**  **the speaker icon**  on the lower-right corner, and then select**Open Volume Mixer**  .  
@@ -117,7 +117,7 @@ thumbnail: https://thmb.techidaily.com/9b6869e231e2667ce5b62099e4b236daaa6b93b4b
 7. If you see some application is muted, click**the speaker icon** under that application to unmute it.  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/snap000235-2.png)
@@ -126,17 +126,13 @@ thumbnail: https://thmb.techidaily.com/9b6869e231e2667ce5b62099e4b236daaa6b93b4b
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/snap000238.png)
 10. In Device Manager,**double-click** **Sound, video and game controllers** to expand the list. If you see**a downward arrow** next to your audio device,**right-click** it then select**Enable device** to enable it.  
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/snap000240.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Play a song on your HP laptop to see if the no sound issue is resolved. If not, try the next fix to restart Windows audio service.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **Fix 4: Restart Windows audio service**
 
@@ -144,6 +140,10 @@ thumbnail: https://thmb.techidaily.com/9b6869e231e2667ce5b62099e4b236daaa6b93b4b
 
 1. On your keyboard, press **the Windows logo key**   and **R**   at the same time to open the Run dialog. Type **services.msc**   and press **Enter** . You’ll be prompted for permission. Click **Yes**   to open **Services** .![](https://images.drivereasy.com/wp-content/uploads/2018/10/Snap190-5.png)
 2. Scroll down to locate **Windows Audio** . **Right-click**   it and select **Properties** .![](https://images.drivereasy.com/wp-content/uploads/2018/10/Snap193-5.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 3. Under the **General**   tab, if the service is disabled, click **Star**   to enable it. For **Startup type** , select **Automatic** .  
 
@@ -186,21 +186,17 @@ thumbnail: https://thmb.techidaily.com/9b6869e231e2667ce5b62099e4b236daaa6b93b4b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/rom-boring-to-breathtaking-the-transformation-of-channel-titles/"><u>[New] From Boring to Breathtaking The Transformation of Channel Titles</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/rom-hundreds-to-millions-a-youtube-growth-journey/"><u>[New] From Hundreds to Millions A YouTube Growth Journey</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/echnique-to-implement-youtube-playlists-smoothly-into-web-pages/"><u>[New] Technique to Implement YouTube Playlists Smoothly Into Web Pages</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-building-a-powerhouse-business-channel-in-under-5-minutes/"><u>[Updated] 2024 Approved Building a Powerhouse Business Channel in Under 5 Minutes</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-no-more-youtube-the-best-5-alternative-editors-await/"><u>[Updated] In 2024, No More Youtube? The Best 5 Alternative Editors Await</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-the-ultimate-guide-to-easy-content-making-10-basic-youtube-videos/"><u>[Updated] The Ultimate Guide to Easy Content Making 10 Basic YouTube Videos</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/2024-approved-revolutionize-your-audio-pazera-free-extractor-insights/"><u>2024 Approved Revolutionize Your Audio Pazera Free Extractor Insights</u></a></li>
-<li><a href="https://techtrends.techidaily.com/comprehensive-guide-to-resolving-dll-file-missing-issues/"><u>Comprehensive Guide to Resolving .dll File Missing Issues</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/exploring-value-for-money-cpus-in-depth-tutorial-and-ranking-hardware-central/"><u>Exploring Value for Money CPUs : In-Depth Tutorial and Ranking - Hardware Central</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-deal-with-the-vivo-v30-lite-5g-screen-black-but-still-works-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Deal With the Vivo V30 Lite 5G Screen Black But Still Works? | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-does-apple-iphone-xs-max-have-find-my-friends-drfone-by-drfone-virtual-ios/"><u>In 2024, Does Apple iPhone XS Max Have Find My Friends? | Dr.fone</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/props-to-the-best-android-tools-for-playstation-2-experience-for-2024/"><u>Props to the Best Android Tools for PlayStation 2 Experience for 2024</u></a></li>
-<li><a href="https://games-able.techidaily.com/the-real-cost-behind-ea-play-experience/"><u>The Real Cost Behind EA Play Experience</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ideo-creators-guide-to-igtv-and-youtube-finding-the-right-fit/"><u>The Video Creator’s Guide to IGTV & YouTube Finding the Right Fit</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/top-10-best-4k-dslr-shoulder-rigs/"><u>Top 10 Best 4K DSLR Shoulder Rigs</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ing-the-tape-youtube-video-rotation-techniques-unveiled-for-2024/"><u>Twisting the Tape YouTube Video Rotation Techniques Unveiled for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-how-to-download-youtube-thumbnail-in-3-ways-onlinewinmac/"><u>[New] 2024 Approved How to Download YouTube Thumbnail in 3 Ways [Online/Win/Mac]</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-digital-artistry-perfecting-your-photoshop-skills/"><u>[New] In 2024, Digital Artistry Perfecting Your Photoshop Skills</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/eyword-kickstart-the-top-7-free-user-friendly-video-tag-extractors-analyzed/"><u>[New] Keyword Kickstart The Top 7 Free, User-Friendly Video Tag Extractors Analyzed</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-raising-livestock-a-guide-to-ginger-island-farm-for-2024/"><u>[New] Raising Livestock A Guide to Ginger Island Farm for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-breaking-down-barriers-adding-chapters-to-create-cohesive-youtube-lessons-for-2024/"><u>[Updated] Breaking Down Barriers Adding Chapters to Create Cohesive YouTube Lessons for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-how-to-strategically-use-tags-for-youtube-success/"><u>[Updated] In 2024, How to Strategically Use Tags for YouTube Success</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-expert-advice-at-your-screen-the-finest-15-stock-channels/"><u>2024 Approved Expert Advice at Your Screen The Finest 15 Stock Channels</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-unwind-with-laughter-curating-15-hilarious-youtube-masterpieces/"><u>2024 Approved Unwind with Laughter Curating 15 Hilarious YouTube Masterpieces</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/convert-avchd-files-to-mp4-at-no-cost-top-5-methods-on-windows-11/"><u>Convert AVCHD Files to MP4 at No Cost: Top 5 Methods on Windows 11</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/mastering-srt-output-from-adobe-premiere/"><u>Mastering SRT Output From Adobe Premiere</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/premium-fitness-apps-the-secret-to-enhanced-workouts-and-performance/"><u>Premium Fitness Apps: The Secret to Enhanced Workouts and Performance?</u></a></li>
+<li><a href="https://win-alternatives.techidaily.com/windows-10-wd-ssd/"><u>Windows 10 のディスククローニング: WD SSDへ完全手引き</u></a></li>
 </ul></div>
 

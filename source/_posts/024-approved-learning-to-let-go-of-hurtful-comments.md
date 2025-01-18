@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Learning to Let Go of Hurtful Comments\""
-date: 2024-08-08T15:30:28.582Z
-updated: 2024-08-09T15:30:28.582Z
+date: 2025-01-16T21:36:07.027Z
+updated: 2025-01-17T18:52:00.336Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/78af3078c80b8e3712553330740f219cdae8af451
 
 # How To Deal with YouTube Trolls and Negative Comments
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -30,8 +27,9 @@ thumbnail: https://thmb.techidaily.com/78af3078c80b8e3712553330740f219cdae8af451
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Deal with Negative Comments on YouTube
 
 #### 1\. Identifying Trolls / When Is A Troll Not a Troll?
@@ -58,10 +56,11 @@ thumbnail: https://thmb.techidaily.com/78af3078c80b8e3712553330740f219cdae8af451
 
  You will not get the troll to say they were wrong or apologize so that should never be your goal. What you can do is create a public record of the troll being corrected for others to judge for themselves. If you maintain a calm, unaffected, tone then the troll will find you boring.
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -69,14 +68,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -85,6 +81,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-knowledge.techidaily.com/new-free-windows-screen-capture-top-5-applications-reviewed/"><u>[New] Free Windows Screen Capture Top 5 Applications Reviewed</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/oyful-jests-crafting-top-humorous-content-ideas-for-youtubers/"><u>[New] Joyful Jests Crafting Top Humorous Content Ideas for YouTubers</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-rhythmic-reels-how-to-pick-beats-for-ig-content-for-2024/"><u>[New] Rhythmic Reels How to Pick Beats for IG Content for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-stop-automated-youtube-content-rollouts/"><u>[Updated] 2024 Approved Stop Automated YouTube Content Rollouts</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-arc-electrify-powerful-media-player-replacement-for-2024/"><u>[Updated] Arc Electrify Powerful Media Player Replacement for 2024</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-in-2024-navigating-video-submission-on-facebook-from-your-gadgets/"><u>[Updated] In 2024, Navigating Video Submission on Facebook From Your Gadgets</u></a></li>
+<li><a href="https://dvd-bd.techidaily.com/1-top-file-sharing-solutions-effortless-transfers-between-macos-and-ios/"><u>1. Top File-Sharing Solutions: Effortless Transfers Between macOS & iOS</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-visionary-composer-dual-elements-conjoined/"><u>2024 Approved Visionary Composer Dual Elements Conjoined</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ngs-explosion-boosting-your-youtube-channels-income-via-mobile-for-2024/"><u>Earnings Explosion Boosting Your YouTube Channel's Income via Mobile for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/video-conference-to-youtube-broadcast-google-meet-explained/"><u>From Video Conference to Youtube Broadcast Google Meet Explained</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-a-asus-rog-phone-7-phone-that-is-locked-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset a Asus ROG Phone 7 Phone That Is Locked | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-nubia-red-magic-8s-pro-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Nubia Red Magic 8S Pro to Any iOS Devices | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/revolutionizing-advertising-top-20-influential-expressions/"><u>Revolutionizing Advertising Top 20 Influential Expressions</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-ultimate-guide-7-steps-for-stellar-cooking-films-for-2024/"><u>The Ultimate Guide 7 Steps for Stellar Cooking Films for 2024</u></a></li>
+</ul></div>
 

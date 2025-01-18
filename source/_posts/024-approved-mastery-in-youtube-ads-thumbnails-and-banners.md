@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Mastery in YouTube Ads  Thumbnails & Banners\""
-date: 2024-08-08T15:28:43.231Z
-updated: 2024-08-09T15:28:43.231Z
+date: 2025-01-16T20:00:32.486Z
+updated: 2025-01-17T20:53:53.077Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/7079de538a777b736a226ef7753a657beca0fed63
 
 # How to Make YouTube Banners and Thumbnails
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -30,8 +27,9 @@ thumbnail: https://thmb.techidaily.com/7079de538a777b736a226ef7753a657beca0fed63
 The art on your [YouTube channel](https://tools.techidaily.com/wondershare/filmora/download/) – banners, thumbnails, icons, and watermarks – will help to determine how viewers feel about your vlog. If your art does not look like it all goes together then people will get a sloppy, amateurish, impression of your channel. However, if your different pieces of channel art all seem to complement each other and match the tone and theme of your channel then it will help viewers to have a pleasant browsing experience. They will get the impression that you take your YouTube channel seriously and that they can trust you as a source of information, comedy, or general entertainment.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Make YouTube Banners and Thumbnails
 
 YouTube Banners and Thumbnails are two of the most important pieces of channel art you will need. This article will explain the best practices for both, and suggest sites where you will be able to build your own banners and thumbnails for free.
@@ -69,28 +67,27 @@ One thumbnail taboo that you should never break is using an image that has nothi
 
 There are sites online that will allow you to edit images and use them in templates for YouTube banners. You can also use these services to edit your thumbnails. Two of the most popular, free, online photo editors are PicMonkey.com and Canva.com.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Yearly Membership</a>
-<!-- affiliate ads end -->
 ![banner n thumb Canva](https://images.wondershare.com/filmora/article-images/banner-n-thumb-Canva.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Canva** has templates you can use to create YouTube banners, as well as a variety of stock images you can use in combination with your own when creating channel art. It is free to edit images on Canva, but they do have some premium features which cost $1 each to access. This service has both a desktop version and an iPad app.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
-<!-- affiliate ads end -->
 ![banner n thumb PicMonkey](https://images.wondershare.com/filmora/article-images/banner-n-thumb-PicMonkey.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **PicMonkey** lets you import images from your computer or social media accounts, edit them, and use them in templates for YouTube banners or other kinds of social media graphics. PicMonkey is free to use, but you can only access their more advanced editing tools if you buy a paid subscription. Monthly subscriptions are $4.99 per month, and yearly subscriptions are $2.75 per month.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -98,14 +95,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -114,6 +108,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/uild-your-wealth-on-youtube-a-guide-to-creating-content-without-ads/"><u>[New] Build Your Wealth on YouTube A Guide to Creating Content Without Ads</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-transform-your-gaming-soundscape-ps5-and-ps4-edition/"><u>[New] In 2024, Transform Your Gaming Soundscape PS5 & PS4 Edition</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-boost-your-youtube-earnings-with-effective-adsense-use/"><u>[Updated] 2024 Approved Boost Your YouTube Earnings with Effective AdSense Use</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-exceptional-phones-topping-list-for-high-definition-video/"><u>[Updated] 2024 Approved Exceptional Phones Topping List for High Definition Video</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-access-unlimited-free-high-quality-green-screen-footage-online/"><u>[Updated] Access Unlimited Free, High-Quality Green Screen Footage Online</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-smartphone-strategies-to-create-dynamic-and-effective-youtube-thumbnails/"><u>[Updated] In 2024, Smartphone Strategies to Create Dynamic and Effective YouTube Thumbnails</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-skin-care-secrets-unveiled/"><u>[Updated] Skin Care Secrets Unveiled</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/mple-tricks-to-make-your-youtube-videos-go-viral-for-2024/"><u>12 Simple Tricks to Make Your YouTube Videos Go Viral for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-choosing-your-go-to-youtube-video-downloaders-on-android-platform/"><u>2024 Approved Choosing Your Go-To YouTube Video Downloaders on Android Platform</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-foremost-frame-starters-leading-16-youtube-videos-for-more-watchers/"><u>2024 Approved Foremost Frame Starters Leading 16 YouTube Videos for More Watchers</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/fixing-dolby-pro-logic-iix-driver-errors-to-enable-audio-in-windows-11-systems/"><u>Fixing Dolby Pro Logic IIx Driver Errors to Enable Audio in Windows 11 Systems</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/vision-to-execution-the-full-spectrum-of-personal-branding-on-youtube/"><u>From Vision to Execution The Full Spectrum of Personal Branding on YouTube</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-high-altitude-escapades-the-husqvarna-h501s-review-explored/"><u>In 2024, High Altitude Escapades - The Husqvarna H501S Review Explored</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-short-form-content-breakdown-now/"><u>In 2024, Short Form Content Breakdown Now!</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/set-your-files-on-a-path-to-oblivion-with-the-stellar-erase-tool-customized-for-windows/"><u>Set Your Files On A Path To Oblivion With The Stellar Erase Tool, Customized For Windows</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/mline-your-strategy-with-aspect-ratio-mastery-on-youtube/"><u>Streamline Your Strategy with Aspect Ratio Mastery on YouTube</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/troubleshooting-tips-determining-if-the-xbox-live-service-is-down-or-your-connection-is-faulty/"><u>Troubleshooting Tips: Determining if the Xbox Live Service Is Down or Your Connection Is Faulty</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/k-physical-and-spiritual-potential-the-best-yoga-vlogs-out-there-for-2024/"><u>Unlock Physical & Spiritual Potential The Best Yoga Vlogs Out There for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/why-does-warno-keep-crashing-on-your-computer-find-solutions-now/"><u>Why Does WARNO Keep Crashing on Your Computer? Find Solutions Now</u></a></li>
+</ul></div>
 
