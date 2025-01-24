@@ -1,7 +1,7 @@
 ---
 title: "[New] Apex Artists Among Online Video Titans"
-date: 2025-01-15T13:41:11.904Z
-updated: 2025-01-18T03:14:20.691Z
+date: 2025-01-17T20:14:45.072Z
+updated: 2025-01-24T22:52:15.467Z
 tags:
   - ai video
   - ai youtube
@@ -55,10 +55,6 @@ In this article, we will take you through the 5 most popular creator channels on
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\.  PewDiePie
 
 ![PewDiePie](https://images.wondershare.com/filmora/article-images/pew-die-pie.jpg)
@@ -72,7 +68,7 @@ The most common videos on Felix's channel are gaming videos in which he comments
 ![HolaSoyGerman](https://images.wondershare.com/filmora/article-images/hola-soy-german.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 At the age of 27, Germán Alejandro Garmendia Aranis is the owner of the second most subscribed channel on YouTube with more than 32 million subscribers. Furthermore, HolaSoyGerman’s channel is the most subscribed Spanish-speaking channel today. Germán's second YouTube channel JuegaGerman has made him the only YouTuber ever to receive two diamond play buttons for having over 40 million subscribers on his two channels.
@@ -80,7 +76,7 @@ At the age of 27, Germán Alejandro Garmendia Aranis is the owner of the second 
 The Chilean YouTube superstar uploaded his first YouTube video in 2011 and by October 2012 his channel has reached 1 million subscribers. Recently, German has lent his voice to a character in the Spanish version of Ice Age: Collision Course. He finds inspiration for his comic YouTube videos in everyday life and topics like ex-girlfriends, school, and phobias are frequently covered in videos published on the HolaSoyGerman channel. In 2014 and 2015 German won the 'Icon of the Year' prize from MTV Millennial Awards.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ###  3\.  ElrubiusOMG
@@ -95,19 +91,23 @@ Based in Madrid, El Rubius OMG first became popular in Spanish-speaking countrie
 
 ![Smosh](https://images.wondershare.com/filmora/article-images/smosh.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Originally, Smosh was a channel run by sketch comedy duo Ian Andrew Hecox and Anthony Padilla. They started the Smosh YouTube channel in 2005 and since then they have grown their team to include more creators, and their content to include animation and gaming. Smosh has become much more than two funny guys on YouTube – it is a wildly successful content company.
 
 Most channels that have one viral video do not go on to have sustained success on YouTube, but Smosh is an exception to this rule. Their ‘Pokemon Theme Music Video’, released in 2005, became the most viewed video of all time (as of that year). This video kick-started the growth of their channel.
 
 In 2017, Anthony Padilla chose to leave Smosh to focus on his own solo YouTube channel.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 5\.  Fernanfloo
 
 ![Fernanfloo](https://images.wondershare.com/filmora/article-images/fernan-floo.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Yet another enormously popular YouTuber that comes from a Spanish speaking country whose channel attracted millions of subscribers. A 24-year-old Salvadoran named Luis Fernando Flores Alvarado is the man behind one of the most subscribed YouTube channels of all time. The Fernanfloo channel was created in 2011, and in February 2014 it had only 100,000 subscribers. By August 2014, Alvarado's channel reached 1 million subscribers, making him one of YouTube's biggest success stories. The videos featured on Feranfloo channel mostly cover gaming topics, but with a touch of comedy which makes Alvarado's videos unique.
 
@@ -124,7 +124,7 @@ Looking for a live [YouTube subscriber chart](https://tools.techidaily.com/wonde
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -148,18 +148,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-lightweight-realities-googles-cardboard-and-samsung-gear-vr-for-2024/"><u>[New] Lightweight Realities Google’s Cardboard and Samsung Gear VR for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-ultimate-choice-of-steadicams-for-drone-shooting/"><u>[New] Ultimate Choice of Steadicams for Drone Shooting</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-creating-dynamic-content-with-youtube-playlist-embedding-for-2024/"><u>[Updated] Creating Dynamic Content with YouTube Playlist Embedding for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-net-worth-of-kids-celebrity-reaches-new-heights/"><u>[Updated] In 2024, Net Worth of Kids Celebrity Reaches New Heights</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-unveiling-cropped-lengths-imovies-automatic-trimming-logic/"><u>[Updated] Unveiling Cropped Lengths IMovie's Automatic Trimming Logic</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-the-ultimate-chrome-selection-5-pioneers-in-fb-video-download/"><u>2024 Approved The Ultimate Chrome Selection 5 Pioneers in FB Video Download</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-things-about-youtube-tv-you-should-know/"><u>2024 Approved Things About YouTube TV You Should Know</u></a></li>
-<li><a href="https://fox-pages.techidaily.com/aomei-backupper-anleitung-zur-herstellung-einer-boot-festplatte-unter-verwendung-von-windows-preinstallation-environment-winpe-oder-linux/"><u>AOMEI Backupper: Anleitung Zur Herstellung Einer Boot-Festplatte Unter Verwendung Von Windows Preinstallation Environment (WinPE) Oder Linux</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ient-broadcast-techniques-incorporating-youtube-loops-on-tv-for-2024/"><u>Efficient Broadcast Techniques Incorporating YouTube Loops on TV for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/te-your-viewing-game-with-concurrent-channel-watches/"><u>Elevate Your Viewing Game with Concurrent Channel Watches</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-track-samsung-galaxy-a24-location-by-number-drfone-by-drfone-virtual-android/"><u>How to Track Samsung Galaxy A24 Location by Number | Dr.fone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-premium-peak-predictor-unveil-top-8-rankings/"><u>In 2024, Premium Peak Predictor Unveil Top 8 Rankings</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-what-you-need-to-know-about-vanishing-shorts-thumbnails-on-youtube/"><u>In 2024, What You Need to Know About Vanishing Shorts Thumbnails on YouTube</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-green-screen-resources-download-free/"><u>[New] 2024 Approved Green Screen Resources, Download Free</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ax-views-max-impact-discover-best-posting-days/"><u>[New] Max Views, Max Impact Discover Best Posting Days</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/roven-youtube-intra-creation-strategies-free-edition-for-2024/"><u>[New] Proven YouTube Intra Creation Strategies, Free Edition for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-skys-bounty-the-ultimate-guide-to-drone-video-editing-for-2024/"><u>[New] Sky's Bounty The Ultimate Guide to Drone Video Editing for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-understanding-user-psychology-in-youtube-shorts-template-design/"><u>[New] Understanding User Psychology in YouTube Shorts Template Design</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ideo-editing-power-filmora-for-youtube-trailers/"><u>[New] Video Editing Power Filmora for YouTube Trailers</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-vocal-vortex-validity-of-the-transmutation-app-questioned-explore-more-alternatives/"><u>[New] Vocal Vortex Validity of the Transmutation App Questioned - Explore More Alternatives</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-seamless-integration-instagram-meets-tiktok/"><u>[Updated] 2024 Approved Seamless Integration Instagram Meets TikTok</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-unlock-the-secret-to-youtube-success-reaching-a-milestone-of-500plus-views/"><u>[Updated] 2024 Approved Unlock the Secret to YouTube Success Reaching a Milestone of 500+ Views</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-how-to-download-youtube-playlist-step-by-step/"><u>[Updated] In 2024, How to Download YouTube Playlist-Step by Step</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-the-rising-tide-of-infographics-for-social-insights/"><u>[Updated] In 2024, The Rising Tide of Infographics for Social Insights</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-vanishing-acts-how-to-blur-faces-and-objects-online/"><u>[Updated] In 2024, Vanishing Acts How to Blur Faces and Objects Online</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-essential-youtube-beauty-influencers-10-creators-to-watch/"><u>2024 Approved Essential YouTube Beauty Influencers 10 Creators to Watch</u></a></li>
+<li><a href="https://network-issues.techidaily.com/fixed-windows-not-recognizing-nvidia-video-hardware/"><u>Fixed: Windows Not Recognizing NVIDIA Video Hardware</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-unlocking-the-potential-of-multi-stream-video-on-microsoft-edge/"><u>In 2024, Unlocking the Potential of Multi-Stream Video on Microsoft Edge</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/izing-classroom-impact-best-youtube-practices-for-educators/"><u>Maximizing Classroom Impact Best YouTube Practices for Educators</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/pathfinder-to-peak-physicality-chatgpts-assistance/"><u>Pathfinder to Peak Physicality: ChatGPT's Assistance</u></a></li>
 </ul></div>
 

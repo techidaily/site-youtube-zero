@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Pro Shortcuts Every YouTuber Needs - The Top 20 List\""
-date: 2024-08-08T15:33:23.961Z
-updated: 2024-08-09T15:33:23.961Z
+date: 2025-01-20T17:46:57.458Z
+updated: 2025-01-24T22:24:19.622Z
 tags:
   - ai video
   - ai youtube
@@ -28,13 +28,18 @@ YouTube, as one of the most popular free streaming video portals, the majority o
 
 With that said, the following two-columned tables give you detailed information on the shortcut keys and their respective functions, so you don’t have to grab the mouse every time you want to navigate through the YouTube videos, or do any such similar tasks.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Amazing YouTube Keyboard Shortcuts You May Not Know
 
 To make things convenient for you, the shortcut keys are placed under their corresponding categories, where each category is in the form of a two-columned table.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Category 1: YouTube Playback Hotkeys
 
 While watching a YouTube video, there might be instances when you want to pause and resume the playback. This category teaches how this can be done using the keyboard:
@@ -44,9 +49,6 @@ While watching a YouTube video, there might be instances when you want to pause 
 | 'K'               | Play and Pause (Works as a toggle key) |
 | 'Spacebar'        | Play and Pause (Works as a toggle key) |
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ### Category 2: Scrolling YouTube Videos Back and Forth
 
 This section talks about the shortcut keys to skim the video forward and backward during playback:
@@ -75,9 +77,6 @@ This category contains information on increasing or decreasing the playback spee
 | 'SHIFT' + '.' (Period) | Increase playback speed |
 | 'SHIFT' + ',' (Comma)  | Decrease playback speed |
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
-<!-- affiliate ads end -->
 ### Category 4: Managing the Captions
 
 This category talks about managing the video captions using the shortcut keys:
@@ -90,9 +89,6 @@ This category talks about managing the video captions using the shortcut keys:
 | '-' (Minus Key)    | Reduce the font size of the captions (Minus key on the Numpad isn't supported)                                       |
 | '+' (Plus Key)     | Increase the font size of the captions (Plus key on the Numpad isn't supported)                                      |
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Category 5: Managing the Audio Video
 
 This category shows the shortcut keys to manage audio for a YouTube video:
@@ -102,6 +98,10 @@ This category shows the shortcut keys to manage audio for a YouTube video:
 | 'M'               | Mute YouTube video    |
 | '↑'               | Increase volume by 5% |
 | '↓'               | Decrease volume by 5% |
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Category 6: Switching Between Screen Modes
 
@@ -117,9 +117,6 @@ Double press F/T/I on the keyboard will exit the full-screen/theater model/indep
 
 If you are watching video on YouTube mobile app, you can swipe up the video slightly to enter the full screen mode, and swipe down the video slightly to exit the full screen.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
-<!-- affiliate ads end -->
 ### Category 7: Viewing 360o/VR Videos
 
 In this category, the navigation and management of shortcut keys for 360o and Virtual Reality (VR) view are discussed:
@@ -144,19 +141,23 @@ So, when you press the Shift+? on YouTube, you will see a full list of shortcuts
 
 ![YouTube Shortcut List](https://images.wondershare.com/filmora/article-images/youtube-keyboard-shortcuts-list.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Conclusion**
 
 Watching videos on YouTube is fun, and you can enjoy the clips, movies, tutorials, etc. more if you are well-aware of the important shortcut keys. This not only helps you navigate through the videos faster but also gives you relief from the additional efforts that you would otherwise have to make while grabbing the mouse, and then looking for and using the correct option.
 
 As one of the most popular video editing software among YouTubers, Filmora provides lots of effects, title templates, transitions, and elements as well as powerful video editing tools such as instant cutter tool, [scene detection](https://tools.techidaily.com/wondershare/filmora/download/), [beat detection](https://tools.techidaily.com/wondershare/filmora/download/), [motion tracking](https://tools.techidaily.com/wondershare/filmora/download/), animation keyframe, and much more. All these editing features and effects makes Filmora as one of the best video editing software for all creators.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -164,14 +165,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -180,6 +178,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-from-novice-to-pro-harnessing-inshot-for-editing/"><u>[New] In 2024, From Novice to Pro Harnessing Inshot for Editing</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/wo-sides-to-every-story-how-to-create-balanced-reaction-videos-on-youtube-2-pov-approach/"><u>[New] Two Sides to Every Story – How to Create Balanced Reaction Videos on YouTube (2 POV Approach)</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-playing-fb-videos-on-your-apple-device/"><u>[Updated] 2024 Approved Playing FB Videos on Your Apple Device</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-streamers-vs-micro-influencers-which-platform-reigns-supreme-for-brief-videos/"><u>[Updated] 2024 Approved Streamers Vs. Micro-Influencers Which Platform Reigns Supreme for Brief Videos?</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-crafting-the-perfect-picture-for-youtube-upload/"><u>[Updated] Crafting the Perfect Picture for YouTube Upload</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-explore-the-finest-iosdesktop-video-to-file-converters/"><u>[Updated] In 2024, Explore the Finest iOS/Desktop Video to File Converters</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-unlocking-youtube-sponsor-opportunities-via-famebit-methods/"><u>2024 Approved Unlocking YouTube Sponsor Opportunities via FameBit Methods</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/o-stream-to-youtube-facebook-twitch-and-over-30-platforms-in-2024/"><u>How to Stream to YouTube, Facebook, Twitch and Over 30 Platforms, In 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-9-best-phone-monitoring-apps-for-oneplus-11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Best Phone Monitoring Apps for OnePlus 11 5G | Dr.fone</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/optimizing-your-imovie-content-for-vimeo-display-for-2024/"><u>Optimizing Your iMovie Content for Vimeo Display for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ct-shots-a-guide-to-capturing-engaging-youtube-content-for-2024/"><u>Perfect Shots A Guide to Capturing Engaging YouTube Content for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/reducing-unrealcefsubprocess-power-footprint-on-windows-os/"><u>Reducing UnrealCEFSubprocess Power Footprint on Windows OS</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/top-6-excelentes-aplicaciones-de-registro-de-dvd-sin-costo-para-windows-11-8-y-7/"><u>Top 6 Excelentes Aplicaciones De Registro De DVD Sin Costo Para Windows 11, 8 Y 7</u></a></li>
+<li><a href="https://fox-that.techidaily.com/troubleshooting-iphone-cant-switch-to-landscape-quick-guide-to-resolve/"><u>Troubleshooting iPhone: Can't Switch to Landscape? Quick Guide to Resolve</u></a></li>
+</ul></div>
 

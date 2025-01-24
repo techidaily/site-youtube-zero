@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Global Content Makers' Conference\""
-date: 2024-08-16T04:09:06.052Z
-updated: 2024-08-17T04:09:06.052Z
+date: 2025-01-21T16:06:59.005Z
+updated: 2025-01-24T21:49:44.433Z
 tags:
   - ai video
   - ai youtube
@@ -60,8 +60,9 @@ _Tess takes you to some of her favorite places in Dumbo._
 Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators who attended the summit probably had a lot of fun exploring it.
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 2\. Post Cards
 
 One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
@@ -71,34 +72,34 @@ One of the major benefits of attending this summit would have been networking wi
 S’well bottles are stainless steel beverage containers that keep drinks hot or cold. They retail for around $45\. YouTubers invited to the Creator Summit received ones with YouTube branding on them. A good water bottle is a convention/conference essential, so this was a very practical gift.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 4\. Branded slippers
 
 To help them relax after long days at the summit, YouTube provided creators with YouTube-branded slippers. They look pretty comfy. Plus, now every time these YouTubers look down at their feet they’ll be reminded to go make some videos.
 
 ![Branded slippers - 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-branded-slippers.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 _thinknoodles wearing his YouTube slippers._
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ## 5\. Pins, pins, pins
 
 There were numerous custom pins available at different events at the summit. Aside from a complementary Brooklyn and 1 Hotel Brooklyn Bridge (the hotel the creators were staying at) pins, the creators did not receive these in their swag boxes – they had to collect them.
 
 <!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 6\. Denim jacket
 
 A denim jacket with a play button on it was also in the box. The idea was that creators would collect pins and display them on their new jackets. At the end of the week, they would have a great souvenir reminding them of every event they attended at the summit.
 
 _ ![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg) _
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
-<!-- affiliate ads end -->
 
 _Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
 
@@ -107,11 +108,12 @@ Most creators here on Filmora are still trying to grow their channels, but one d
 Want to join the YouTube Creator Summit in the future? We all know that there is a long way to go, but we can start making good YouTube videos now. Remember to use [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) with the templates and effects to touch up your YouTube videos.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -119,14 +121,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -135,8 +134,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-videos.techidaily.com/new-comprehensive-directory-extracting-youtube-intros/"><u>[New] Comprehensive Directory Extracting Youtube Intros</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-comprehensively-unveiling-the-syma-x5c-your-first-drones-matchmaker/"><u>[New] Comprehensively Unveiling the Syma X5C – Your First Drone's Matchmaker</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/edefine-viewing-premium-platforms-for-videos/"><u>[New] Redefine Viewing Premium Platforms for Videos</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-windows-guide-free-tools-for-capturing-live-tv/"><u>[Updated] 2024 Approved Windows Guide Free Tools for Capturing Live TV</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/boosting-scholarly-excellence-with-chatgpt-a-step-by-ve-guide-to-research-and-essay-support/"><u>Boosting Scholarly Excellence with ChatGPT: A Step-by-Ve Guide to Research and Essay Support</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/did-your-iphone-15-plus-passcode-change-itself-unlock-it-now-drfone-by-drfone-ios/"><u>Did Your iPhone 15 Plus Passcode Change Itself? Unlock It Now | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/five-easy-steps-to-enhance-freelancing-with-chatgpt/"><u>Five Easy Steps to Enhance Freelancing with ChatGPT</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/massive-viewership-with-a-small-financial-investment/"><u>Gain Massive Viewership with a Small Financial Investment</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-the-ultimate-guide-to-affordable-and-effective-intros/"><u>In 2024, The Ultimate Guide to Affordable and Effective Intros</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/rs-choice-the-ultimate-collection-of-downloader-tools-for-2024/"><u>Master's Choice The Ultimate Collection of Downloader Tools for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/er-selector-exclusive-app-selection-for-your-videos/"><u>Premier Selector Exclusive App Selection for Your Videos</u></a></li>
+<li><a href="https://fake-location.techidaily.com/read-this-guide-to-find-a-reliable-alternative-to-fake-gps-on-tecno-phantom-v-fold-drfone-by-drfone-virtual-android/"><u>Read This Guide to Find a Reliable Alternative to Fake GPS On Tecno Phantom V Fold | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/iewer-count-chronicles-mastering-the-math-of-monetizing-moments-in-youtube-space/"><u>The Viewer Count Chronicles Mastering the Math of Monetizing Moments in YouTube Space</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/king-youtube-live-potential-a-step-by-step-guide/"><u>Unlocking YouTube Live Potential A Step-by-Step Guide</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/1726030135877-xmedia-recode/"><u>ビデオファイルサイジングをXMedia Recodeで最適化するテクニック</u></a></li>
+</ul></div>
 

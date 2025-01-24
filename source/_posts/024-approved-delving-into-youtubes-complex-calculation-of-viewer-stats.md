@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Delving Into YouTube's Complex Calculation of Viewer Stats\""
-date: 2024-08-16T04:09:25.870Z
-updated: 2024-08-17T04:09:25.870Z
+date: 2025-01-22T22:23:34.563Z
+updated: 2025-01-24T18:27:19.382Z
 tags:
   - ai video
   - ai youtube
@@ -43,20 +43,19 @@ After you have created your YouTube channel, do you want to edit videos and uplo
 You can use Filmora to make YouTube videos with built-in royalty-free audio. Filmora also can help you make YouTube intros. It includes more than 500 templates, transitions, effects, and text resources.
 
 <!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 1\. Not Everyone Who Clicks Adds to Your View Count
 
 YouTube doesn’t provide a clear definition of what counts as a view, but we know that someone clicks on your video, and clicking right away doesn’t count. That’s how we know that watch time is a factor. Some studies conclude that a [full 30 seconds need to be viewed](https://buffer.com/library/social-video-metrics/#9) to register as one view, but there is no way to know for sure.
 
 ![how YouTube counts view](https://images.wondershare.com/filmora/article-images/how-youtube-count-view.JPG)
-<!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 2\. How Does YouTube Count Views?
 
 YouTube wants to be sure that views are coming from humans and not bots. So, during the first couple of hours after you publish a video, YouTube seems to be stricter about what they count. The views which are counted are the ones that YouTube believes to be legitimate. Sometimes, it ends up skipping legitimate views for the sake of discretion.
@@ -69,8 +68,9 @@ You May Also Like:
 [5 Tips To Get More Views With YouTube Optimization \[Free Checklist\] >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3\. How Does YouTube’s View Count Algorithm Work?
 
 Termed by many as one of the most boggling algorithms of all time, it is really hard to decode the complete dynamics of the YouTube view count algorithm.
@@ -95,6 +95,10 @@ One way that [YouTube might flag an account as a potential bot](https://support.
 
 Any bot-like action will result in an account’s views do not be added to your view count.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 5\. The Skip & Skim
 
 It’s not uncommon for viewers to watch a video for say five seconds, skip forwards a bit and watch for another ten seconds as they look for a specific part. It is hard to say whether skipping through a video, but watching a scattered 30 seconds, would count as a view or not.
@@ -114,8 +118,9 @@ This is why view counts are often frozen at 301\. The employees at YouTube then 
 During the period when the view count is frozen every legitimate view is still counted, just not added immediately. Once the YouTube team is sure that your videos are not getting fake traffic, your view count will be updated to include views that were registered during the frozen phase. However, [YouTube says](https://www.theverge.com/2015/8/5/9100759/youtube-301-view-count-freeze-going-away) it won't flag videos at 301 views anymore.
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 In short, we know YouTube expects a viewer to watch a video for around 30 seconds before it counts a view, that views from suspicious accounts are not counted, and that YouTube can decide to freeze your view count while they review your views. They are protecting the site from becoming saturated with videos that only look popular because of bots. Ultimately, ‘how does YouTube count views’ isn’t a question anyone but YouTube can answer for sure, but we do know it isn’t as simple as ‘a view is someone clicking on your video’.
@@ -123,10 +128,6 @@ In short, we know YouTube expects a viewer to watch a video for around 30 second
 If you want to engage your audience with cool effects and Filmora is the best choice to make a split-screen and green screen video for YouTubers. Download it now to have a try!
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -136,14 +137,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -152,8 +150,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-lessons.techidaily.com/new-core-elements-in-storytelling-skills/"><u>[New] Core Elements in Storytelling Skills</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ecrets-to-acquiring-free-audio-tracks-for-videos/"><u>[New] Secrets to Acquiring Free Audio Tracks for Videos</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-the-art-of-story-lensing-smart-zooms-on-instagram-for-2024/"><u>[New] The Art of Story Lensing Smart Zooms on Instagram for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/he-monetary-scope-of-mr-beasts-ventures-for-2024/"><u>[New] The Monetary Scope of Mr. Beast’s Ventures for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nderstanding-youtubes-user-interaction-options/"><u>[New] Understanding YouTube's User Interaction Options</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-charting-the-course-to-youtube-fame-strategic-video-release-frequency/"><u>[Updated] 2024 Approved Charting the Course to YouTube Fame Strategic Video Release Frequency</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-digital-dynamics-mastering-youtube-video-distribution-on-facebook-for-2024/"><u>[Updated] Digital Dynamics Mastering YouTube Video Distribution on Facebook for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-expanding-digital-presence-stream-to-youtube-plus-additional-platforms/"><u>[Updated] In 2024, Expanding Digital Presence Stream to YouTube + Additional Platforms</u></a></li>
+<li><a href="https://driver-install.techidaily.com/direct-installation-of-new-drivers-on-xp-systems/"><u>Direct Installation of New Drivers on Xp Systems</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/experts-choose-the-ultimate-ipad-air-sleeves-for-2eaf-comprehensive-testing-picks/"><u>Experts Choose the Ultimate iPad Air Sleeves for 2Eaf, Comprehensive Testing Picks!</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/o-add-a-youtube-video-to-google-slides/"><u>How to Add a YouTube Video to Google Slides</u></a></li>
+<li><a href="https://program-issues.techidaily.com/improperly-installed-manholes/"><u>Improperly Installed Manholes:</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-cross-platform-video-playback-made-easy-with-chromes-pip/"><u>In 2024, Cross-Platform Video Playback Made Easy with Chrome's PIP</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-elevate-home-videography-high-quality-webcam-steps/"><u>In 2024, Elevate Home Videography - High-Quality WebCam Steps</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-exploring-9-zero-price-editors-for-youtube-content/"><u>In 2024, Exploring 9 Zero Price Editors for YouTube Content</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-guerrilla-mic-guide-top-chip-selection-on-a-shoestring/"><u>In 2024, Guerrilla Mic Guide Top Chip Selection on a Shoestring</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-xiaomi-redmi-note-12-pro-4g-location-without-installing-software-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Xiaomi Redmi Note 12 Pro 4G Location without Installing Software? | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/innovative-titles-to-lengthen-viewing-times-within-limit/"><u>Innovative Titles to Lengthen Viewing Times (Within Limit)</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210131800-9780795316944-mediums-rare/"><u>Mediums Rare | Free Book</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Mastering Content Restrictions on YouTube Videos\""
-date: 2024-08-08T15:33:03.529Z
-updated: 2024-08-09T15:33:03.529Z
+date: 2025-01-21T16:57:05.644Z
+updated: 2025-01-24T18:57:30.799Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/c3ecdd732aca091f9e06be3caec567f3fcd17c056
 
 # How to Change the Privacy Setting on Your YouTube Videos
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -42,8 +39,9 @@ thumbnail: https://thmb.techidaily.com/c3ecdd732aca091f9e06be3caec567f3fcd17c056
 ---
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 1: Public VS Unlisted VS Private
 
  Let's figure out some terms before runing into the how-to part.
@@ -66,9 +64,6 @@ thumbnail: https://thmb.techidaily.com/c3ecdd732aca091f9e06be3caec567f3fcd17c056
 
 ![youtube privacy setting](https://images.wondershare.com/filmora/article-images/youtube-privacy-setting.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 2: How to Change Privacy Settings
 
  There are two ways to change the privacy settings: firstly, when you upload the video, and secondly through Creator Studio.
@@ -79,11 +74,19 @@ thumbnail: https://thmb.techidaily.com/c3ecdd732aca091f9e06be3caec567f3fcd17c056
 
 ![upload youtube video privacy](https://images.wondershare.com/filmora/article-images/upload-youtube-video-privacy.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Method 2:**
 
  To change the privacy setting later, go to Creator Studio, then Video Manager. On the right-hand side you’ll see one of three icons: a world, a chain, and a lock. The world means **"public"**, the chain means **"unlisted"**, and the lock is for **"private"**.
 
 ![youtube privacy settings](https://images.wondershare.com/filmora/article-images/unlisted-video.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  To change the privacy, click the icon. You’ll be taken to the video's info and settings page. Down below where you see the thumbnails you'll see the selected privacy setting. Click this to open a drop down menu, and select your desired privacy level.
 
@@ -91,24 +94,23 @@ thumbnail: https://thmb.techidaily.com/c3ecdd732aca091f9e06be3caec567f3fcd17c056
 
  If a video is set to "private', you'll have the option to share it with specific people. Below where it says "private" on the info and settings page you'll see a button labeled "share". Click this and type in the email addresses of the people you want to be able to watch the video. You’ll also have the option of notifying the people via email that you’ve shared the video with them.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ![share youtube privacy video](https://images.wondershare.com/filmora/article-images/share-private-video.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
  And that's all there is to it! Changing the privacy setting on YouTube videos is a simple, helpful tool to allow you to control the audience of you work. Enjoy!
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -116,14 +118,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -132,6 +131,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-tips.techidaily.com/new-a-beginners-insight-into-av1-encoding/"><u>[New] A Beginner's Insight Into AV1 Encoding</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/heap-microphones-for-youtubers-on-a-budget/"><u>[New] Cheap Microphones for Youtubers on a Budget</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-quick-win-strategies-top-20-video-tips-for-content-boosters/"><u>[Updated] 2024 Approved Quick-Win Strategies Top 20 Video Tips for Content Boosters</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-the-pathway-to-profitability-navigating-youtube-adsense/"><u>[Updated] 2024 Approved The Pathway to Profitability Navigating YouTube AdSense</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-trek-through-the-territory-of-talkative-thoughts/"><u>[Updated] 2024 Approved Trek Through the Territory of Talkative Thoughts</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-are-there-restrictions-in-saving-youtube-videos-for-2024/"><u>[Updated] Are There Restrictions in Saving YouTube Videos for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-custom-youtube-video-speed-control-desktopmobile-for-2024/"><u>[Updated] Custom YouTube Video Speed Control (Desktop/Mobile) for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-free-online-offer-enjoy-a-gallery-of-50-youtube-banners-now/"><u>[Updated] Free Online Offer Enjoy a Gallery of 50 YouTube Banners Now</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-easy-peasy-youtube-tutorials-making-content-that-works-for-all/"><u>2024 Approved Easy-Peasy YouTube Tutorials Making Content That Works for All</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-navigating-the-360-streaming-landscape-with-ease-on-youtube/"><u>2024 Approved Navigating the 360° Streaming Landscape with Ease on Youtube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ced-google-slides-techniques-adding-youtube-media/"><u>Advanced Google Slides Techniques Adding YouTube Media</u></a></li>
+<li><a href="https://blog-min.techidaily.com/easiest-guide-how-to-clone-tecno-spark-20-pro-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Easiest Guide How to Clone Tecno Spark 20 Pro Phone? | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-remove-screen-lock-pin-on-vivo-y200-like-a-pro-5-easy-ways-by-drfone-android/"><u>In 2024, How To Remove Screen Lock PIN On Vivo Y200 Like A Pro 5 Easy Ways</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-analysis-the-unbeatable-performance-of-the-elite-series-ebox-one-controller/"><u>In-Depth Analysis: The Unbeatable Performance of the Elite Series Ebox One Controller</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96317730-9781401929534-loyalty-to-your-soul/"><u>Loyalty to Your Soul | Free Book</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/mastering-the-fix-of-non-functional-stereo-mix-in-your-device-step-by-step-guide/"><u>Mastering the Fix of Non-Functional Stereo Mix in Your Device – Step by Step Guide</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/prime-day-extravaganza-check-out-zdnets-list-of-top-36plus-tablet-deals-still-available-amazon-prime-shopping-spree/"><u>Prime Day Extravaganza! Check Out ZDNet's List of Top 36+ Tablet Deals Still Available Amazon Prime Shopping Spree</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/revolutionize-your-tech-experience-the-right-handling-of-iphone-and-airpods-as-revealed-by-zdnet/"><u>Revolutionize Your Tech Experience: The Right Handling of iPhone and AirPods as Revealed by ZDNet</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/ultimate-charger-systems-for-black-gopro-hero5-official-sources-for-2024/"><u>Ultimate Charger Systems for Black GoPro Hero5 Official Sources for 2024</u></a></li>
+</ul></div>
 

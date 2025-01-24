@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Personal Evolution  Building an Enduring YouTubing Identity\""
-date: 2025-01-15T01:13:47.331Z
-updated: 2025-01-18T01:42:23.581Z
+date: 2025-01-18T21:48:38.721Z
+updated: 2025-01-24T18:27:54.025Z
 tags:
   - ai video
   - ai youtube
@@ -41,7 +41,7 @@ YouTube is oversaturated. If you do comedy, fashion, gaming, vlogging, or any ot
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Bonus Tip-Make A Creative YouTube Video with Wondershare Filmora
@@ -51,7 +51,7 @@ No Doubt, Filmora is the one of the best tools for newbie editors, vloggers and 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Your Brand is Your Unique Message
@@ -59,7 +59,7 @@ No Doubt, Filmora is the one of the best tools for newbie editors, vloggers and 
 Competing on YouTube is all about offering value. Viewers should be able to find something on your channel that they can’t find anywhere else. This doesn’t mean you need to bend over backwards trying to[invent brand new video ideas that nobody has ever tried before](https://www.filmora.io/community-blog/how-to-be-original-on-youtube-289.html) – it just means you need to focus on building your unique brand. That is what will make viewers subscribe to you instead of just watching one of your videos and then clicking away.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The Elevator Pitch
@@ -79,7 +79,7 @@ You need to be able to do that when you talk about your channel.
 Work on developing an elevator pitch for your channel. It will help you define your brand for yourself, and it’ll be useful if you make a channel trailer.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Start Building Your Brand
@@ -91,10 +91,6 @@ Building a brand should be intentional. You need to be yourself, but it’s not 
 You will notice patterns. There will be things you do in your video that people consistently like more and less. The way you build your brand is by cutting out the stuff that isn’t working and focusing more intentionally on the stuff that is. If people like it when you do meme humor, for example, do more meme humor and make incorporating that in your videos part of your brand.
 
 Banners and thumbnails are also a part of your brand. [More on that here](https://www.filmora.io/community-blog/how-to-make-youtube-banners-and-thumbnails-316.html).
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Being Consistent
 
@@ -115,6 +111,10 @@ The answers to these questions make up your brand. They may change gradually ove
 When you intentionally create your personal brand on YouTube, you take charge of the message you're sending.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -137,19 +137,15 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-2024-approved-examining-recordcasts-capabilities-through-honest-lenses/"><u>[New] 2024 Approved Examining RecordCast's Capabilities Through Honest Lenses</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/s-top-videos-and-tutorials-on-best-iphoneipad-editing-tools/"><u>10+ Top Videos & Tutorials on Best iPhone/iPad Editing Tools</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-no-cost-youtube-audio-tools-for-seamless-mp3-downloads/"><u>2024 Approved No-Cost YouTube Audio Tools for Seamless MP3 Downloads</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-veil-of-secrecy-hiding-objects-from-digital-eyes/"><u>2024 Approved Veil of Secrecy Hiding Objects From Digital Eyes</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/el-your-inner-narrative-impactful-life-stories-yt-for-2024/"><u>Channel Your Inner Narrative Impactful Life Stories YT for 2024</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/download-vn-video-editor-for-mac-or-explore-mac-friendly-alternatives/"><u>Download VN Video Editor for Mac or Explore Mac-Friendly Alternatives</u></a></li>
-<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-realme-narzo-60-pro-5g-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Realme Narzo 60 Pro 5G Phones with/without a PC</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-can-you-transfer-files-from-poco-m6-pro-5g-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How Can You Transfer Files From Poco M6 Pro 5G To iPhone 15/14/13? | Dr.fone</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/how-to-intercept-text-messages-on-apple-iphone-15-pro-drfone-by-drfone-virtual-ios/"><u>How to Intercept Text Messages on Apple iPhone 15 Pro | Dr.fone</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-funimate-decoded-a-step-by-step-journey/"><u>In 2024, Funimate Decoded A Step-by-Step Journey</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-the-ultimate-collection-of-top-asmr-microphones/"><u>In 2024, The Ultimate Collection of Top ASMR Microphones</u></a></li>
-<li><a href="https://fox-that.techidaily.com/recognizing-imessage-blocks-tips-and-signs/"><u>Recognizing iMessage Blocks: Tips and Signs</u></a></li>
-<li><a href="https://extra-information.techidaily.com/transforming-images-with-ease-learn-snapseed-today/"><u>Transforming Images with Ease Learn Snapseed Today</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/1726030562025-teams/"><u>プライベートでのTeamsミーティング録音 - イヤフォンを活用したスニークショット技術</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-beginners-backstage-pass-to-photo-tricks/"><u>[New] 2024 Approved Beginner's Backstage Pass to Photo Tricks</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-simplifying-video-production-with-captivate-for-2024/"><u>[New] Simplifying Video Production with Captivate for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-mastering-youtube-monetization-a-cpm-perspective/"><u>[Updated] 2024 Approved Mastering YouTube Monetization A CPM Perspective</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-globalviewers-access-unlimited-local-tv-for-life/"><u>[Updated] GlobalViewers Access Unlimited Local TV for Life</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-bridging-creativity-and-engagement-anime-subscribe-buttons-with-filmora/"><u>[Updated] In 2024, Bridging Creativity & Engagement - Anime Subscribe Buttons with Filmora</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-podcast-cover-design-ten-essential-best-practices/"><u>2024 Approved Podcast Cover Design Ten Essential Best Practices</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-open-your-iphone-6-plus-without-a-home-button-drfone-by-drfone-ios/"><u>How To Open Your iPhone 6 Plus Without a Home Button | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-streamlined-processes-for-swift-comment-removal-on-youtube/"><u>In 2024, Streamlined Processes for Swift Comment Removal on YouTube</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/resolving-frame-rate-issues-in-godfall-a-comprehensive-guide/"><u>Resolving Frame Rate Issues in Godfall: A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ltimate-strategy-for-stellar-valorant-video-thumbnails-on-youtube/"><u>The Ultimate Strategy for Stellar Valorant Video Thumbnails on YouTube</u></a></li>
 </ul></div>
 

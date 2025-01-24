@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Crafting Perfect YouTube Thumbnails on macOS\""
-date: 2024-08-08T15:34:35.280Z
-updated: 2024-08-09T15:34:35.280Z
+date: 2025-01-22T20:58:07.615Z
+updated: 2025-01-24T16:52:15.254Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/8e1219109f6e569a973b3c46c3d9e23c1f4eabc6e
 
 # How to Make a YouTube Thumbnail On Mac
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -45,16 +42,14 @@ thumbnails are a significant factor in determining the number of views a Youtube
 
 If you don’t create a thumbnail then youtube will generate one by itself which may not be so enticing for viewers. The purpose of the thumbnail is to make your videos stand out among the rest so you need to pay attention to it!
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to make Youtube Thumbnails on Mac
 
 You can easily create interesting thumbnails for youtube videos using a thumbnail maker like [FilmoraX](https://tools.techidaily.com/wondershare/filmora/download/) . Here is a step by step guide:
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 1. Preview the video and choose the still snapshot
 
 The first step in creating a thumbnail is to import the final video into the FilmoraX editor on your MacBook.
@@ -67,27 +62,30 @@ You can easily choose the frame from the video or use the preview frame button t
 
 ![thumbnails editor](https://images.wondershare.com/filmora/Mac-articles/thumbnails-editor.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2. Add text, shape, and image overlays
 
 Once you’ve chosen the frame for the thumbnail, the next step would be to add text to it to catch the attention of the audience. You can also adjust the thumbnail size as per your requirement, however, the ideal size would be 1280x720 pixels with a minimum width of 640 pixels.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ![add text on thumbnail](https://images.wondershare.com/filmora/Mac-articles/add-text-on-thumbnail.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 3. Add effects
 
 FilmoraX has a wide range of effects that you can apply to your videos or pictures to make them look more attractive.
 
 ![filter9](https://images.wondershare.com/filmora/guide/filter-9-mac.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 4. Save the thumbnail
 
 After you are done with all the editing, the final step would be to save the youtube thumbnail by hitting the save button.
@@ -100,10 +98,11 @@ So, using this thumbnail maker you can easily create custom thumbnails for your 
 
 Hopefully, the above-mentioned steps have given you enough insight and clarity on making creative and good youtube thumbnails. Using [FilmoraX](https://tools.techidaily.com/wondershare/filmora/download/) will further simplify the process for you with its amazing tools and features!
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -113,14 +112,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -129,8 +125,19 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/esigning-news-outro-sequences-for-2024/"><u>[New] Designing News Outro Sequences for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-captivating-audiences-on-a-shoestring-budget-youtube-shorts-success-tips/"><u>[New] In 2024, Captivating Audiences on a Shoestring Budget – YouTube Shorts Success Tips</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-unlocking-creative-potential-with-top-rated-gif-makers/"><u>[New] Unlocking Creative Potential with Top-Rated GIF Makers</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-electorate-engagement-empowerment-best-gaming-selections/"><u>[Updated] Electorate Engagement Empowerment Best Gaming Selections</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-elite-gamers-showcase-premium-setups-unveiled-for-2024/"><u>[Updated] Elite Gamers' Showcase – Premium Setups Unveiled for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-a-beginners-guide-to-making-attractive-video-thumbnails-for-social-media-platforms/"><u>2024 Approved A Beginner's Guide to Making Attractive Video Thumbnails for Social Media Platforms</u></a></li>
+<li><a href="https://extra-information.techidaily.com/charting-the-course-a-graphic-designers-blueprint-to-progress-for-2024/"><u>Charting the Course A Graphic Designer's Blueprint to Progress for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/could-fun-on-fb-be-covering-up-hidden-dangers/"><u>Could Fun on FB Be Covering Up Hidden Dangers?</u></a></li>
+<li><a href="https://driver-download.techidaily.com/hp-envy-5660-seamless-driver-download-and-setup-tutorial/"><u>HP Envy 5660 - Seamless Driver Download & Setup Tutorial</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-flv-file-symphony-creating-a-single-youtube-playlist/"><u>In 2024, FLV File Symphony Creating a Single YouTube Playlist</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-inside-look-how-youtuber-shorts-work/"><u>In 2024, Inside Look How Youtuber Shorts Work</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/is-every-user-dialogue-a-step-in-chatgpts-evolution/"><u>Is Every User Dialogue a Step in ChatGPT's Evolution?</u></a></li>
+</ul></div>
 

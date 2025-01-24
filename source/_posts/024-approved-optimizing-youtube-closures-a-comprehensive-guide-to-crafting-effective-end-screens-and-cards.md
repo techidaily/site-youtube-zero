@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Optimizing YouTube Closures  A Comprehensive Guide to Crafting Effective End Screens and Cards\""
-date: 2024-08-08T15:32:48.981Z
-updated: 2024-08-09T15:32:48.981Z
+date: 2025-01-18T20:45:10.487Z
+updated: 2025-01-24T18:33:01.721Z
 tags:
   - ai video
   - ai youtube
@@ -32,12 +32,13 @@ The traditional annotation’s features are replaced by its successor YouTube Ca
 
 [Wondershare Filmstock Gaming Video Editing Skils](https://images.wondershare.com/filmora/article-images/learn-gaming-video-editing-skills-banner.png)](https://filmstock.wondershare.com/creative-theme-game?source%5Fchannel=seo%5Farticle&spm=rs.filmora%5Fweb)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 1: Why You Need to Add End Screens and Cards to Videos
 
 There are several reasons that make the YouTube end screen and cards a great tool when added to the videos. The new channel builtin features, donation choices, embedded polls and more are some of the best interactive and powerful features of YouTube end screen that’s when added to the video can drive in users to your channel. It is a strong tool to build viewership of your channel. When you use YouTube end screen at the end of the video, it helps in directing the users to other channels, playlists, and videos and also helps in promoting crowdfunding campaigns, merchandise and website. The YouTube end screen is a part of the video and to have an end screen on your video, it must be around 25seconds long.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: How To Use Youtube End Screen
 
@@ -59,8 +60,9 @@ Do you wish to add YouTube end screen to your video? Just follow the steps and g
 **Link**\- This element helps in sending the users directly to your website. Although, Google has restricted other link addition in the video. In order to add, you must have an Adsense account and permit monetization.
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 3: How To Use Youtube Cards
 
 YouTube Cards is more interactive. Users can add images and other linkes. Here are the steps.
@@ -70,9 +72,6 @@ YouTube Cards is more interactive. Users can add images and other linkes. Here a
 * Choose the cards type you want to make on "Add Card" drop down menu.
 * Click “create” button. Select the timeline. In the end, apply.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### The types of YouTube cards
 
 * **Video or playlist**: links to other videos/the complete palylist on YouTube related or non-related to that specific videolinks to further purchase websites or specific product.
@@ -81,9 +80,9 @@ YouTube Cards is more interactive. Users can add images and other linkes. Here a
 * **Link**: links to a website which compliments whatever content is in the video.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 4 Tips for Using YouTube Cards
 
 **1\.** You might be used to pointing to the part of your screen where you intend to put an annotation, but when you use YouTube Cards they might switch locations depending on what device a viewer is watching on.
@@ -95,16 +94,18 @@ WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
  **4.** The end of your video is always a great place to link viewers to another of your videos, whether you use a card or an end screen. If somebody liked your video enough to watch until the end they’ll probably welcome a chance to consume similar content.
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 Now, that you are aware how to add YouTube end screen to your video, make use of the amazing features of YouTube end screen and cards and let driving in traffic to your site be easy and fruitful.
 
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -112,14 +113,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -128,6 +126,17 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-adopting-the-way-of-google-meet-webinars-for-2024/"><u>[New] Adopting the Way of Google Meet Webinars for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-a-dive-into-history-the-definitive-list-of-student-friendly-channels-1-10-for-2024/"><u>[Updated] A Dive Into History The Definitive List of Student-Friendly Channels #1-10 for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-dial-up-the-impact-with-50-free-branding-graphics/"><u>[Updated] Dial Up the Impact with 50 FREE Branding Graphics</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/content-delivery-network-examination/"><u>Content Delivery Network Examination</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/experience-the-future-of-mobile-gaming-iphone-vr-leaderboard/"><u>Experience the Future of Mobile Gaming IPhone VR Leaderboard</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-elevate-learning-top-15-youtube-experts-in-science/"><u>In 2024, Elevate Learning Top 15 YouTube Experts in Science</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-premium-platforms-for-virtual-shows/"><u>In 2024, Premium Platforms for Virtual Shows</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-youtube-mastery-elevate-your-content-with-smart-tag-techniques/"><u>In 2024, YouTube Mastery Elevate Your Content with Smart Tag Techniques</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/learn-smart-circumventing-edgenuity-video-lessons-quickly-for-2024/"><u>Learn Smart Circumventing Edgenuity Video Lessons Quickly for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/recording-made-simple-a-compreenasite-for-capturing-netflix-content-for-2024/"><u>Recording Made Simple A Compreenasite for Capturing Netflix Content for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Building a Loyal Following with Respectful Requests for 2024"
-date: 2025-01-10T19:57:27.077Z
-updated: 2025-01-17T19:12:30.286Z
+date: 2025-01-17T17:59:43.183Z
+updated: 2025-01-24T20:17:17.734Z
 tags:
   - ai video
   - ai youtube
@@ -41,10 +41,6 @@ There are people who think that if people like their videos they’ll subscribe,
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What is a 'Call To Action'?
 
 It has become the norm for YouTubers to ask viewers to subscribe in their sign-offs. A typical CTA (‘call to action’) goes something like this:
@@ -54,7 +50,7 @@ It has become the norm for YouTubers to ask viewers to subscribe in their sign-o
 That’s great. At the end of a video is a good place to ask people to subscribe, but is it the best and only place you should be reminding them? If you take a peek at your analytics and you might find that most of your viewers aren’t watching to the ends of your videos (people have short attention spans).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## A More Effective Way of Asking For Subscribers
@@ -67,10 +63,6 @@ As you can see, the video starts with a ‘flash forward’ to one of the twins 
 
 ![ how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-by-hook.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### Step 2: Get to The Point Quickly
 
 Shortly after, while still in the first 30 seconds of the video, Collins gets right to the point and introduces the Twin Telepathy Challenge promised in the title of the video. The hook with the heater catching fire is effective, but it’s not essential. It happens to suit Collins’ style, and it happens to have happened. Getting to the main point of the video quickly – usually in the first 15 seconds, not the first 30 (it’s in the first 15 seconds that most viewers click away) – is vital. People click on videos for a reason, and if they don’t see a sign of that payoff quickly they’ll leave.
@@ -81,10 +73,14 @@ It’s only after hooking the viewer in and reiterating the promise of the title
 
 ![ how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-in-perfect-moment.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Collins Key has been one of the fastest-growing channels on YouTube. He does not implement this strategy in every video, but it’s not a stretch to think it’s had something to do with his success. Instead of simply asking you to subscribe at the end of the video, he creates a part of the video early on – before people who don’t watch until the end will have clicked away – where you feel as if you’re ‘supposed to’ subscribe.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Polish Your YouTube Videos with Filmora
@@ -98,12 +94,16 @@ Here is a tutorial video about how to use Filmora to edit your YouTube video. Ch
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 That's how you can get more YouTube subscribers by asking the right way. You may follow the instructions and try it yourself. Do not forget to [track your YouTube subscribers in real time](https://tools.techidaily.com/wondershare/filmora/download/) to make necessary adjustments.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -126,21 +126,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-capturing-your-screenplay-free-software-insights/"><u>[New] Capturing Your Screenplay Free Software Insights</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/nhancing-television-experience-playback-tips-for-youtube-content-for-2024/"><u>[New] Enhancing Television Experience Playback Tips for YouTube Content for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-best-screens-ever-the-ultimate-top-ten/"><u>[New] In 2024, Best Screens Ever – The Ultimate Top Ten</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/n-2024-elevate-your-video-visibility-11-secrets-of-successful-seo/"><u>[New] In 2024, Elevate Your Video Visibility 11 Secrets of Successful SEO</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/n-2024-explore-9-simple-and-economical-editing-solutions-for-your-projects/"><u>[New] In 2024, Explore 9 Simple & Economical Editing Solutions for Your Projects</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-say-hello-to-banner-creativity-with-our-curated-set-of-50-free-youtube-pieces/"><u>[Updated] In 2024, Say Hello to Banner Creativity with Our Curated Set of 50 Free YouTube Pieces</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-top-rated-asmr-mic-picks-for-quality-sound/"><u>[Updated] Top-Rated ASMR Mic Picks for Quality Sound</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/2024-approved-ascending-with-aerial-artistry-9-top-editors-for-diverse-levels/"><u>2024 Approved Ascending with Aerial Artistry 9 Top Editors For Diverse Levels</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-swift-and-secure-efficient-downloads-of-podcasts-onto-iphone/"><u>2024 Approved Swift and Secure Efficient Downloads of Podcasts Onto iPhone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-syncopate-sound-and-picture-youtubes-audio-editing-techniques/"><u>2024 Approved Syncopate Sound and Picture YouTube's Audio Editing Techniques</u></a></li>
-<li><a href="https://win-superb.techidaily.com/5-effective-methods-for-restoring-lost-files-on-windows-11-a-comprehensive-guide/"><u>5 Effective Methods for Restoring Lost Files on Windows 11: A Comprehensive Guide</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ing-the-course-establishing-a-powerful-gaming-channel/"><u>Charting the Course Establishing a Powerful Gaming Channel</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/digitaldata-reconciler-android-focus/"><u>DigitalData Reconciler: Android Focus</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/optimize-your-gaming-experience-how-to-install-latest-drivers-for-geforce-gtx-1660-super-gpus/"><u>Optimize Your Gaming Experience: How to Install Latest Drivers for GeForce GTX 1660 Super GPUs</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/top-prime-day-bargains-unbeatable-discounts-on-roku-streaming-units/"><u>Top Prime Day Bargains: Unbeatable Discounts on Roku Streaming Units</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/king-your-online-potential-mastering-seo-for-youtube-success-for-2024/"><u>Unlocking Your Online Potential Mastering SEO for YouTube Success for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-2024-approved-cheerful-account-creation-handbook/"><u>[New] 2024 Approved Cheerful Account Creation Handbook</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-record-presentation-for-digital-projection/"><u>[New] 2024 Approved Record Presentation for Digital Projection</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ecoding-video-potential-dslr-vs-mirrorless-innovation/"><u>[New] Decoding Video Potential DSLR vs Mirrorless Innovation</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-channeling-changes-transition-to-youtubes-updated-membership-model/"><u>[Updated] 2024 Approved Channeling Changes Transition to YouTube's Updated Membership Model</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-first-offset-guide-affordable-channel-buys-to-monetize/"><u>[Updated] 2024 Approved First Offset Guide Affordable Channel Buys to Monetize</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-stunning-video-capture-best-youtube-cameras-reviewed/"><u>[Updated] 2024 Approved Stunning Video Capture Best YouTube Cameras Reviewed</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-capturing-your-screen-apowersoft-and-others/"><u>[Updated] In 2024, Capturing Your Screen Apowersoft and Others</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-narrative-enhancements-the-process-of-infusing-text-into-your-video-content/"><u>[Updated] In 2024, Narrative Enhancements The Process of Infusing Text Into Your Video Content</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-effortless-guide-to-adding-banners-on-gaming-channels/"><u>2024 Approved Effortless Guide to Adding Banners on Gaming Channels</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/t-streamline-the-most-efficient-flv-to-youtube-tools-ranked-for-2024/"><u>Direct Streamline The Most Efficient Flv-to-YouTube Tools Ranked for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/garrys-mod-crashes-no-more-updated-fix-guide-for-gamers/"><u>Garry's Mod Crashes No More - Updated Fix Guide for Gamers</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/o-share-a-private-youtube-video-in-2024/"><u>How to Share a Private YouTube Video, In 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-from-concept-to-completion-crafting-your-youtube-masterpiece/"><u>In 2024, From Concept to Completion Crafting Your YouTube Masterpiece</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-change-vivo-v30-lock-screen-password-by-drfone-android/"><u>In 2024, How To Change Vivo V30 Lock Screen Password?</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-vivo-v30-pro-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Vivo V30 Pro? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-still-using-pattern-locks-with-motorola-moto-g04-tips-tricks-and-helpful-advice-by-drfone-android/"><u>In 2024, Still Using Pattern Locks with Motorola Moto G04? Tips, Tricks and Helpful Advice</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/leading-gaming-hardware-the-ultimate-choices-for-gamers/"><u>Leading Gaming Hardware: The Ultimate Choices for Gamers</u></a></li>
+<li><a href="https://solve-helper.techidaily.com/resolved-fixing-issues-with-file-playback-in-windows-media-player-on-windows-11-and-windows-10/"><u>Resolved: Fixing Issues with File Playback in Windows Media Player on Windows 11 and Windows 10</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/swf-3gp-movavi/"><u>SWF 프로그램을 3GP로 구성하기: 인터넷에서 비용 없이 Movavi를 사용한다</u></a></li>
 </ul></div>
 

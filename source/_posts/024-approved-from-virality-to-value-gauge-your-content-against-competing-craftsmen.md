@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  From Virality to Value  Gauge Your Content Against Competing Craftsmen\""
-date: 2024-08-08T15:34:11.672Z
-updated: 2024-08-09T15:34:11.672Z
+date: 2025-01-17T18:16:53.262Z
+updated: 2025-01-24T17:30:59.425Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/7b44dc75606a866e6986fc574670153990f3b9d45
 
 # YouTube Analytics – How to analyze your and Competitor's YouTube Video
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -41,24 +38,12 @@ thumbnail: https://thmb.techidaily.com/7b44dc75606a866e6986fc574670153990f3b9d45
 
  Views along with watch time turn out to be the best bet. Watch time sums up the total amount of time spent (in terms of minutes) on your brand' videos. With the updated dashboard it becomes easy to get the YouTube analytics and gauge the video's performance. Using the average view duration, you can know whether your video is being watched till the end or not.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-views.jpg)
 
 #### 2\.  Playback Location
 
  As 'Playback locations' of YouTube videos can reveal where does all the traffic come from, it would help your channel figure out for which location the video has fared well. It will guide you to reach the backlinks locations/sites. Knowing the popular locations for your YouTube video being played, you can know whether YouTube is the search engine or they have been diverted from somewhere else. Depending on the video playing locations, the views will be segregated in to embedded video, YouTube watch page, mobile devices, and YouTube channel page. Understanding location specific views would help you decide where should you focus to enhance the performance of your video.
 
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-playback-location.jpg)
 
 #### 3\.  Demographics
@@ -77,10 +62,11 @@ DbSchema database designer for all databases, schema design in the team, schema 
 
  This data explains how far your video has engaged your audience. Along with views, the duration that a viewer is on your video weighs too. From the audience retention page, you can find out the specific time that a viewer has exited your video and see what made them do so. There are 2 types of audience retention features – absolute audience retention and relative audience retention.
 
-<!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-audience-retention.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 6\.  Devices
 
@@ -100,6 +86,10 @@ DbSchema database designer for all databases, schema design in the team, schema 
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-subscribers.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  The subscription stream enables your audience to get suggestions for new videos from your channel and offer better exposure to the service and products you offer.
 
 **You May Also Like** : [How to Get More Subscribers](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -108,10 +98,11 @@ DbSchema database designer for all databases, schema design in the team, schema 
 
  While considering YouTube Analytics, it is essential to understand that there are annotations to guide viewers to your business site for more content. It is not necessary that the content is video only, it might include a blog post as well. This will let you understand the click through rate and 'close' rates for every annotation. This in turn will assist you in optimizing how to reach your audience and where to place the annotations.
 
-<!-- affiliate ads begin -->
-<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-annotations.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 10\.  Comments
 
@@ -119,13 +110,14 @@ DbSchema database designer for all databases, schema design in the team, schema 
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-comments.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 11\.  Cards
 
  Cards is a new feature in YouTube analytics and aimed at replacing annotations. This will improve user interactivity of any video and accelerate the engagement. They will act as call to action for informing visitors regarding playlists, videos, merchandising, fan funding, and associated website etc.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-cards.jpg)
 
 #### 12\.  Sharing
@@ -141,8 +133,9 @@ DbSchema database designer for all databases, schema design in the team, schema 
 ![](https://images.wondershare.com/filmora/article-images/youtube-analytics-playlists.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to analyze your competitors
 
  Although, you can't see the dashboard data of your competitor, there are still some ways to observe and study your competitors' successful videos and from their views, favorites, ratings, and comments find out the driving force behind it.
@@ -155,9 +148,6 @@ DbSchema database designer for all databases, schema design in the team, schema 
 
  InflueNex is a helpful influencer marketing tool for Analyzing, searching, and managing YouTubers. With the help of this YouTube analytics tool, you're able to learn your competitors' channels and videos with detailed information.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
-<!-- affiliate ads end -->
 ![InflueNex YouTube Marketing Paltform](https://images.wondershare.com/filmora/article-images/influenex-youtube-marketing-paltform.jpg)
 
 #### 2\. Rival IQ
@@ -170,10 +160,11 @@ DbSchema database designer for all databases, schema design in the team, schema 
 
  Read More to Get: [5 Methods to Go Frame by Frame on YouTube Video >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -181,14 +172,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -197,8 +185,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/uilding-your-asmr-empire-key-concepts-and-best-practices/"><u>[New] Building Your ASMR Empire Key Concepts and Best Practices</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ixing-the-no-thumbnail-issue-in-youtubes-shorts-videos-for-2024/"><u>[New] Fixing the No-Thumbnail Issue in YouTubes Shorts Videos for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-optimal-tripod-setup-for-smooth-professional-videography/"><u>[Updated] 2024 Approved Optimal Tripod Setup for Smooth, Professional Videography</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-crafting-captivating-video-narratives-for-youtube-success/"><u>[Updated] In 2024, Crafting Captivating Video Narratives for YouTube Success</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-the-premier-guide-to-free-online-meetings-and-sharing-screens/"><u>2024 Approved The Premier Guide to FREE Online Meetings & Sharing Screens</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-ultimate-guide-to-swift-periscope-broadcasting/"><u>2024 Approved The Ultimate Guide to Swift Periscope Broadcasting</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/a-detailed-look-at-openais-bug-bounty-entry-requirements-and-processes/"><u>A Detailed Look At OpenAI’s Bug Bounty: Entry Requirements and Processes</u></a></li>
+<li><a href="https://discover-cloud.techidaily.com/conversione-ogv-a-ogg-scarica-gratuitamente-lutilita-di-movavi/"><u>Conversione OGV a OGG: Scarica Gratuitamente L'utilità Di Movavi</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ng-edge-filmmaking-techniques-youtubes-insights-and-competitors/"><u>Cutting-Edge Filmmaking Techniques YouTube's Insights & Competitors</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/expert-reviews-navigating-through-2024s-best-smartwatch-options/"><u>Expert Reviews: Navigating Through 2024'S Best Smartwatch Options</u></a></li>
+<li><a href="https://techidaily.com/how-to-soft-reset-samsung-galaxy-f54-5g-phone-drfone-by-drfone-reset-android-reset-android/"><u>How to Soft Reset Samsung Galaxy F54 5G phone? | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/egies-for-sourcing-video-content-with-google-trends/"><u>Strategies for Sourcing Video Content with Google Trends</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/top-10-quick-and-free-jpeg-to-gif-conversion-services-for-2024/"><u>Top 10 Quick & Free JPEG-to-GIF Conversion Services for 2024</u></a></li>
+</ul></div>
 

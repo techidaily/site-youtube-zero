@@ -1,7 +1,7 @@
 ---
 title: "\"Creating Simple Videos  Top 10 YouTube Projects Anyone Can Do for 2024\""
-date: 2025-01-16T22:12:47.192Z
-updated: 2025-01-18T00:26:57.280Z
+date: 2025-01-18T16:30:22.160Z
+updated: 2025-01-24T20:19:32.407Z
 tags:
   - ai video
   - ai youtube
@@ -52,6 +52,10 @@ Let the world know who you are and what you do. If you are planning on starting 
 
 These kinds of videos make great channel trailers, and they’re a good way to highlight the topics you'll be covering on your channel in the future.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. Vlog About Your Day
 
 Anything that happens during your day can become a topic for your YouTube vlog. Traffic jams, treacherous pets who keep stealing your shoes, or the ridiculous amount of things you had to do in a single day can all become topics for videos you upload to your YouTube channel. Being candid and spontaneous is a sure way to grab the attention of a viewer, but limiting the duration of a vlog to a few minutes is key to ensuring that viewers watch the video until the end.
@@ -59,7 +63,7 @@ Anything that happens during your day can become a topic for your YouTube vlog. 
 Strive to make visually dynamic videos, because just sitting or standing and talking in front of a camera for a few minutes isn't going to create much on-screen action.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. Express An Opinion
@@ -70,15 +74,15 @@ Opinion videos are great conversation starters. Expressing an opinion through a 
 
 You can express your opinions on virtually any topic, but being respectful while doing so is for the best if you don’t want to find yourself in a YouTube feud.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4\. Review Anything
 
 Everywhere around you, there are items you can review. The Apple Watch and the latest season of Game of Thrones are equally good choices for a review video. However, when creating review videos you need to make sure that all the factual information you have is accurate, which is why it is much better to make review videos about topics you know a lot about.
 
 Review videos can also be a source of revenue because a lot of companies sponsor YouTubers who review their products.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 5\. Your Favorite Songs / Movies / Etc
 
@@ -98,10 +102,6 @@ There's no need to constantly produce new videos because you can just take some 
 
 If you are a photography enthusiast you can also plan the entire slideshow in advance and then make a short video about how you created the images in the slideshow.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 8\. Make a Tutorial
 
 Education is our only hope for a better world so if you know how to do something well, don't be afraid to share your knowledge. A tutorial is a powerful educational tool that enables you to guide people through the entire process of making origami, solving a complicated video editing problem, maintaining a motorcycle, or anything else.
@@ -114,6 +114,10 @@ Being open is important, so why not share 10 things about yourself you think you
 
 These types of videos tend to create a better relationship with your audience because they make the viewer feel as if they know the person on the screen.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 10\. Video Rant
 
 Doing things when you are angry is usually a bad idea, but if you feel so strongly about a particular subject then creating a video rant can be a great idea. Rants don’t even have to be angry, they can be about something that puzzles you or something so great you just can’t get over it. These kinds of videos can get your YouTube channel a lot of comments, likes, and subscribers.
@@ -122,10 +126,6 @@ Don't try to fake a rant, because they only work if they are natural. Scripting 
 
 Do you have any [easy video ideas for other creators](https://tools.techidaily.com/wondershare/filmora/download/) to try?
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Start Editing Videos with Beginner-friendly Software
 
 If you start your YouTube channel but have no video editing experience, Wondershare Filmora will definitely help you get over the problems. Download Filmora now!
@@ -133,7 +133,7 @@ If you start your YouTube channel but have no video editing experience, Wondersh
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -159,19 +159,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-how-to-watch-facebook-live-in-2024/"><u>[New] How to Watch Facebook Live, In 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/eeping-your-content-in-the-spotlight-adhering-to-youtubes-cc-policy-for-2024/"><u>[New] Keeping Your Content in the Spotlight Adhering to YouTube's CC Policy for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/he-complete-video-revenue-playbook-dm-vs-yo-edition-for-2024/"><u>[New] The Complete Video Revenue Playbook Dm Vs. Yo Edition for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/he-ultimate-guide-to-saving-youtube-tracks-and-dialogues-for-2024/"><u>[New] The Ultimate Guide to Saving YouTube Tracks & Dialogues for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-the-problem-is-over-your-shorts-show-up-now/"><u>[Updated] 2024 Approved The Problem Is Over Your Shorts Show Up Now</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-ranked-best-voice-change-software-echo-magic-edition/"><u>[Updated] In 2024, Ranked Best Voice Change Software Echo Magic Edition</u></a></li>
-<li><a href="https://fox-zaraz.techidaily.com/1-reviving-lost-files-expert-guide-on-using-acer-erecovery-for-data-restoration/"><u>1. Reviving Lost Files: Expert Guide on Using Acer eRecovery for Data Restoration</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-unleashing-video-popularity-leading-trackers-for-youtube/"><u>2024 Approved Unleashing Video Popularity Leading Trackers for YouTube</u></a></li>
-<li><a href="https://extra-information.techidaily.com/exclusive-zero-cost-custom-video-conclusions/"><u>Exclusive, Zero-Cost Custom Video Conclusions</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/freshly-released-nvidia-rtx-2e70-driver-downloads-for-windows-versions/"><u>Freshly Released Nvidia RTX 2E70 Driver Downloads for Windows Versions</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-does-find-my-friends-work-on-tecno-spark-go-2023-drfone-by-drfone-virtual-android/"><u>In 2024, Does find my friends work on Tecno Spark Go (2023) | Dr.fone</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/in-2024-essential-ps2-emulators-for-ios-devices/"><u>In 2024, Essential PS2 Emulators for IOS Devices</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/in-2024-virtual-realms-explored-the-best-sci-fi-movies-for-immersion-enthusiasts/"><u>In 2024, Virtual Realms Explored The Best Sci-Fi Movies for Immersion Enthusiasts</u></a></li>
-<li><a href="https://win-dash.techidaily.com/seamless-conversion-made-simple-understanding-the-variety-of-videos-playable-by-davinci-resolve/"><u>Seamless Conversion Made Simple: Understanding the Variety of Videos Playable by DaVinci Resolve</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-prime-8-android-apps-for-multi-person-video-conferencing/"><u>[New] Prime 8 Android Apps for Multi-Person Video Conferencing</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-beginner-friendly-iphone-screen-recording-techniques-for-2024/"><u>[Updated] Beginner-Friendly Iphone Screen Recording Techniques for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-drive-subscriptions-upward-through-effective-youtube-branding-for-2024/"><u>[Updated] Drive Subscriptions Upward Through Effective YouTube Branding for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-in-2024-from-novice-to-pro-comprehensible-periscope-steps/"><u>[Updated] In 2024, From Novice to Pro Comprehensible Periscope Steps</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-the-professionals-guide-adding-youtube-to-google-slides/"><u>[Updated] In 2024, The Professional's Guide Adding YouTube to Google Slides</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/t-insights-for-youtube-end-credits-top-makers-advice-for-2024/"><u>Expert Insights for YouTube End Credits - Top Makers' Advice for 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-latest-guide-how-to-bypass-xiaomi-13t-pro-frp-without-computer-by-drfone-android/"><u>In 2024, Latest Guide How To Bypass Xiaomi 13T Pro FRP Without Computer</u></a></li>
+<li><a href="https://driver-error.techidaily.com/intel-me-firmware-troubleshooting/"><u>Intel ME Firmware Troubleshooting</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/lunar-laughter-entertaining-martian-mayhem-with-cosmic-urban-building-blocks/"><u>Lunar Laughter: Entertaining Martian Mayhem with Cosmic Urban Building Blocks</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/restoring-sound-in-windows-10-a-comprehensive-guide/"><u>Restoring Sound in Windows 10: A Comprehensive Guide</u></a></li>
+<li><a href="https://video-capture.techidaily.com/step-by-step-screen-record-your-win10-game-log/"><u>Step-by-Step Screen Record Your Win10 Game Log</u></a></li>
 </ul></div>
 

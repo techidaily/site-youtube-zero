@@ -1,7 +1,7 @@
 ---
 title: "[New] Perfect Shots Start With The Right Camera & Lens Selection"
-date: 2025-01-12T02:32:55.656Z
-updated: 2025-01-18T01:58:25.078Z
+date: 2025-01-20T22:29:48.067Z
+updated: 2025-01-24T17:35:52.673Z
 tags:
   - ai video
   - ai youtube
@@ -45,6 +45,10 @@ In this article, I’m going to help you figure that out.
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Three Focal Length Groups: Wide, Standard, Telephoto
 
 There are three main ranges in focal lengths that camera lenses can be categorized into wide, standard, and telephoto.
@@ -84,7 +88,7 @@ As telephoto lenses are even more zoomed in, you’ll need to be even further aw
   In the above video, Marcos Rocha compares different focal lengths for talking head videos. Which focal length range do you like the look of?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Crop Factor
@@ -94,13 +98,13 @@ Focal lengths in camera lenses are measured in millimeters. You can vlog yoursel
  ![Crop Factor](https://images.wondershare.com/filmora/article-images/camera-lenses-crop-factor.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Focal Length Equivalency Table
@@ -117,10 +121,6 @@ This table shows you the focal lengths needed to achieve the same shot between c
 | Telephoto                   | 70mm       | 44mm  | 35mm      |
 | Telephoto                   | 100mm      | 63mm  | 50mm      |
 | Telephoto                   | 200mm      | 125mm | 100mm     |
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Aperture
 
@@ -151,7 +151,7 @@ But do you even need a fast lens?
 * Better continuous autofocus performance needed when shooting moving subjects with a large aperture
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Optical Image Stabilization
@@ -189,20 +189,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-the-creative-edge-filmmakers-blueprint-for-captivating-anime-subscribers-filmora/"><u>[Updated] 2024 Approved The Creative Edge Filmmaker's Blueprint for Captivating Anime Subscribers (Filmora)</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-top-zero-cost-image-amplifier-desktopmobile-edition/"><u>[Updated] 2024 Approved Top Zero-Cost Image Amplifier Desktop/Mobile Edition</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-premier-select-affordable-youtube-sbs-extraction/"><u>[Updated] In 2024, Premier Select Affordable YouTube SBS Extraction</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-how-to-make-your-youtube-moments-come-alive-creating-dynamic-gifs/"><u>2024 Approved How to Make Your YouTube Moments Come Alive Creating Dynamic GIFs</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-retrospective-viewing-inventive-approaches-for-backward-youtube-content/"><u>2024 Approved Retrospective Viewing Inventive Approaches for Backward YouTube Content</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-tailoring-drop-dates-to-maximize-listener-interest/"><u>2024 Approved Tailoring Drop Dates to Maximize Listener Interest</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-the-most-economical-tools-for-youtube-audio-conversion/"><u>2024 Approved The Most Economical Tools for YouTube Audio Conversion</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-unveil-the-best-of-history-top-10-youtube-channel-list/"><u>2024 Approved Unveil the Best of History Top 10 YouTube Channel List</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/cting-the-narrative-in-youtube-dialogues-for-2024/"><u>Dissecting the Narrative in YouTube Dialogues for 2024</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-se-2022-by-drfone-ios/"><u>In 2024, How to Unlock Apple iPhone SE (2022)?</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-methods-to-change-gps-location-on-realme-12plus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Methods to Change GPS Location On Realme 12+ 5G | Dr.fone</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/refined-connections-zoom-insight-for-professional-google-meets-for-2024/"><u>Refined Connections Zoom Insight for Professional Google Meets for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/reveal-hidden-gems-top-12-steps-to-make-your-fb-videos-show-up-for-2024/"><u>Reveal Hidden Gems Top 12 Steps to Make Your FB Videos Show Up for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/unlocking-efficiency-in-video-editing-with-these-top-10-apps-for-2024/"><u>Unlocking Efficiency in Video Editing with These Top 10 Apps for 2024</u></a></li>
-<li><a href="https://win-docs.techidaily.com/wiederherstellung-von-daten-aus-einem-bootfahigen-usb-auf-windows-11-schritt-fur-schritt-anleitung/"><u>Wiederherstellung Von Daten Aus Einem Bootfähigen USB Auf Windows 11: Schritt-Für-Schritt-Anleitung</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/est-7-multimedia-cameras-for-quality-live-streams-and-video-blogs/"><u>[New] Best 7 Multimedia Cameras For Quality Live Streams & Video Blogs</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ngage-more-dissuade-less-top-6-ways-to-increase-watch-time-and-stayers-for-2024/"><u>[New] Engage More, Dissuade Less Top 6 Ways to Increase Watch Time and Stayers for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-best-5-youtube-video-editor-alternatives/"><u>[Updated] 2024 Approved Best 5 YouTube Video Editor Alternatives</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-essential-templates-for-impactful-business-presentations/"><u>[Updated] 2024 Approved Essential Templates for Impactful Business Presentations</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-top-scratches-comparative-review-of-recorders/"><u>[Updated] In 2024, Top Scratches Comparative Review of Recorders</u></a></li>
+<li><a href="https://fox-sure.techidaily.com/5aac5l2v5zyo5lin5zcm6k6plus5ash5lik5ogi5asn5yig6zmk55qe5lqa6ams6yck55u457c54wn54mh/"><u>如何在不同设备上恢复删除的亚马逊相簿照片</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/uch-money-flows-from-a-million-views-on-youtube/"><u>How Much Money Flows From A Million Views On YouTube</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-best-10-mock-location-apps-worth-trying-on-google-pixel-7a-drfone-by-drfone-virtual-android/"><u>In 2024, Best 10 Mock Location Apps Worth Trying On Google Pixel 7a | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-streaming-tunes-quick-methods-for-youtube-videos-in-imovie/"><u>In 2024, Streaming Tunes Quick Methods for Youtube Videos in iMovie</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ltimate-guide-to-affordable-and-effective-intros-for-2024/"><u>The Ultimate Guide to Affordable and Effective Intros for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/unlock-academic-excellence-the-ultimate-guide-to-homework-apps-for-pupils-and-parents/"><u>Unlock Academic Excellence: The Ultimate Guide to Homework Apps for Pupils & Parents</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/unlocking-iphones-ultimate-live-photography-potential-for-2024/"><u>Unlocking iPhone's Ultimate Live Photography Potential for 2024</u></a></li>
 </ul></div>
 
