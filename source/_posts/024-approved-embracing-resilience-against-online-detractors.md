@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Embracing Resilience Against Online Detractors\""
-date: 2024-08-16T04:11:40.394Z
-updated: 2024-08-17T04:11:40.394Z
+date: 2025-01-29T16:56:20.959Z
+updated: 2025-01-31T16:46:06.974Z
 tags:
   - ai video
   - ai youtube
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/40db9e7f14d32360658bd45a85fa8baf591a4c124
  Mar 27, 2024• Proven solutions
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
 
@@ -54,20 +58,21 @@ thumbnail: https://thmb.techidaily.com/40db9e7f14d32360658bd45a85fa8baf591a4c124
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -76,12 +81,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/est-free-subtitle-grabbers-from-youtube-archive/"><u>[New] Best Free Subtitle Grabbers From YouTube Archive</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/rom-zero-to-hero-boosting-youtube-view-count-quickly-for-2024/"><u>[New] From Zero to Hero Boosting YouTube View Count Quickly for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-ios-meets-android-an-in-depth-look-at-facial-tech/"><u>[New] IOS Meets Android An In-Depth Look at Facial Tech</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/he-role-of-lighting-in-professional-youtube-content-creation-for-2024/"><u>[New] The Role of Lighting in Professional YouTube Content Creation for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-strategies-for-sourcing-a-list-cinematography-experts/"><u>[Updated] 2024 Approved Strategies for Sourcing A-List Cinematography Experts</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-top-6-youtube-outro-makers-lots-of-free-options/"><u>[Updated] 2024 Approved Top 6 YouTube Outro Makers - Lots of FREE Options</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-earning-in-the-e-commerce-arena-via-engaging-reviews-for-2024/"><u>[Updated] Earning in the E-Commerce Arena via Engaging Reviews for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-from-novice-to-narrative-youtube-seo-strategies/"><u>[Updated] In 2024, From Novice to Narrative YouTube SEO Strategies</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-maximize-youtube-views-a-comprehensible-guide-to-collaborative-videos/"><u>[Updated] In 2024, Maximize YouTube Views A Comprehensible Guide to Collaborative Videos</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-popular-imagery-origins-decoded-for-2024/"><u>[Updated] Popular Imagery Origins Decoded for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-deciphering-digital-dominance-youtube-content-strategy-comparison/"><u>2024 Approved Deciphering Digital Dominance YouTube Content Strategy Comparison</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-supercharge-your-videos-with-powerful-tagging-techniques/"><u>2024 Approved Supercharge Your Videos with Powerful Tagging Techniques</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-the-complete-guide-to-successful-youtube-eluding-these-8-common-slips/"><u>2024 Approved The Complete Guide to Successful YouTube Eluding These 8 Common Slips</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/motion-vs-youtube-monetization-which-is-more-profitable/"><u>Dailymotion vs YouTube Monetization Which Is More Profitable?</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/streams-to-statements-decoding-the-3-step-process-for-calculating-youtube-earnings/"><u>From Streams to Statements Decoding the 3-Step Process for Calculating YouTube Earnings</u></a></li>
+<li><a href="https://media-tips.techidaily.com/hassle-free-steps-for-transforming-avi-videos-into-playstation-portable-psp-compatible-formats/"><u>Hassle-Free Steps for Transforming AVI Videos Into PlayStation Portable (PSP) Compatible Formats</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/quick-transcoding-of-dvd-videos-to-h265-using-nvidia-gpus-utilizing-nvenc-and-cuda-for-optimal-speed/"><u>Quick Transcoding of DVD Videos to H.265 Using NVIDIA GPUs: Utilizing NVENC & CUDA for Optimal Speed</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-itel-p55-drfone-by-drfone-virtual-android/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Itel P55 | Dr.fone</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/update-completed-origin-username-and-password-problems-fixed/"><u>Update Completed: Origin Username & Password Problems Fixed</u></a></li>
+</ul></div>
 
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
-<!-- affiliate ads end -->

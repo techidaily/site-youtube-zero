@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The Ultimate Guide  Undoing Your YT Playback Sequence\""
-date: 2025-01-17T16:42:33.373Z
-updated: 2025-01-24T17:28:55.924Z
+date: 2025-01-27T05:11:08.463Z
+updated: 2025-01-31T18:45:22.001Z
 tags:
   - ai video
   - ai youtube
@@ -42,6 +42,10 @@ Step 1: In the first step, launch a browser on your computer and click the three
 
 ![access google web store](https://images.wondershare.com/filmora/article-images/accessing-google-web-store.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step 2:
 
 * Now, click the three horizontal-line"Menu"icon.
@@ -59,26 +63,18 @@ Step 3:
 ![add extension on youtube](https://images.wondershare.com/filmora/article-images/adding-iridium-for-youtube-to-chrome.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step 4:Open a new page, visit [YouTube](https://www.youtube.com/), and a pop-up window will appear. Select"Close"to terminate it, and clickthe"Menu"(hamburger) icon in the top left corner of the screen. Next, scroll down and open your savedPlaylistthat you want to reverse.
 
 ![iridium for youtube](https://images.wondershare.com/filmora/article-images/iridium-for-youtube.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step 5: Click the "Play All" option in the details section of the playlist and click the Iridium button on the right side of the screen. This will open a new tab with different settings for your playlist. Go to the Video tab, and under the "Playlist" header, toggle the button next to "Enable reverse playlist control" to change the settings.
 
 ![set iridim for youtube](https://images.wondershare.com/filmora/article-images/setting-iridium-for-youtube-to-reverse-playlist.png)
 
 That's about it. You will now be able to watch a YouTube playlist in reverse order.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Using The Third Website
 
@@ -91,6 +87,10 @@ Step 1: Launch a browser on your laptop or desktop, head to theYouTube website, 
 Step 2: In the next step, open a new tab and visit the ["Playlist.Tools"](https://playlist.tools/) website. Now, paste the copied playlist URL in the provided text box, and the platform will start retrieving it.
 
 ![reverse youtube playlist 3rd part](https://images.wondershare.com/filmora/article-images/reversing-youtube-playlist-using-third-party-website.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step 3: Finally, click the "Sort" icon and select descending order to reverse your playlist. You can always return to the original sequence by clicking the "Original Sequence" option in the top right corner of the screen.
 
@@ -107,7 +107,11 @@ You can also utilize the "Sort" option to reverse the playlist. To do so, click 
 ![reverse youtube playlist order](https://images.wondershare.com/filmora/article-images/sorting-the-playlist-order-to-reverse-it.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## A Bonus Tip for YouTube Creator: Make Your Own YouTube Channel Trailer
@@ -133,10 +137,6 @@ Next, provide a name, set the privacy settings to "Private," and click "Create."
 Step 4: In the final step, head to the Playlist tab, click "View Full Playlist" to open the new playlist, and click the "three dots" in the details area on the left. Next, select "Playlist Settings" and toggle the button next to "Add new videos to top of playlist" to enable it.
 
 You can now add more videos to your playlist, and each one will be added to the top. This method helps you arrange the YouTube playlist as you desire.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## The Bottom Line
 
@@ -165,22 +165,18 @@ So, keep reading to learn how to reverse a YouTube playlist so you can watch the
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/udio-upheavals-top-rhythmic-disruptors-for-devices/"><u>[New] Audio Upheavals Top Rhythmic Disruptors for Devices</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/uilding-a-professional-youtube-presence-via-smartphone-for-2024/"><u>[New] Building a Professional YouTube Presence via Smartphone for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/aptivate-viewers-create-success-a-strategy-for-gamers-channels-for-2024/"><u>[New] Captivate Viewers, Create Success A Strategy for Gamers' Channels for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/n-2024-from-concept-to-creation-youtube-trailer-production-via-filmora/"><u>[New] In 2024, From Concept to Creation YouTube Trailer Production via Filmora</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ecurely-distributing-exclusive-youtube-videos-through-gmail-for-2024/"><u>[New] Securely Distributing Exclusive YouTube Videos Through Gmail for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-edu-stream-100-cutting-edge-learning-yt/"><u>[Updated] 2024 Approved Edu-Stream 100 Cutting-Edge Learning YT</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-advanced-techniques-for-title-artistry-in-adobe-ae/"><u>[Updated] Advanced Techniques for Title Artistry in Adobe AE</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-step-by-step-guide-countdown-timer-setup-for-broadcasts/"><u>[Updated] In 2024, Step-by-Step Guide Countdown Timer Setup for Broadcasts</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-innovative-methods-to-utilize-dynamic-images-on-ios-for-2024/"><u>[Updated] Innovative Methods to Utilize Dynamic Images on iOS for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-which-frame-rate-is-ideal-analyzing-benefits-of-30fps-and-60fps/"><u>[Updated] Which Frame Rate Is Ideal? Analyzing Benefits of 30Fps and 60Fps</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-ideal-video-maker-apps-for-novice-iphone-and-android-users/"><u>2024 Approved Ideal Video Maker Apps for Novice iPhone and Android Users</u></a></li>
-<li><a href="https://fox-http.techidaily.com/conquer-the-canvas-of-nature-mastering-iphone-sky-photography/"><u>Conquer the Canvas of Nature Mastering iPhone Sky Photography</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/cing-your-youtube-presence-with-split-screen-techniques-for-2024/"><u>Enhancing Your YouTube Presence with Split-Screen Techniques for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-lost-data-from-iphone-13-pro-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>How To Recover Lost Data from iPhone 13 Pro? | Dr.fone</u></a></li>
-<li><a href="https://techtrends.techidaily.com/the-leading-small-desktop-systems-for-gamers/"><u>The Leading Small Desktop Systems for Gamers</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/top-8-chromium-boosters-harnessing-ai-to-elevate-your-productivity-game/"><u>Top 8 Chromium Boosters: Harnessing AI to Elevate Your Productivity Game</u></a></li>
-<li><a href="https://driver-install.techidaily.com/unleashing-potential-msi-driver-updates-for-pre-win89-systems/"><u>Unleashing Potential: MSI Driver Updates for Pre-Win8/9 Systems</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-effective-ways-for-home-based-podcasting/"><u>[New] 2024 Approved Effective Ways for Home-Based Podcasting</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/rom-beat-to-buzz-creating-impact-in-10-seconds-on-youtube/"><u>[New] From Beat to Buzz Creating Impact in 10 Seconds on YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/aking-money-on-youtube-a-beginners-revenue-roadmap/"><u>[New] Making Money on YouTube A Beginner's Revenue Roadmap</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-cross-platform-comparison-iphone-vs-android-youtube-viewing/"><u>[Updated] 2024 Approved Cross-Platform Comparison IPhone vs Android YouTube Viewing</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-excellent-screen-grabber-aid-for-youtube-content-creators/"><u>[Updated] In 2024, Excellent Screen Grabber Aid for YouTube Content Creators</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-the-nostalgia-edition-revisiting-goofy-film/"><u>[Updated] In 2024, The Nostalgia Edition Revisiting Goofy Film</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-darkening-brilliance-premiere-effects/"><u>2024 Approved Darkening Brilliance Premiere Effects</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-learn-how-to-add-descriptive-texts-to-your-youtube-videos/"><u>2024 Approved Learn How to Add Descriptive Texts to Your YouTube Videos</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/hitman-3-on-pc-stability-solutions-top-fixes-to-prevent-game-crashes/"><u>Hitman 3 on PC Stability Solutions: Top Fixes to Prevent Game Crashes</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ispoofer-is-not-working-on-vivo-g2-fixed-drfone-by-drfone-virtual-android/"><u>iSpoofer is not working On Vivo G2? Fixed | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/aging-google-trends-data-for-idea-genesis-in-videography/"><u>Leveraging Google Trends Data for Idea Genesis in Videography</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-in-2024-how-to-replace-the-audio-track-in-a-video-step-by-step/"><u>New In 2024, How To Replace the Audio Track in a Video Step by Step</u></a></li>
+<li><a href="https://fox-info.techidaily.com/unlocking-potential-in-spotifys-ad-ecosystem/"><u>Unlocking Potential in Spotify's Ad Ecosystem</u></a></li>
 </ul></div>
 

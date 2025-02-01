@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Breaking Down Barriers with Shared YouTube Curations\""
-date: 2024-08-16T04:14:03.535Z
-updated: 2024-08-17T04:14:03.535Z
+date: 2025-01-26T16:16:27.407Z
+updated: 2025-01-31T21:28:00.298Z
 tags:
   - ai video
   - ai youtube
@@ -22,6 +22,10 @@ But what if you've created a playlist of your favorite videos and think your fri
 
 So, let's get started with our guide without any further delay!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Why Doesn't The Share Function In The Playlist Work?
 
 Firstly, let's figure out why the "Share" function doesn't work. The "Share" function in the playlist does not work because it is set to "private," and YouTube doesn't allow you to share them. To fix this, you must first change the privacy settings of the playlist to "public" in the following way:
@@ -41,6 +45,14 @@ Step3 Select your playlist labeled as **"Private."** On the next page, click the
 Once the privacy setting has been changed, the **"share"** function will work as intended.
 
 ![making youtube playlist public](https://images.wondershare.com/filmora/article-images/2023/03/making-youtube-playlist-public.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How To Share The YouTube Playlist?
 
@@ -75,8 +87,9 @@ Step1 In the first step, launch your preferred browser, visit the **YouTube** we
 Step2 On the left side of the website's main interface, click the **"Library"** option and scroll down to the **Playlists** section.
 
 ![sharing others youtube playlist](https://images.wondershare.com/filmora/article-images/2023/03/sharing-others-youtube-playlist.png)
+
 <!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step3 Under the **"Playlists"** section, click on the playlist you want to share. Now, click the **"Share"** icon in the playlist's details section, and a pop-up window will appear. In the **"Share"** section, copy the URL and paste it into an email, message, or social media post to share.
@@ -92,10 +105,6 @@ Fortunately, there's a simple and quick way to do this, and here are the step-by
 Step1 In the first step, head to the **YouTube** website using a browser and use the search bar to access the playlist.
 
 ![sharing youtube playlist while watching](https://images.wondershare.com/filmora/article-images/2023/03/sharing-youtube-playlist-while-watching.png)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 
 Step2 Click the playlist to start watching it. Next, click the **playlist title** in the grey box on the right-hand side.
 
@@ -119,14 +128,15 @@ Step4 In the details section of your YouTube playlist on the playlist page, clic
 
 ![sharing youtube playlist link to collaborate](https://images.wondershare.com/filmora/article-images/2023/03/sharing-youtube-playlist-link-to-collaborate.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step5 A pop-up window will appear on your screen. Toggle on the **"Collaborators can add videos to this playlist"** option to enable it, and the **"Allow new collaborators"** option will appear.
 
 Toggle on the **"Allow new collaborators"** option, click **"Copy"** to save the URL to your clipboard, and click **"Done"** to apply the changes.
 
 ![allowing collaboration on youtube playlist](https://images.wondershare.com/filmora/article-images/2023/03/allowing-collaboration-on-youtube-playlist.png)
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 That's about it! You can now share the playlist link with your friends, who can now add videos to it.
 
@@ -145,15 +155,9 @@ Step2 On the app's main interface/Home screen, tap the **"Library"** option at t
 Step3 Now, scroll down to the **"Playlists"** section and open the playlist you wish to share with your friends.
 
 ![sharing youtube playlist from mobile](https://images.wondershare.com/filmora/article-images/2023/03/sharing-youtube-playlist-from-mobile.png)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
-<!-- affiliate ads end -->
 
 Step4 In the playlist's details section, tap the **"Share"** icon above the **"Play All"** button. Now, tap the **"Copy"** icon to save the playlist's URL on your clipboard, or use other available options to share the playlist directly.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Bonus: Do You Want To Create Your Own YouTube Videos?
 
 We hope you have found the solution to share your YouTube Playlist. Supposing you are a common YouTube user and like to share the fantastic things you found on this platform, are you interested in making a YouTube video by yourself? If yes, please watch the video below to start editing your own videos with a user-friendly video editor - [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/). With it, you can create your video with ease:
@@ -162,9 +166,6 @@ We hope you have found the solution to share your YouTube Playlist. Supposing yo
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
 In this comprehensive guide, we've explored why the share function in the playlist is not working and **how to share a YouTube playlist** using your computer and mobile device.
@@ -176,11 +177,16 @@ Step2 On the app's main interface/Home screen, tap the **"Library"** option at t
 Step3 Now, scroll down to the **"Playlists"** section and open the playlist you wish to share with your friends.
 
 ![sharing youtube playlist from mobile](https://images.wondershare.com/filmora/article-images/2023/03/sharing-youtube-playlist-from-mobile.png)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step4 In the playlist's details section, tap the **"Share"** icon above the **"Play All"** button. Now, tap the **"Copy"** icon to save the playlist's URL on your clipboard, or use other available options to share the playlist directly.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Bonus: Do You Want To Create Your Own YouTube Videos?
 
@@ -190,9 +196,6 @@ We hope you have found the solution to share your YouTube Playlist. Supposing yo
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## Conclusion
 
 In this comprehensive guide, we've explored why the share function in the playlist is not working and **how to share a YouTube playlist** using your computer and mobile device.
@@ -209,8 +212,6 @@ In this comprehensive guide, we've explored why the share function in the playli
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -218,8 +219,19 @@ In this comprehensive guide, we've explored why the share function in the playli
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-secrets-to-successfully-capturing-facebooks-status-videos/"><u>[New] 2024 Approved Secrets to Successfully Capturing Facebook's Status Videos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-unveil-the-best-of-history-top-10-youtube-channel-list/"><u>[Updated] 2024 Approved Unveil the Best of History Top 10 YouTube Channel List</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-craft-your-narrative-best-free-mobile-editors-android-focus/"><u>[Updated] Craft Your Narrative Best Free Mobile Editors, Android Focus</u></a></li>
+<li><a href="https://discover-hacks.techidaily.com/diving-deep-a-detailed-analysis-of-avi-vs-mp4-video-formats/"><u>Diving Deep: A Detailed Analysis of AVI Vs. MP4 Video Formats</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/event-tracing-fatal-error-windows-11-solved/"><u>Event Tracing Fatal Error Windows 11 [SOLVED]</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-generating-wealth-with-makeup-channels/"><u>In 2024, Generating Wealth with Makeup Channels</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/macx-youtube-downloader/"><u>MacX YouTube Downloader チュートリアル - マクスペックで動画ファイルダウンロードの効果的なガイド</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-mastering-pip-a-step-by-step-guide-to-final-cut-pro/"><u>New In 2024, Mastering PiP A Step-by-Step Guide to Final Cut Pro</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/step-by-step-update-your-vga-drivers-for-enhanced-display-quality/"><u>Step-by-Step: Update Your VGA Drivers for Enhanced Display Quality</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/tailoring-your-app-experience-win11-color-automation/"><u>Tailoring Your App Experience: Win11 Color Automation</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/k-50-exclusive-youtube-banner-free-gifts-for-2024/"><u>Unlock 50 Exclusive YouTube Banner Free Gifts for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/yearly-compilation-of-exciting-yt-unboxing-clips-for-2024/"><u>Yearly Compilation of Exciting YT Unboxing Clips for 2024</u></a></li>
+</ul></div>
 

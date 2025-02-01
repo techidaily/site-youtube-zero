@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Eye-Catching Vlog Talk Points\""
-date: 2024-08-16T04:12:27.340Z
-updated: 2024-08-17T04:12:27.340Z
+date: 2025-01-31T07:50:07.741Z
+updated: 2025-02-01T03:38:06.835Z
 tags:
   - ai video
   - ai youtube
@@ -32,6 +32,10 @@ How do you know [what you should talk about in your vlog](https://tools.techidai
 
 Before starting your daily vlogging, you have to figure out one important thing ahead of time.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Do you have a niche?
 
   You should have a niche. In a genre as broad as vlogging it is important to have some kind of hook that sets you apart from other vloggers. This can be an interest that you have, an industry you work in, or even a field of study you’re involved in at school. If you’re into technology, for example, you’ll always have a wealth of subjects to vlog about because all you’ll have to do is look at the day’s tech news and make a video reporting and commenting on it.
@@ -45,18 +49,12 @@ The other reason it’s good to have a niche is that you’ll be able to use key
 
 Here are 4 things to talk about in your daily vlog:
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 ## What are you watching/reading?
 
  If you’re really into a book or tv show, or if you saw a movie recently, then those are all good things to talk about (warn people if you’re going to spoil anything!). You do recaps, reviews, or just share a few thoughts you had. If you’re worried about alienating people who don’t watch/read the same stuff as you then you can keep it more general and just react to a few things from the media you’re consuming while also talking about your day. It’ll give you an anchor to build the rest of your video around, even if it’s not all you talk about.
 
 By commenting on what you’re watching/reading you have a better chance of capitalizing on a trending topic people are searching for. You could also find yourself an audience by becoming involved in fan communities.
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Snapshots of Your Day
 
  Casey Neistat is the master of this. He is always ready with a camera on hand so that, when something interesting happens, he can capture it and build his daily vlog around it.
@@ -64,8 +62,9 @@ By commenting on what you’re watching/reading you have a better chance of capi
 Carrying a camera around like Casey may or may not suit your lifestyle, but you can still pick out one story from your day to tell. It doesn’t have to be a major event, and you shouldn’t worry that it won’t be interesting to other people. It’s your personality they’re tuning in for, so even if you’re just talking about a funny thing your cat did it will keep your audience interested because a) it’s you talking about it and b) it gives them a bit of insight into your life.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Whatever You Need to Get Out
 
 _Flula is frequently puzzled by English expressions, like 'Party Pooper', and needs to get his confusion off his chest at odd hours of the day._
@@ -77,8 +76,9 @@ It does not matter what it is that is making you have this strong reaction (unle
 Alternatively: you could do a vlog about how happy you are to have gotten engaged or a vlog about how happy you are that it was sunny today, and your enthusiasm will carry your audience through either video with you.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What did you learn today?
 
  _Fun fact: The original lyrics Paul McCartney imagined for 'Yesterday' were 'Scrambled eggs, oh my baby how I love your legs'._
@@ -99,20 +99,22 @@ Sea monkeys can survive in space.
 
 You could also just flick the camera on and tell the full story of your day like you’d do in a traditional daily blog. What did you have for breakfast, how was school/work, did you talk to any friends, how was the weather – anything and everything. Generally, these videos can run a bit long and don’t have a lot of snappy editing. They’re faster to make, which is good if you’re doing them every day, but the unpolished nature of them won’t appeal to everyone. It will be exactly what appeals to some people, though.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Customize Your Vlog Stories with Powerful Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **We’ve got a new eBook out!**
 
 It’s got strategies that have worked for other YouTubers, boiled down to simple action steps.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -121,14 +123,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -137,8 +136,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/est-practices-for-youtube-outro-design-for-2024/"><u>[New] Best Practices for YouTube Outro Design for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/reak-through-bot-barriers-rising-from-the-crowd/"><u>[New] Break Through Bot Barriers Rising From the Crowd</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-easy-screencasting-techniques-systematic-guidebook-for-2024/"><u>[New] Easy Screencasting Techniques Systematic Guidebook for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-essential-routines-for-easy-webinar-saves-on-windows-platform/"><u>[New] Essential Routines for Easy Webinar Saves on Windows Platform</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/rom-lens-to-legacy-building-a-lasting-career-in-travel-blogging-for-2024/"><u>[New] From Lens to Legacy Building a Lasting Career in Travel Blogging for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-immediate-flagging-of-insta-de-following-events/"><u>[New] In 2024, Immediate Flagging of Insta De-Following Events</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/outube-video-magic-comprehensive-editing-for-professionals/"><u>[New] YouTube Video Magic Comprehensive Editing for Professionals</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-excellent-choice-for-capturing-professional-quality-on-youtube-for-2024/"><u>[Updated] Excellent Choice for Capturing Professional Quality on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-battlefront-bastion-100plus-epic-game-battles/"><u>[Updated] In 2024, Battlefront Bastion 100+ Epic Game Battles</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-add-visual-appeal-with-these-methods-for-yt-video-inclusion-in-ppt/"><u>2024 Approved Add Visual Appeal with These Methods for YT Video Inclusion in PPT</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-scholarstreams-essential-educational-youtube-sites/"><u>2024 Approved ScholarStreams Essential Educational YouTube Sites</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/expert-tips-for-fixing-the-nspr4dll-file-not-detected-mistake/"><u>Expert Tips for Fixing the Nspr4.dll File Not Detected Mistake</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-can-we-bypass-oneplus-frp-by-drfone-android/"><u>How Can We Bypass OnePlus FRP?</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-gain-viewership-virtuously-expert-guide-to-implementing-youtubes-featured-listings/"><u>In 2024, Gain Viewership Virtuously Expert Guide to Implementing YouTube's Featured Listings</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-sim-unlock-nubia-z50s-pro-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>In 2024, Sim Unlock Nubia Z50S Pro Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/masterful-sound-setup-ultimate-tips-and-gear-list/"><u>Masterful Sound Setup Ultimate Tips & Gear List</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/transforming-the-olympic-games-the-influence-of-artificial-intelligence-with-abbyy/"><u>Transforming the Olympic Games: The Influence of Artificial Intelligence with ABBYY</u></a></li>
+</ul></div>
 

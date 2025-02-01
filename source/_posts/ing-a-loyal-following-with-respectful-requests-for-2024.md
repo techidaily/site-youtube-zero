@@ -1,7 +1,7 @@
 ---
 title: "Building a Loyal Following with Respectful Requests for 2024"
-date: 2025-01-17T17:59:43.183Z
-updated: 2025-01-24T20:17:17.734Z
+date: 2025-01-30T06:11:07.570Z
+updated: 2025-01-31T19:46:46.431Z
 tags:
   - ai video
   - ai youtube
@@ -50,7 +50,7 @@ It has become the norm for YouTubers to ask viewers to subscribe in their sign-o
 That’s great. At the end of a video is a good place to ask people to subscribe, but is it the best and only place you should be reminding them? If you take a peek at your analytics and you might find that most of your viewers aren’t watching to the ends of your videos (people have short attention spans).
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## A More Effective Way of Asking For Subscribers
@@ -63,6 +63,10 @@ As you can see, the video starts with a ‘flash forward’ to one of the twins 
 
 ![ how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-by-hook.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### Step 2: Get to The Point Quickly
 
 Shortly after, while still in the first 30 seconds of the video, Collins gets right to the point and introduces the Twin Telepathy Challenge promised in the title of the video. The hook with the heater catching fire is effective, but it’s not essential. It happens to suit Collins’ style, and it happens to have happened. Getting to the main point of the video quickly – usually in the first 15 seconds, not the first 30 (it’s in the first 15 seconds that most viewers click away) – is vital. People click on videos for a reason, and if they don’t see a sign of that payoff quickly they’ll leave.
@@ -73,14 +77,10 @@ It’s only after hooking the viewer in and reiterating the promise of the title
 
 ![ how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-in-perfect-moment.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Collins Key has been one of the fastest-growing channels on YouTube. He does not implement this strategy in every video, but it’s not a stretch to think it’s had something to do with his success. Instead of simply asking you to subscribe at the end of the video, he creates a part of the video early on – before people who don’t watch until the end will have clicked away – where you feel as if you’re ‘supposed to’ subscribe.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Polish Your YouTube Videos with Filmora
@@ -94,7 +94,7 @@ Here is a tutorial video about how to use Filmora to edit your YouTube video. Ch
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 That's how you can get more YouTube subscribers by asking the right way. You may follow the instructions and try it yourself. Do not forget to [track your YouTube subscribers in real time](https://tools.techidaily.com/wondershare/filmora/download/) to make necessary adjustments.
@@ -102,7 +102,7 @@ That's how you can get more YouTube subscribers by asking the right way. You may
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -126,24 +126,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-helps.techidaily.com/new-2024-approved-cheerful-account-creation-handbook/"><u>[New] 2024 Approved Cheerful Account Creation Handbook</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-record-presentation-for-digital-projection/"><u>[New] 2024 Approved Record Presentation for Digital Projection</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ecoding-video-potential-dslr-vs-mirrorless-innovation/"><u>[New] Decoding Video Potential DSLR vs Mirrorless Innovation</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-channeling-changes-transition-to-youtubes-updated-membership-model/"><u>[Updated] 2024 Approved Channeling Changes Transition to YouTube's Updated Membership Model</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-first-offset-guide-affordable-channel-buys-to-monetize/"><u>[Updated] 2024 Approved First Offset Guide Affordable Channel Buys to Monetize</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-stunning-video-capture-best-youtube-cameras-reviewed/"><u>[Updated] 2024 Approved Stunning Video Capture Best YouTube Cameras Reviewed</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-capturing-your-screen-apowersoft-and-others/"><u>[Updated] In 2024, Capturing Your Screen Apowersoft and Others</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-narrative-enhancements-the-process-of-infusing-text-into-your-video-content/"><u>[Updated] In 2024, Narrative Enhancements The Process of Infusing Text Into Your Video Content</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-effortless-guide-to-adding-banners-on-gaming-channels/"><u>2024 Approved Effortless Guide to Adding Banners on Gaming Channels</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/t-streamline-the-most-efficient-flv-to-youtube-tools-ranked-for-2024/"><u>Direct Streamline The Most Efficient Flv-to-YouTube Tools Ranked for 2024</u></a></li>
-<li><a href="https://program-issues.techidaily.com/garrys-mod-crashes-no-more-updated-fix-guide-for-gamers/"><u>Garry's Mod Crashes No More - Updated Fix Guide for Gamers</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/o-share-a-private-youtube-video-in-2024/"><u>How to Share a Private YouTube Video, In 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-from-concept-to-completion-crafting-your-youtube-masterpiece/"><u>In 2024, From Concept to Completion Crafting Your YouTube Masterpiece</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-change-vivo-v30-lock-screen-password-by-drfone-android/"><u>In 2024, How To Change Vivo V30 Lock Screen Password?</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-vivo-v30-pro-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Vivo V30 Pro? | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-still-using-pattern-locks-with-motorola-moto-g04-tips-tricks-and-helpful-advice-by-drfone-android/"><u>In 2024, Still Using Pattern Locks with Motorola Moto G04? Tips, Tricks and Helpful Advice</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/leading-gaming-hardware-the-ultimate-choices-for-gamers/"><u>Leading Gaming Hardware: The Ultimate Choices for Gamers</u></a></li>
-<li><a href="https://solve-helper.techidaily.com/resolved-fixing-issues-with-file-playback-in-windows-media-player-on-windows-11-and-windows-10/"><u>Resolved: Fixing Issues with File Playback in Windows Media Player on Windows 11 and Windows 10</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/swf-3gp-movavi/"><u>SWF 프로그램을 3GP로 구성하기: 인터넷에서 비용 없이 Movavi를 사용한다</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ural-clarity-unleashed-secrets-to-high-quality-audio-for-2024/"><u>[New] Aural Clarity Unleashed Secrets to High-Quality Audio for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-encompassing-explanation-what-is-googles-podcast-service-for-2024/"><u>[New] Encompassing Explanation What Is Google's Podcast Service for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-giggle-engineer-apocalyptic-comic-relief/"><u>[New] Giggle Engineer Apocalyptic Comic Relief</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-composing-cinematic-stories-on-an-iphone-learn-three-no-cost-methods-to-add-tunes/"><u>[New] In 2024, Composing Cinematic Stories on an iPhone – Learn Three No-Cost Methods to Add Tunes</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-15-inspiring-youtube-guides-for-aspiring-singers-and-instrumentalists/"><u>[Updated] 15 Inspiring YouTube Guides for Aspiring Singers and Instrumentalists</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-analyzing-the-features-of-vegaspros-latest-release/"><u>[Updated] 2024 Approved Analyzing the Features of VegasPro's Latest Release</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-elite-group-16-youtube-entries-boosting-views/"><u>[Updated] Elite Group 16 YouTube Entries Boosting Views</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-is-it-prohibited-to-save-youtube-footage/"><u>2024 Approved Is It Prohibited to Save YouTube Footage?</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-step-by-step-apple-techniques-for-high-quality-interviews-on-air/"><u>2024 Approved Step-by-Step Apple Techniques for High-Quality Interviews on Air</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-strategies-for-sourcing-video-content-with-google-trends/"><u>2024 Approved Strategies for Sourcing Video Content with Google Trends</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-the-symbiotic-relationship-between-cities-and-ecology/"><u>2024 Approved The Symbiotic Relationship Between Cities and Ecology</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ing-the-best-video-game-openers-on-yt-no-money-max-impact-in-2024/"><u>Curating the Best Video Game Openers on YT No Money, Max Impact, In 2024</u></a></li>
+<li><a href="https://driver-install.techidaily.com/effortless-wacom-bamboo-software-update/"><u>Effortless Wacom Bamboo Software Update</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/o-profit-from-your-youtube-channels/"><u>How to Profit From Your YouTube Channels</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-teleport-your-gps-location-on-infinix-smart-7-hd-drfone-by-drfone-virtual-android/"><u>How To Teleport Your GPS Location On Infinix Smart 7 HD? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-a-lost-poco-x5-for-free-drfone-by-drfone-virtual-android/"><u>How to Track a Lost Poco X5 for Free? | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-driving-income-through-youtube-shorts-crucial-elements-and-earnings-potential/"><u>In 2024, Driving Income Through YouTube Shorts Crucial Elements and Earnings Potential</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/slash-prices-on-elite-lenovo-laptops-tailored-for-efficient-hybrid-work-life-insider-secrets-revealed/"><u>Slash Prices on Elite Lenovo Laptops Tailored for Efficient Hybrid Work Life - Insider Secrets Revealed !</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/twitch-account-removal-a-comprehensive-step-by-step-instruction-set/"><u>Twitch Account Removal - A Comprehensive Step-by-Step Instruction Set</u></a></li>
 </ul></div>
 

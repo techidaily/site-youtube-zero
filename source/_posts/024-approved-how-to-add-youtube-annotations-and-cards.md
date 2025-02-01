@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  How to Add YouTube Annotations and Cards?\""
-date: 2024-08-16T04:13:25.826Z
-updated: 2024-08-17T04:13:25.826Z
+date: 2025-01-25T08:56:41.531Z
+updated: 2025-02-01T04:48:23.107Z
 tags:
   - ai video
   - ai youtube
@@ -45,6 +45,10 @@ The main difference between annotation and cards is their outlook. Cards are mor
 * [Part 1: How to Add YouTube Cards](#part1)
 * [Part 2: How to Add YouTube Annotations](#part2)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to add YouTube Cards
 
 YouTube **Cards** are similar to annotations but more interactive. They allow the owner of the video to add images and other links. A small box appears, clicking on which will activate the cards.
@@ -53,10 +57,18 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 ![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Click "Edit" tab under the video screen shot you want to add the card on
 * Click on the "Cards" tab
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
 * Click on the create button which will open the corresponding video
@@ -68,8 +80,9 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 * Apply changes and exit
 
 <!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to add YouTube annotations
 
 YouTube Annotation is addition of a text layer, link or hotspots over your video. They add interactive boxes which link to other websites or videos (any link you want).
@@ -79,17 +92,15 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 * Click on the "End screen & Annotation" tab
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
-<!-- affiliate ads end -->
 
 * Apply changes
 
@@ -128,9 +139,6 @@ The best outros also include a subscribe button, which can be created using anno
 No matter what kind of annotations you are using, you should never use more than two of them at a time anywhere except for your outro. You should also never place annotations at the very top of your screen, or in the middle at the bottom. If your video is embedding on a separate website then the player will cover annotations at the top of the screen, and ads might cover annotations placed in the bottom-middle of the screen. Keep in mind when using annotations that they will not be visible to users watching your videos on mobile devices. If mobile traffic is very important to you then consider using YouTube Cards.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -138,14 +146,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -154,8 +159,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-unveiling-the-top-methods-of-video-and-screenshots/"><u>[New] In 2024, Unveiling the Top Methods of Video & Screenshots</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ioneering-the-perfect-playlist-for-youtube-music-enthusiasts-for-2024/"><u>[New] Pioneering the Perfect Playlist for YouTube Music Enthusiasts for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-react-and-relate-harness-the-power-of-alternate-perspectives-for-compelling-youtube-vids-2-pov-method/"><u>[New] React and Relate - Harness the Power of Alternate Perspectives for Compelling YouTube Vids (2 POV Method)</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-instant-expertise-changing-photos-to-captivating-youtube-thumbnails/"><u>[Updated] 2024 Approved Instant Expertise Changing Photos to Captivating YouTube Thumbnails</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-safe-sharing-safe-viewing-tips-for-hiding-online-images/"><u>[Updated] 2024 Approved Safe Sharing, Safe Viewing Tips for Hiding Online Images</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-top-9-free-custom-youtube-branding-tools-online/"><u>[Updated] 2024 Approved Top 9 FREE Custom YouTube Branding Tools Online</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-transform-your-streaming-experience-via-youtubes-av1-feature/"><u>[Updated] 2024 Approved Transform Your Streaming Experience via YouTube's AV1 Feature</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-finding-sound-in-silence-3-cost-free-methods-to-music-enrich-your-videos-for-2024/"><u>[Updated] Finding Sound in Silence 3 Cost-Free Methods to Music-Enrich Your Videos for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-discover-the-best-in-class-our-list-of-12-high-performing-flip-cameras/"><u>[Updated] In 2024, Discover the Best in Class Our List of 12 High-Performing Flip Cameras</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-innovative-youtube-monikers-for-vloggers-and-filmmakers-up-to-156-characters/"><u>[Updated] In 2024, Innovative Youtube Monikers for Vloggers & Filmmakers (Up to 156 Characters)</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-instagrams-updated-strategy-and-its-effects-for-2024/"><u>[Updated] Instagram’s Updated Strategy and Its Effects for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-best-of-the-best-cutting-edge-hiring-videos-1-10/"><u>2024 Approved Best of the Best Cutting-Edge Hiring Videos #1-10</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/essential-tips-for-using-instagrams-sound-emojis/"><u>Essential Tips for Using Instagram's Sound Emojis</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-epic-escapades-10-roguelite-games-reviewed/"><u>In 2024, Epic Escapades #10 Roguelite Games Reviewed</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-my-infinix-zero-30-5g-location-is-wrong-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix My Infinix Zero 30 5G Location Is Wrong | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/navigating-the-future-the-finest-high-tech-eyewear/"><u>Navigating the Future: The Finest High-Tech Eyewear</u></a></li>
+<li><a href="https://location-social.techidaily.com/top-7-skype-hacker-to-hack-any-skype-account-on-your-poco-m6-pro-4g-drfone-by-drfone-virtual-android/"><u>Top 7 Skype Hacker to Hack Any Skype Account On your Poco M6 Pro 4G | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/waps-in-film-history-7-best-for-2024/"><u>Top Swaps in Film History #7 Best for 2024</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-edit-videos-for-free-top-14-watermark-free-software-for-2024/"><u>Updated Edit Videos for Free Top 14 Watermark-Free Software for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Personal Evolution  Building an Enduring YouTubing Identity\""
-date: 2025-01-18T21:48:38.721Z
-updated: 2025-01-24T18:27:54.025Z
+date: 2025-01-26T01:46:02.525Z
+updated: 2025-02-01T03:15:21.776Z
 tags:
   - ai video
   - ai youtube
@@ -41,7 +41,7 @@ YouTube is oversaturated. If you do comedy, fashion, gaming, vlogging, or any ot
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Bonus Tip-Make A Creative YouTube Video with Wondershare Filmora
@@ -51,16 +51,12 @@ No Doubt, Filmora is the one of the best tools for newbie editors, vloggers and 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Your Brand is Your Unique Message
 
 Competing on YouTube is all about offering value. Viewers should be able to find something on your channel that they can’t find anywhere else. This doesn’t mean you need to bend over backwards trying to[invent brand new video ideas that nobody has ever tried before](https://www.filmora.io/community-blog/how-to-be-original-on-youtube-289.html) – it just means you need to focus on building your unique brand. That is what will make viewers subscribe to you instead of just watching one of your videos and then clicking away.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## The Elevator Pitch
 
@@ -79,7 +75,7 @@ You need to be able to do that when you talk about your channel.
 Work on developing an elevator pitch for your channel. It will help you define your brand for yourself, and it’ll be useful if you make a channel trailer.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Start Building Your Brand
@@ -91,6 +87,10 @@ Building a brand should be intentional. You need to be yourself, but it’s not 
 You will notice patterns. There will be things you do in your video that people consistently like more and less. The way you build your brand is by cutting out the stuff that isn’t working and focusing more intentionally on the stuff that is. If people like it when you do meme humor, for example, do more meme humor and make incorporating that in your videos part of your brand.
 
 Banners and thumbnails are also a part of your brand. [More on that here](https://www.filmora.io/community-blog/how-to-make-youtube-banners-and-thumbnails-316.html).
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Being Consistent
 
@@ -113,7 +113,7 @@ When you intentionally create your personal brand on YouTube, you take charge of
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -137,15 +137,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-beginners-backstage-pass-to-photo-tricks/"><u>[New] 2024 Approved Beginner's Backstage Pass to Photo Tricks</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-simplifying-video-production-with-captivate-for-2024/"><u>[New] Simplifying Video Production with Captivate for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-mastering-youtube-monetization-a-cpm-perspective/"><u>[Updated] 2024 Approved Mastering YouTube Monetization A CPM Perspective</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-globalviewers-access-unlimited-local-tv-for-life/"><u>[Updated] GlobalViewers Access Unlimited Local TV for Life</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-bridging-creativity-and-engagement-anime-subscribe-buttons-with-filmora/"><u>[Updated] In 2024, Bridging Creativity & Engagement - Anime Subscribe Buttons with Filmora</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-podcast-cover-design-ten-essential-best-practices/"><u>2024 Approved Podcast Cover Design Ten Essential Best Practices</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/how-to-open-your-iphone-6-plus-without-a-home-button-drfone-by-drfone-ios/"><u>How To Open Your iPhone 6 Plus Without a Home Button | Dr.fone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-streamlined-processes-for-swift-comment-removal-on-youtube/"><u>In 2024, Streamlined Processes for Swift Comment Removal on YouTube</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/resolving-frame-rate-issues-in-godfall-a-comprehensive-guide/"><u>Resolving Frame Rate Issues in Godfall: A Comprehensive Guide</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ltimate-strategy-for-stellar-valorant-video-thumbnails-on-youtube/"><u>The Ultimate Strategy for Stellar Valorant Video Thumbnails on YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-best-video-format-for-youtube-uploading/"><u>[New] 2024 Approved Best Video Format for YouTube Uploading</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-revisiting-old-memories-how-to-upload-them-on-snapchat/"><u>[New] 2024 Approved Revisiting Old Memories How to Upload Them on Snapchat</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ut-the-cost-not-the-creativity-best-free-editing-tools-top-9-for-2024/"><u>[New] Cut The Cost, Not The Creativity Best Free Editing Tools (Top 9) for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-comparing-free-and-premium-youtube-experiences-whats-best-in-2024/"><u>[Updated] Comparing Free and Premium YouTube Experiences What's Best, In 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-gaming-history-told-by-top-video-makers-for-2024/"><u>[Updated] Gaming History Told by Top Video Makers for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-skyrocket-to-the-top-on-youtube-secrets-of-effective-seo-tactics-1-11/"><u>[Updated] In 2024, Skyrocket to the Top on YouTube Secrets of Effective SEO Tactics (1-11)</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-strategizing-live-broadcasts-turn-your-recordings-into-facebook-hits/"><u>2024 Approved Strategizing Live Broadcasts Turn Your Recordings Into Facebook Hits</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-visual-caption-builder-for-2024/"><u>Audio Visual Caption Builder for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/can-machine-mirth-be-reached-giggle-genius-of-ais/"><u>Can Machine Mirth Be Reached?: Giggle Genius of AIs</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/cing-watchability-adding-time-stamps-to-youtube-videos/"><u>Enhancing Watchability Adding Time Stamps to YouTube Videos</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/getting-started-with-vision-pros-travel-mode-insights-and-preparation-tips-for-a-smooth-journey/"><u>Getting Started with Vision Pro’s Travel Mode: Insights & Preparation Tips for a Smooth Journey</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-a-lost-infinix-zero-30-5g-for-free-drfone-by-drfone-virtual-android/"><u>How to Track a Lost Infinix Zero 30 5G for Free? | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-full-guide-to-fix-itoolab-anygo-not-working-on-samsung-galaxy-f54-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Fix iToolab AnyGO Not Working On Samsung Galaxy F54 5G | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-sharefake-location-on-whatsapp-for-samsung-galaxy-a14-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share/Fake Location on WhatsApp for Samsung Galaxy A14 5G | Dr.fone</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/the-quiet-command-conductive-windows-11-halt/"><u>The Quiet Command: Conductive Windows 11 Halt</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/tiktok-bgs-exploring-affordable-eye-catching-visuals/"><u>TikTok BGs Exploring Affordable, Eye-Catching Visuals</u></a></li>
 </ul></div>
 

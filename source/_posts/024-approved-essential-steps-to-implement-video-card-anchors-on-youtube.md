@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Essential Steps to Implement Video Card Anchors on YouTube\""
-date: 2024-08-16T04:12:16.463Z
-updated: 2024-08-17T04:12:16.463Z
+date: 2025-01-29T16:39:11.617Z
+updated: 2025-01-31T19:06:05.320Z
 tags:
   - ai video
   - ai youtube
@@ -45,6 +45,10 @@ The main difference between annotation and cards is their outlook. Cards are mor
 * [Part 1: How to Add YouTube Cards](#part1)
 * [Part 2: How to Add YouTube Annotations](#part2)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to add YouTube Cards
 
 YouTube **Cards** are similar to annotations but more interactive. They allow the owner of the video to add images and other links. A small box appears, clicking on which will activate the cards.
@@ -58,6 +62,10 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
 * Click on the create button which will open the corresponding video
 * Once you finish the subsequent information required click create card
@@ -65,11 +73,12 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 ![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Apply changes and exit
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
-<!-- affiliate ads end -->
 ## How to add YouTube annotations
 
 YouTube Annotation is addition of a text layer, link or hotspots over your video. They add interactive boxes which link to other websites or videos (any link you want).
@@ -79,17 +88,15 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 * Click on the "End screen & Annotation" tab
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
-<!-- affiliate ads end -->
 
 * Apply changes
 
@@ -128,8 +135,9 @@ The best outros also include a subscribe button, which can be created using anno
 No matter what kind of annotations you are using, you should never use more than two of them at a time anywhere except for your outro. You should also never place annotations at the very top of your screen, or in the middle at the bottom. If your video is embedding on a separate website then the player will cover annotations at the top of the screen, and ads might cover annotations placed in the bottom-middle of the screen. Keep in mind when using annotations that they will not be visible to users watching your videos on mobile devices. If mobile traffic is very important to you then consider using YouTube Cards.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -138,14 +146,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -154,8 +159,18 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-step-by-step-privacy-adjustments-for-youtube/"><u>[New] In 2024, Step-by-Step Privacy Adjustments for YouTube</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-100plus-gaming-channel-names-for-every-gamer-filmora/"><u>[Updated] 2024 Approved 100+ Gaming Channel Names for Every Gamer - Filmora</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-transform-your-tone-and-texture-with-easy-snapchat-voice-tweaks/"><u>[Updated] 2024 Approved Transform Your Tone and Texture with Easy Snapchat Voice Tweaks</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-expert-tips-for-slide-presentation-with-youtube-for-2024/"><u>[Updated] Expert Tips for Slide Presentation with YouTube for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-flight-friendly-robot-categories/"><u>[Updated] In 2024, Flight-Friendly Robot Categories</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-must-have-filmmaking-tools-for-aspiring-youtubers/"><u>[Updated] In 2024, Must-Have Filmmaking Tools for Aspiring YouTubers</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-efficient-techniques-for-adobe-presenter-capture/"><u>2024 Approved Efficient Techniques for Adobe Presenter Capture</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-how-to-record-good-audio-without-a-microphone/"><u>2024 Approved How to Record Good Audio Without a Microphone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-unleashing-creativity-in-youtube-banner-and-thumbnail-design/"><u>2024 Approved Unleashing Creativity in YouTube Banner & Thumbnail Design</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/ultimate-6-heavies-massive-language-models-triumph/"><u>Ultimate 6 Heavies: Massive Language Models Triumph</u></a></li>
+<li><a href="https://win-answers.techidaily.com/ultimate-solution-for-jurassic-world-evolution-game-crashes-and-stabilization-tips/"><u>Ultimate Solution for Jurassic World Evolution Game Crashes and Stabilization Tips</u></a></li>
+</ul></div>
 

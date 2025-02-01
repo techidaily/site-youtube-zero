@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  How to Add Text to YouTube Video Before or After Uploading\""
-date: 2024-08-16T04:13:11.605Z
-updated: 2024-08-17T04:13:11.605Z
+date: 2025-01-26T04:59:47.351Z
+updated: 2025-02-01T04:34:45.883Z
 tags:
   - ai video
   - ai youtube
@@ -40,6 +40,10 @@ There are plenty of Text effects built in Filmora, you can apply motions and ani
 
 ![Add Text to Video](https://images.wondershare.com/filmora/article-images/filmora-advanced-text-edit-interface.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Open up Filmora and drag a clip into your timeline. Then, go to   **Text/Credit.**
 * Find a style that you like and drag it into your timeline where you want your text to appear. Make sure your text is selected in your timeline and click the   **Advanced Text Editing** icon, which looks like a pen and paper.
 * Insert your own words and drag your text to where you want it on the screen. Adjust the size by dragging the blue squares which surround your text.
@@ -47,6 +51,10 @@ There are plenty of Text effects built in Filmora, you can apply motions and ani
 * All of Filmora’s text options are animated – they fade, move around the screen, or perform some other type of action as they appear and disappear. To change the animation of your text select **Animation** next to **Customize**. A selection of different animations will appear. Double click on the one you want to apply to your text.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 [Check the detailed steps of how to add text to video in Filmora.](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -86,9 +94,6 @@ For professionals who are looking for a professional way to adding text to video
 * You can also edit your text using the commands that are provided in the Title Menu.
 * Save the text that you have made by clicking the file menu then choose Save As.
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### How to Add Text to video in YouTube after uploading
 
 Sometimes, we have uploaded a video to YouTube and then want to add subtitles/cc to the video later. The good news is that YouTube is not only a site for videos but is also the place where you can edit your videos in an instant. As you have read, adding text and captions to the uploaded YouTube videos is just a breeze.
@@ -100,8 +105,9 @@ Of course, you can only add and edit texts and captions to the video under your 
 * Add Captions/Subtitles
 
 ![Add Text to Video](https://images.wondershare.com/filmora/article-images/add-text-youtube-video-editor.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 While YouTube may have already created the subtitles automatically for your video with its speech recognition technology. If it does, you will see something like Published: English (Automatic) to the right of your video. If the automatically generated subtitles is not correct, you can edit it to improve the accuracy. Select the line that needs modification to make the edits.
@@ -109,9 +115,6 @@ While YouTube may have already created the subtitles automatically for your vide
 If there is no auto-subtitles, you can choose from 3 ways to add subtitles and closed captions to the video: Upload a file, Transcribe and auto-sync and create new subtitles or CC.
 
 ![Add Text to Video](https://images.wondershare.com/filmora/article-images/3-ways-to-add-youtube-subtitles.jpg)
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
 **Upload a file:** upload a text transcript or timed subtitles file.
 
@@ -130,8 +133,9 @@ When you make use of this editor, you cannot shorten the clips for music. Moreov
 From 20th September 2017 users will no longer be able to use the complementary editing suite. Check the best [YouTube video editor alternatives](https://tools.techidaily.com/wondershare/filmora/download/) from this complete guide to find out more YouTube video editor alternatives if you want to add text to video with more features and customization.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=19080710&QTY=1&AFFILIATE=108875&CART=1"><img src="https://smart-seo-tool.com/images/SmartSEOAuditorBox.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Top 3 Tips for Adding Text to YouTube Videos
 
 #### 1\. Leave Room
@@ -153,14 +157,12 @@ Text is a great tool for making something stand out. However, if you try to use 
 Try to use text to emphasize only the most important things you say.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -168,14 +170,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -184,8 +183,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/dobe-premiere-power-enhancing-your-youtube-presence/"><u>[New] Adobe Premiere Power Enhancing Your YouTube Presence</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/or-social-media-savants-distinguishing-between-igtv-and-youtube-for-2024/"><u>[New] For Social Media Savants Distinguishing Between IGTV & YouTube for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nlock-6-figure-videos-top-hashtag-trends-for-2024/"><u>[New] Unlock 6-Figure Videos Top Hashtag Trends for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-visual-learning-experience-quick-edit-tips-for-educators/"><u>[New] Visual Learning Experience Quick Edit Tips for Educators</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-launching-into-the-world-of-web-flipping-videos-from-mac/"><u>[Updated] 2024 Approved Launching Into the World of Web-Flipping Videos From Mac</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-6-periscope-alternative-apps-for-android-and-ios/"><u>[Updated] 6 Periscope Alternative Apps for Android and iOS</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-accelerate-your-tunes-top-phone-apps-reviewed/"><u>[Updated] In 2024, Accelerate Your Tunes Top Phone Apps Reviewed</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-detailed-guide-crafting-powerful-video-thumbnails-for-content-marketing/"><u>[Updated] In 2024, Detailed Guide Crafting Powerful Video Thumbnails for Content Marketing</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-the-best-value-for-money-11-no-cost-name-creation-tips/"><u>[Updated] In 2024, The Best Value for Money 11 No-Cost Name Creation Tips</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-understanding-a-symbol-the-purpose-of-facebooks-blue-emoji-for-2024/"><u>[Updated] Understanding a Symbol The Purpose of Facebook's Blue Emoji for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-unveiling-ar-a-modern-illusionists-toolkit/"><u>[Updated] Unveiling AR A Modern Illusionist's Toolkit</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ver-the-best-12-cameras-to-elevate-your-vlogs/"><u>Discover the Best 12 Cameras to Elevate Your Vlogs</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/high-definition-gaming-with-lg-27ud68-monitor-review/"><u>High Definition Gaming with LG 27UD68 Monitor Review</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-to-get-and-use-pokemon-go-promo-codes-on-samsung-galaxy-a05-drfone-by-drfone-virtual-android/"><u>In 2024, How to Get and Use Pokemon Go Promo Codes On Samsung Galaxy A05 | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-innovative-strategies-for-displaying-your-screen-in-google-meet/"><u>In 2024, Innovative Strategies for Displaying Your Screen in Google Meet</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-narrative-enhancements-the-process-of-infusing-text-into-your-video-content/"><u>In 2024, Narrative Enhancements The Process of Infusing Text Into Your Video Content</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/inoperative-touch-id-device-on-desktop/"><u>Inoperative Touch ID Device on Desktop</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ring-audio-rate-on-mobile-and-desktops-for-youtube/"><u>Tailoring Audio Rate on Mobile and Desktops for YouTube</u></a></li>
+<li><a href="https://solve-howtos.techidaily.com/yl-computings-guide-joining-the-ico-wave-with-confidence/"><u>YL Computing's Guide: Joining the ICO Wave with Confidence</u></a></li>
+</ul></div>
 

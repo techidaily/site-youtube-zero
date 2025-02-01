@@ -1,7 +1,7 @@
 ---
 title: "Leveraging Google Trends Data for Idea Genesis in Videography"
-date: 2025-01-20T20:45:25.328Z
-updated: 2025-01-24T19:13:39.639Z
+date: 2025-01-29T17:12:32.735Z
+updated: 2025-02-01T09:07:05.466Z
 tags:
   - ai video
   - ai youtube
@@ -51,10 +51,6 @@ Unless you do news or political commentary on your channel these probably aren�
 
 To get information more relevant to your channel you’re going to have to do some filtering.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: Getting Results That Matter to You
 
 In the Google Trend home page, scroll down to the 'Recently Trending' section and click on 'More Trending Searches'.
@@ -85,6 +81,10 @@ Having something to say doesn’t have to mean having a strong opinion. If you j
 
 Clicking on these results will give you more specific data including how often the topic has been searched recently and links to recent news articles. These can give you a better idea of why it is trending and help you come up with what you want to say.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: Battle of the Keywords
 
 Once you have a topic in mind for your next video – whether it came from Google Trends or your own noggin – think about what the most important keyword for that topic might be.
@@ -95,27 +95,27 @@ Once you have a keyword in mind, type it into the Explore bar at the top of your
 
 ![Google Trends Keywords YouTube Video](https://images.wondershare.com/filmora/article-images/explore-topic-in-google-trends.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 What happens after you click **enter** is pretty much magic. Say I want to make a video on how to use Filmora. The first thing I’ll type into that Explore bar is ‘Filmora’.
 
 ![Google Trends YouTube Video Keywords](https://images.wondershare.com/filmora/article-images/google-trends-search-term.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You can see near the top that this chart represents searches for the topic over the last 5 years, which isn’t necessarily useful (although it is sort of cool that you can see when Filmora was ‘born’). I’m going to narrow that down to results from the U.S in the last week.
 
 ![Google Trends YouTube Video Ideas Filmora](https://images.wondershare.com/filmora/article-images/google-trends-search-term-time-range.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 There, now I can see how the popularity of Filmora as a search term has spiked on specific days and times (if you hover over a spike it tells you the time and day) and plan to post my video at a time that capitalizes on these trends.
 
 Next, what other words do I want to include in my video title? Is this a review, a tutorial, or a how-to? By clicking on my search term Filmora, I can edit it to read ‘filmora review’. Then I can click **\+ Compare** and type in ‘filmora tutorial’ and ‘how to use Filmora’. Google Trends will create a chart comparing the popularity of those 3 terms.
 
 ![Google Trends Filmora Keywords](https://images.wondershare.com/filmora/article-images/google-trends-search-term-comparison.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 _I also ‘zoomed out’ to 90 days – if I’d only looked at how they compared over the last week my results could have been skewed._
 
@@ -124,10 +124,6 @@ It’s pretty clear from the chart that ‘filmora review’ is the strongest of
 Although, when you do a comparison like this you should also go to YouTube and search for each potential keyword/phrase individually. It might turn out that there is a ton of strong competition for the most popular search term, and not as much for the second or third most popular. Here’s a search for ‘Filmora Review’ on YouTube:
 
 ![YouTube search Filmora Keyword](https://images.wondershare.com/filmora/article-images/google-trends-youtube-keyword-search.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 _If my view of YouTube looks different from yours it’s because I’m using the [VidIQ plugin for Chrome](https://chrome.google.com/webstore/detail/vidiq-vision-for-youtube/pachckjkecffpdphbpmfolblodfkgbhl?hl=en). It’s free and it gives you all kinds of extra info about videos and channels._
 
@@ -139,6 +135,10 @@ One of the biggest benefits of identifying trends and making videos about them q
 
 Want to make coming up with YouTube video ideas a habit? [This post here](https://www.filmora.io/community-blog/how-to-come-up-with-better-youtube-video-ideas-391.html) will help you develop a process to generate more ideas and properly evaluate them.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Making Better YouTube Videos with [Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
 As one of the most widely used video editing software among YouTubers, Filmora provides plentiful editing tools, such as cut, trim, [video stabilization](https://tools.techidaily.com/wondershare/filmora/download/), [noise removal](https://tools.techidaily.com/wondershare/filmora/download/), [chroma key compositing](https://tools.techidaily.com/wondershare/filmora/download/), and color grading. Besides, there are royalty-free music track and sound effects available in the built-in Audio library, and title templates and presets, as well as elements and effects. Download the free trial version below and get started now.
@@ -148,7 +148,7 @@ As one of the most widely used video editing software among YouTubers, Filmora p
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -172,21 +172,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-step-by-step-manual-upside-down-movies-in-snap/"><u>[New] 2024 Approved Step-by-Step Manual Upside Down Movies in Snap</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ownload-premium-video-covers-free-fast-and-easy-for-2024/"><u>[New] Download Premium Video Covers - Free, Fast & Easy for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-free-software-spectrum-for-high-quality-capture/"><u>[New] In 2024, Free Software Spectrum for High-Quality Capture</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-boosting-earning-potential-on-youtube-shorts/"><u>[Updated] 2024 Approved Boosting Earning Potential on YouTube Shorts</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-audience-engagement-and-its-impact-on-youtube-performance/"><u>[Updated] In 2024, Audience Engagement and Its Impact on YouTube Performance</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-exclusive-8-high-youtube-viewership-observer/"><u>[Updated] In 2024, Exclusive 8-High YouTube Viewership Observer</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-instantly-stream-youtube-content-on-facebook-auto-play-guide/"><u>[Updated] In 2024, Instantly Stream YouTube Content on Facebook Auto-Play Guide</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-maximizing-engagement-co-filming-techniques/"><u>[Updated] In 2024, Maximizing Engagement Co-Filming Techniques</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-in-2024-professional-level-edits-made-simple-10-pixlr-strategies/"><u>[Updated] In 2024, Professional-Level Edits Made Simple 10 Pixlr Strategies</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-quick-and-easy-audio-extraction-top-6-free-apps-to-convert-youtube-videos-to-mp3/"><u>[Updated] In 2024, Quick & Easy Audio Extraction Top 6 Free Apps to Convert YouTube Videos to MP3</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-ultimate-list-10-costless-video-caption-extractors/"><u>[Updated] In 2024, Ultimate List 10 Costless Video Caption Extractors</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-comprehensive-guide-to-embedding-multiple-youtube-playlists-in-websites/"><u>2024 Approved Comprehensive Guide to Embedding Multiple YouTube Playlists in Websites</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-novel-vlog-talk-points-everyday/"><u>2024 Approved Novel Vlog Talk Points Everyday</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/how-is-ai-revolutionizing-the-medical-field-with-tools-like-chatgpt/"><u>How Is AI Revolutionizing the Medical Field with Tools Like ChatGPT?</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/nalize-your-pixelated-world-the-ultimate-guide-to-discovering-creator-types-via-6-tests/"><u>Personalize Your Pixelated World The Ultimate Guide to Discovering Creator Types via 6 Tests</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/the-quest-for-visual-excellence-can-pickup-be-the-top-photo-editor-on-android-in-2024/"><u>The Quest for Visual Excellence – Can PickUp Be the Top Photo Editor on Android, In 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/isrupt-unbidden-youtube-content-feeds-for-2024/"><u>[New] Disrupt Unbidden YouTube Content Feeds for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-step-by-step-techniques-for-perfect-hdr-photos-in-adobe-lightroom/"><u>[New] Step-by-Step Techniques for Perfect HDR Photos in Adobe Lightroom</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-spectacular-screen-collaborations-selecting-an-mcn/"><u>[Updated] 2024 Approved Spectacular Screen Collaborations Selecting an MCN</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-craft-compelling-content-essential-youtube-short-video-edits/"><u>[Updated] Craft Compelling Content Essential Youtube Short Video Edits</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-craft-professional-episodes-a-comprehensive-guide-to-editing-in-garageband/"><u>[Updated] Craft Professional Episodes A Comprehensive Guide to Editing in GarageBand</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-evaluating-live-stream-giants-twitch-and-youtube/"><u>2024 Approved Evaluating Live Stream Giants Twitch & YouTube</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-gigglegallery-craft-and-share-your-own-funny-faces/"><u>2024 Approved GiggleGallery Craft and Share Your Own Funny Faces</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-masterful-stardew-upgrades-uncovered-the-seven-best/"><u>2024 Approved Masterful Stardew Upgrades Uncovered The Seven Best</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/essential-guide-mac-screen-recording-techniques/"><u>Essential Guide Mac Screen Recording Techniques</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-ispoofer-on-samsung-galaxy-a14-4g-drfone-by-drfone-virtual-android/"><u>How to use iSpoofer on Samsung Galaxy A14 4G? | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-5-best-photo-video-maker-with-music/"><u>In 2024, 5 Best Photo Video Maker With Music</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-top-10-free-youtube-channels-for-exceptional-art-creation/"><u>In 2024, Top 10 FREE YouTube Channels for Exceptional Art Creation</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ltimate-12-camera-guide-for-effortless-screen-swivel-use/"><u>The Ultimate 12 Camera Guide for Effortless Screen Swivel Use</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/top-ranking-student-laptops-in-depth-reviews-and-comparisons-by-tech-experts-choose-wisely/"><u>Top-Ranking Student Laptops: In-Depth Reviews & Comparisons by Tech Experts - Choose Wisely!</u></a></li>
 </ul></div>
 

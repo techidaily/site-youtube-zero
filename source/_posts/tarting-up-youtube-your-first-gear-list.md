@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Starting Up YouTube - Your First Gear List\""
-date: 2025-01-19T18:58:05.017Z
-updated: 2025-01-24T21:56:36.580Z
+date: 2025-01-30T08:49:35.786Z
+updated: 2025-02-01T00:15:29.973Z
 tags:
   - ai video
   - ai youtube
@@ -44,7 +44,7 @@ The smartest way to get started is to go through a list of **necessary equipment
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## YouTube Cameras
@@ -60,7 +60,7 @@ On one end of the spectrum, you have basic smartphone cameras and web cameras, w
 If you already have a DSLR camera then it’s a good idea to familiarize yourself with it. You have far more freedom to adjust the settings and achieve a professional look for your videos with a DSLR, but that does mean it’ll take some time to become an expert at using it. Ultra-high resolution is not required for YouTube, but it certainly won’t hurt to have additional sharpness and more detail in the scene. If you’re shopping for a DSLR, look for one with a flip screen that allows you to quickly check what your viewers see.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## YouTube Microphone and Audio
@@ -72,10 +72,6 @@ If you already have a DSLR camera then it’s a good idea to familiarize yoursel
 Again, most YouTube video makers have a limited budget at their disposal, so professional microphones are mostly off the table. However, investing in a directional microphone (‘shotgun mic’) that can pick up your voice clearly and without background noise is certainly a smart move. Such microphones can be pointed towards you while you speak, and since most YouTubers sit still while doing their shows there won’t be too much need for in-session adjustments.
 
 If you’re not ready to invest in a shotgun mic, you can also find very inexpensive (often under $20) LAV mics. These small microphones can be pinned to your shirt, which allows them to record very clear dialogue because they’re so close to your mouth.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Lights for YouTube
 
@@ -89,10 +85,6 @@ If you have the budget available to get some lighting equipment, you can find so
 
 Another useful piece of lighting equipment to have is a reflector. A reflector is usually a piece of white, silver, or gold fabric stretched over a frame. You can use it to bounce light from one light source back towards yourself (this is a great way to fill shadows cast by your main light). Reflectors tend to be inexpensive, but you can also use white cardboard or tinfoil in place of purchasing a reflector.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Tripods and Camera Stands
 
 **The short version:** You need something to hold your camera. If you mostly film in your own home that can be a desk or a stack of books, but if you make a lot of videos while you're on the go you probably need a tripod or gimbal. Heavier cameras need heavier tripods.
@@ -102,10 +94,6 @@ Another useful piece of lighting equipment to have is a reflector. A reflector i
 When you are choosing a tripod, pay attention to how much it weighs. If the camera that needs to be mounted on it is very heavy (like some DSLR models), you want to ensure that the structure itself weighs enough not to be easily tipped over. Too thin tripods can put your camera at risk, and that’s the last thing you want. Smaller cameras such as GoPros are more flexible in this regard and can be placed on a wider range of tripods.
 
 Even if you are using a phone or a webcam to record YouTube videos, you should consider mounting the device on a stable stand. It is possible to find mini tripods ideal for smartphones for as little as $10\. These tripods are small enough to carry in your pocket, so you will be prepared to start making a video no matter where your adventures take you. If you are using a web camera, you should attach it to the stand so that it won’t move accidentally after you touch the surface it is placed on.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Smartphone Camera Gear
 
@@ -119,11 +107,23 @@ On the flip side, smartphone cameras typically perform poorly in low light. It i
 
 Another common downside of smartphone cameras is that most of them use digital zoom, which is vastly inferior to optical zoom. If you intend to shoot anything that’s further away than a few feet, you need a clip-on lens that goes on top of the built-in camera. This inexpensive device will give you a lot of freedom to work in space, and allow you to make spectacular shots even without high-end YouTube equipment.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Equipment with Easy-to-Use Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -146,17 +146,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/slrs-place-among-mirrorless-cameras-for-videos/"><u>[New] DSLR's Place Among Mirrorless Cameras for Videos</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/op-28-youtube-music-splitters-for-easy-audio-extraction/"><u>[New] Top 28 YouTube Music Splitters for Easy Audio Extraction</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-beyond-blockbuster-horizons-favorite-films/"><u>[Updated] 2024 Approved Beyond Blockbuster Horizons Favorite Films</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-the-mobile-filmmakers-blueprint-crafting-viral-thumbnails-for-youtubes/"><u>[Updated] 2024 Approved The Mobile Filmmaker's Blueprint Crafting Viral Thumbnails for YouTubes</u></a></li>
-<li><a href="https://win-lab.techidaily.com/1-comprensivo-guia-para-solucionar-el-acceso-a-wd-my-cloud-desde-windows-10-pasos-faciles-y-rapidos/"><u>1. Comprensivo Guía Para Solucionar El Acceso a WD My Cloud Desde Windows 10: Pasos Fáciles Y Rápidos</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/2024-approved-tech-hack-for-free-swiftly-remove-red-eyes-from-iphone-photos/"><u>2024 Approved Tech Hack for Free Swiftly Remove Red Eyes From iPhone Photos</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-unlock-content-revenue-accessing-youtubes-partner-benefits/"><u>2024 Approved Unlock Content Revenue Accessing YouTube's Partner Benefits</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/4-reasons-to-start-using-claude-3-instead-of-chatgpt/"><u>4 Reasons to Start Using Claude 3 Instead of ChatGPT</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/discover-the-leading-free-passport-photo-services/"><u>Discover the Leading Free Passport Photo Services</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ltimate-strategy-guide-to-boosting-view-count-on-youtube-shorts/"><u>The Ultimate Strategy Guide to Boosting View Count on YouTube Shorts</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/top-choice-gpus-ultra-hd-gameplay-delight/"><u>Top Choice GPUs Ultra HD Gameplay Delight</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/transform-your-pc-graphics-swiftly-install-newest-intel-3000-drivers-for-win10/"><u>Transform Your PC Graphics: Swiftly Install Newest Intel 3000 Drivers for Win10</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-breakthrough-tactics-for-efficient-home-podcasting/"><u>[New] 2024 Approved Breakthrough Tactics for Efficient Home Podcasting</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-experience-a-bundle-of-9-whole-film-christmas-treasures-for-free/"><u>[New] In 2024, Experience a Bundle of 9 Whole-Film Christmas Treasures for Free</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-finding-your-custom-scored-youtube-tunes/"><u>[New] In 2024, Finding Your Custom-Scored YouTube Tunes</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/rofessional-tricks-for-youtube-audio-amplification-for-2024/"><u>[New] Professional Tricks for YouTube Audio Amplification for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-achieving-1k-subs-in-a-weekend-a-plan-of-action/"><u>[Updated] In 2024, Achieving 1K Subs in a Weekend A Plan of Action</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-minimovie-magician/"><u>[Updated] MiniMovie Magician</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-unrivaled-unity-30plus-creative-biography-approaches-for-increasing-views-and-followers-with-filmora/"><u>[Updated] Unrivaled Unity 30+ Creative Biography Approaches for Increasing Views and Followers with Filmora</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-the-key-to-youtube-success-understanding-your-cpm/"><u>2024 Approved The Key to YouTube Success Understanding Your CPM</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ing-a-stellar-visual-identity-the-ultimate-guide-to-yt-design-for-2024/"><u>Crafting a Stellar Visual Identity The Ultimate Guide to YT Design for 2024</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/erase-with-ease-on-your-iphone-secure-the-best-eraser-now/"><u>Erase with Ease on Your iPhone – Secure the Best Eraser Now</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/t-insights-for-youtube-end-credits-top-makers-advice/"><u>Expert Insights for YouTube End Credits - Top Makers' Advice</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/exploring-gpt-3-on-your-smartphone-or-tablet/"><u>Exploring GPT-3 on Your Smartphone or Tablet</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-3-solutions-to-find-your-xiaomi-14-pro-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Solutions to Find Your Xiaomi 14 Pro Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-easy-ways-to-copy-contacts-from-realme-gt-5-pro-to-iphone-14-and-15-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Easy Ways to Copy Contacts from Realme GT 5 Pro to iPhone 14 and 15 | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-top-asmr-content-creators-on-youtube/"><u>In 2024, Top ASMR Content Creators on YouTube</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-two-ways-to-track-my-boyfriends-lava-blaze-pro-5g-without-him-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Two Ways to Track My Boyfriends Lava Blaze Pro 5G without Him Knowing | Dr.fone</u></a></li>
+<li><a href="https://discover-able.techidaily.com/understanding-typical-issues-troubleshooting-your-hard-drive-and-storage-solutions-insights-by-yl-computing/"><u>Understanding Typical Issues: Troubleshooting Your Hard Drive & Storage Solutions - Insights by YL Computing</u></a></li>
 </ul></div>
 

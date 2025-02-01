@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Essential Steps to Create YouTube Beginnings & Ends on a Budget\""
-date: 2024-08-16T04:13:10.661Z
-updated: 2024-08-17T04:13:10.661Z
+date: 2025-01-25T23:06:21.248Z
+updated: 2025-01-31T21:01:46.628Z
 tags:
   - ai video
   - ai youtube
@@ -40,6 +40,10 @@ thumbnail: https://thmb.techidaily.com/3299531766a0d348d78dd04349d2683155a00d71b
 
 [How To Make an End Card](#how-to)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -68,6 +72,10 @@ You can create a simple intro card in **Filmora**.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
 3. If you have a logo, import it into Filmora and drag it into your picture-in-picture track.
@@ -78,8 +86,9 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -114,8 +123,9 @@ Some creators will leave their end cards at that and play music overtop, but it 
 14. Click **Apply Changes**.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -124,14 +134,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -140,8 +147,24 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/oosting-video-reach-on-youtube-an-in-depth-guide-to-seo-techniques-for-2024/"><u>[New] Boosting Video Reach on YouTube An In-Depth Guide to SEO Techniques for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-channel-wrap-up-strategies-free-youtube-end-screens-tutorial/"><u>[Updated] Channel Wrap-Up Strategies - Free YouTube End Screens Tutorial</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-hashing-it-out-best-tags-to-transform-views-and-profit-for-2024/"><u>[Updated] Hashing It Out Best Tags to Transform Views & Profit for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-accessible-visual-aids-for-youtube-videos/"><u>[Updated] In 2024, Accessible Visual Aids for YouTube Videos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-boost-your-content-access-free-vocal-sfx/"><u>2024 Approved Boost Your Content Access Free Vocal SFX</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/capture-your-world-audio-on-windows-10/"><u>Capture Your World Audio on Windows 10</u></a></li>
+<li><a href="https://location-social.techidaily.com/change-location-on-yik-yak-for-your-apple-iphone-15-plus-to-enjoy-more-fun-drfone-by-drfone-virtual-ios/"><u>Change Location on Yik Yak For your Apple iPhone 15 Plus to Enjoy More Fun | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/cultivating-a-digital-writer-with-gpt-3-adaptability/"><u>Cultivating a Digital Writer with GPT-3 Adaptability</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ist-todays-youtube-sensations-for-2024/"><u>Hot List Today's YouTube Sensations for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-i-transferred-messages-from-oneplus-ace-3-to-iphone-12xs-max-in-seconds-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How I Transferred Messages from OnePlus Ace 3 to iPhone 12/XS (Max) in Seconds | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-step-by-step-applying-color-grading-and-keying/"><u>In 2024, Step-by-Step Applying Color Grading and Keying</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-the-complete-pathway-to-success-with-your-first-facebook-live/"><u>In 2024, The Complete Pathway to Success with Your First Facebook Live</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-unleash-potential-with-informed-tagging-on-youtube/"><u>In 2024, Unleash Potential with Informed Tagging on YouTube</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/rapid-view-of-photography-in-11-os-for-2024/"><u>Rapid View of Photography in 11 OS for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/schritt-fur-schritt-benutzungsanweisung-fur-die-winxdvd-projektierungstools/"><u>Schritt-Für-Schritt-Benutzungsanweisung Für Die WinXDVD-Projektierungstools</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/the-hidden-cost-of-affordable-smartphones-the-impact-of-low-quality-glass/"><u>The Hidden Cost of Affordable Smartphones: The Impact of Low-Quality Glass</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/top-3-scatti-riepilogativi-su-convertitori-video-rapidi-il-guida-completa/"><u>Top 3 Scatti Riepilogativi Su Convertitori Video Rapidi - Il Guida Completa</u></a></li>
+</ul></div>
 

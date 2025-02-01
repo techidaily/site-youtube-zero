@@ -1,7 +1,7 @@
 ---
 title: "[New] Perfect Shots Start With The Right Camera & Lens Selection"
-date: 2025-01-20T22:29:48.067Z
-updated: 2025-01-24T17:35:52.673Z
+date: 2025-01-31T08:05:25.648Z
+updated: 2025-01-31T22:25:25.251Z
 tags:
   - ai video
   - ai youtube
@@ -45,10 +45,6 @@ In this article, I’m going to help you figure that out.
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Three Focal Length Groups: Wide, Standard, Telephoto
 
 There are three main ranges in focal lengths that camera lenses can be categorized into wide, standard, and telephoto.
@@ -64,6 +60,10 @@ With standard lenses or normal lenses, you won’t get the stretched out objects
 #### Telephoto Lens
 
 Out of all the other ranges in focal lengths, telephoto lenses will appear the most zoomed in. This can be beneficial for the shooter who wants to get a closer shot of a scene without having to physically be in close proximity to the scene. Objects that are further away in the background also appear larger and closer than they would appear on wide-angle or standard lenses.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Vlogging With Each Focal Length Group
 
@@ -87,10 +87,6 @@ As telephoto lenses are even more zoomed in, you’ll need to be even further aw
 
   In the above video, Marcos Rocha compares different focal lengths for talking head videos. Which focal length range do you like the look of?
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Crop Factor
 
 Focal lengths in camera lenses are measured in millimeters. You can vlog yourself handheld with a 24mm lens on a camera with a full-frame sensor (the sensor is the piece of hardware inside your camera that turns the light it receives into a digital image). But if you use a 24mm lens on a camera with a smaller sensor, like an APS-C sensor or even smaller Micro 4/3 sensor, more of you will get cropped out (see below).
@@ -98,13 +94,13 @@ Focal lengths in camera lenses are measured in millimeters. You can vlog yoursel
  ![Crop Factor](https://images.wondershare.com/filmora/article-images/camera-lenses-crop-factor.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Focal Length Equivalency Table
@@ -136,6 +132,10 @@ Fast lenses are more expensive because they cost more to produce. There’s a lo
 
 But do you even need a fast lens?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Vlogging With a Fast Lens
 
 #### Pros of Vlogging With a Fast Lens
@@ -150,10 +150,6 @@ But do you even need a fast lens?
 * Moving subjects more likely to get out of focus when shooting with a large aperture
 * Better continuous autofocus performance needed when shooting moving subjects with a large aperture
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Optical Image Stabilization
 
 Finally, you’ll have to decide whether or not you want your lens to have built-in optical image stabilization (OIS).
@@ -167,6 +163,10 @@ If, however, you are shooting most of your vlogs on a tripod, you won’t need a
  Looking for ways to set up your talking-head shot for YouTube with any of these lenses? Check out our post on [4 Ways To Set Up Your Talking-Head Shots For YouTube](https://tools.techidaily.com/wondershare/filmora/download/).
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -189,17 +189,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/est-7-multimedia-cameras-for-quality-live-streams-and-video-blogs/"><u>[New] Best 7 Multimedia Cameras For Quality Live Streams & Video Blogs</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ngage-more-dissuade-less-top-6-ways-to-increase-watch-time-and-stayers-for-2024/"><u>[New] Engage More, Dissuade Less Top 6 Ways to Increase Watch Time and Stayers for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-best-5-youtube-video-editor-alternatives/"><u>[Updated] 2024 Approved Best 5 YouTube Video Editor Alternatives</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-essential-templates-for-impactful-business-presentations/"><u>[Updated] 2024 Approved Essential Templates for Impactful Business Presentations</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-top-scratches-comparative-review-of-recorders/"><u>[Updated] In 2024, Top Scratches Comparative Review of Recorders</u></a></li>
-<li><a href="https://fox-sure.techidaily.com/5aac5l2v5zyo5lin5zcm6k6plus5ash5lik5ogi5asn5yig6zmk55qe5lqa6ams6yck55u457c54wn54mh/"><u>如何在不同设备上恢复删除的亚马逊相簿照片</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/uch-money-flows-from-a-million-views-on-youtube/"><u>How Much Money Flows From A Million Views On YouTube</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-best-10-mock-location-apps-worth-trying-on-google-pixel-7a-drfone-by-drfone-virtual-android/"><u>In 2024, Best 10 Mock Location Apps Worth Trying On Google Pixel 7a | Dr.fone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-streaming-tunes-quick-methods-for-youtube-videos-in-imovie/"><u>In 2024, Streaming Tunes Quick Methods for Youtube Videos in iMovie</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ltimate-guide-to-affordable-and-effective-intros-for-2024/"><u>The Ultimate Guide to Affordable and Effective Intros for 2024</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/unlock-academic-excellence-the-ultimate-guide-to-homework-apps-for-pupils-and-parents/"><u>Unlock Academic Excellence: The Ultimate Guide to Homework Apps for Pupils & Parents</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/unlocking-iphones-ultimate-live-photography-potential-for-2024/"><u>Unlocking iPhone's Ultimate Live Photography Potential for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/urn-backwards-youtube-content-inversion-tips-for-2024/"><u>[New] Turn Backwards YouTube Content Inversion Tips for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/nlocking-youtube-live-potential-a-step-by-step-guide/"><u>[New] Unlocking YouTube Live Potential A Step-by-Step Guide</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-seamless-easy-to-use-web-tools-for-gif-to-video-transformation/"><u>[Updated] 2024 Approved Seamless, Easy-to-Use Web Tools for GIF to Video Transformation</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-conveniently-connect-with-others-via-your-playlist-for-2024/"><u>[Updated] Conveniently Connect with Others via Your Playlist for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-digital-download-king-comprerante-video-acquisition-guide/"><u>2024 Approved Digital Download King Comprerante Video Acquisition Guide</u></a></li>
+<li><a href="https://solve-marvelous.techidaily.com/conseils-essentiels-pour-depanner-et-redemarrer-un-moniteur-dhp-en-mode-sans-echec/"><u>Conseils Essentiels Pour Dépanner Et Redémarrer Un Moniteur D'HP en Mode Sans Echec</u></a></li>
+<li><a href="https://win-dash.techidaily.com/get-the-latest-techkey-bluetooth-receiver-software-for-pcs-windows/"><u>Get the Latest Techkey Bluetooth Receiver Software for PCs (Windows)</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-fix-apple-iphone-15-pro-max-passcode-not-working-by-drfone-ios/"><u>How to Fix Apple iPhone 15 Pro Max Passcode not Working?</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-transfer-whatsapp-from-iphone-15-to-other-iphone-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From iPhone 15 to other iPhone devices? | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-chuckles-galore-navigate-the-best-15-comedic-youtube-crews/"><u>In 2024, Chuckles Galore Navigate the Best 15 Comedic YouTube Crews</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/24-master-control-over-your-youtube-viewing-rhythm/"><u>In 2024, Master Control Over Your YouTube Viewing Rhythm</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-mastering-sound-communication-on-whatsapp/"><u>In 2024, Mastering Sound Communication on WhatsApp</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-streaming-masterpieces-best-movie-directories-on-yt/"><u>In 2024, Streaming Masterpieces Best Movie Directories on YT</u></a></li>
 </ul></div>
 
