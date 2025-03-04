@@ -1,7 +1,7 @@
 ---
 title: Quick Solutions When Your Laptop's Audio Output Fails
-date: 2025-02-13T03:46:26.701Z
-updated: 2025-02-14T23:49:13.467Z
+date: 2025-03-03T17:54:49.193Z
+updated: 2025-03-04T18:59:35.638Z
 tags:
   - win11
   - win10
@@ -35,10 +35,6 @@ thumbnail: https://thmb.techidaily.com/9b6869e231e2667ce5b62099e4b236daaa6b93b4b
 5. [**Troubleshoot hardware issues**](https://tools.techidaily.com/drivereasy/download/)
 
 ---
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### **Fix 1: Run Windows audio playback troubleshooter**
 
@@ -80,10 +76,6 @@ thumbnail: https://thmb.techidaily.com/9b6869e231e2667ce5b62099e4b236daaa6b93b4b
 
  If you need assistance, please contact **Driver Easy’s support team** at **[support@drivereasy.com](https://tools.techidaily.com/drivereasy/download/)**  .
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **Fix 3: Check your audio settings**
 
  The incorrect audio settings on your laptop can also trigger the no sound issues. You can follow the instructions below to check your audio settings:
@@ -101,32 +93,16 @@ thumbnail: https://thmb.techidaily.com/9b6869e231e2667ce5b62099e4b236daaa6b93b4b
 ![](https://images.drivereasy.com/wp-content/uploads/2018/09/Snap442-1.jpg)
 5. Click**OK** to save the changes.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 6. On your desktop,   **right-click**  **the speaker icon**  on the lower-right corner, and then select**Open Volume Mixer**  .  
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/snap000233.png)
 7. If you see some application is muted, click**the speaker icon** under that application to unmute it.  
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/snap000235-2.png)
 8. Play a song on your laptop to see if you fixed the no sound issue. If not, move on to the next step.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 9. On your keyboard, press**the Windows logo key** and**X** at the same time. Then select**Device Manager** to open it.  
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/snap000238.png)
 10. In Device Manager,**double-click** **Sound, video and game controllers** to expand the list. If you see**a downward arrow** next to your audio device,**right-click** it then select**Enable device** to enable it.  
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/12/snap000240.png)
 
@@ -139,18 +115,10 @@ thumbnail: https://thmb.techidaily.com/9b6869e231e2667ce5b62099e4b236daaa6b93b4b
 1. On your keyboard, press **the Windows logo key**   and **R**   at the same time to open the Run dialog. Type **services.msc**   and press **Enter** . You’ll be prompted for permission. Click **Yes**   to open **Services** .![](https://images.drivereasy.com/wp-content/uploads/2018/10/Snap190-5.png)
 2. Scroll down to locate **Windows Audio** . **Right-click**   it and select **Properties** .![](https://images.drivereasy.com/wp-content/uploads/2018/10/Snap193-5.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 3. Under the **General**   tab, if the service is disabled, click **Star**   to enable it. For **Startup type** , select **Automatic** .  
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/Snap194-5.png)
 4. Navigate to the **Recovery**   tab. For **First failure** , select **Restart the Service** . Then click **OK**   to save the changes.  
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2018/10/Snap195-5.png)
 5. Locate the service **Windows Audio Endpoint Builder** . Follow step 3 and step 4 above to do the same thing for Windows Audio Endpoint Builder.
@@ -189,22 +157,20 @@ thumbnail: https://thmb.techidaily.com/9b6869e231e2667ce5b62099e4b236daaa6b93b4b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-share-your-stories-with-lush-soundtracks/"><u>[New] 2024 Approved Share Your Stories with Lush Soundtracks!</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-speech-to-text-for-media/"><u>[New] 2024 Approved Speech to Text for Media</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-streamline-videography-an-in-depth-look-at-youtube-studio-editor/"><u>[New] 2024 Approved Streamline Videography An In-Depth Look at YouTube Studio Editor</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-streamline-your-vfx-workflow-with-these-8-online-backdrop-banks/"><u>[New] 2024 Approved Streamline Your VFX Workflow with These 8 Online Backdrop Banks</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-students-guide-to-top-10-best-history-youtube-sources/"><u>[New] 2024 Approved Student's Guide to Top 10 Best History YouTube Sources</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-the-precision-of-portioning-video-length-optimization-on-youtube/"><u>[New] 2024 Approved The Precision of Portioning Video Length Optimization on YouTube</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-the-smart-youtubers-playbook-fixing-short-snafus/"><u>[New] 2024 Approved The Smart Youtuber's Playbook Fixing Short Snafus</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-unveiling-the-ultimate-list-youtubes-premier-mp3-extractors/"><u>[New] 2024 Approved Unveiling the Ultimate List YouTube's Premier MP3 Extractors</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-going-against-the-tide-of-tradition-innovative-techniques-for-yt-rewinds/"><u>[Updated] Going Against the Tide of Tradition Innovative Techniques for YT Rewinds</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-adapting-to-instagrams-evolved-content-curation/"><u>[Updated] In 2024, Adapting to Instagram's Evolved Content Curation</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-navigating-the-starscape-a-guide-to-influencers-for-your-needs-for-2024/"><u>[Updated] Navigating the Starscape A Guide to Influencers for Your Needs for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-beat-the-heat-tips-for-uploading-songs-to-youtube/"><u>2024 Approved Beat the Heat Tips for Uploading Songs to YouTube</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/addressing-steams-offline-content-servers-problem-in-windows/"><u>Addressing Steam's Offline Content Servers Problem in Windows</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/how-to-make-the-most-of-your-iphone-6-plus-lock-screen-with-notifications-drfone-by-drfone-ios/"><u>How to Make the Most of Your iPhone 6 Plus Lock Screen with Notifications? | Dr.fone</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-remove-icloud-from-iphone-15-plus-smoothly-by-drfone-ios/"><u>How To Remove iCloud From iPhone 15 Plus Smoothly</u></a></li>
-<li><a href="https://extra-support.techidaily.com/perfecting-picture-in-picture-setup-with-youtube-on-ios-for-2024/"><u>Perfecting Picture-in-Picture Setup with YouTube on iOS for 2024</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/sim-unlock-realme-c51-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>Sim Unlock Realme C51 Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/levate-your-content-with-these-20-pro-video-shortcuts/"><u>[New] Elevate Your Content With These 20 Pro Video Shortcuts</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-elite-list-best-apps-for-live-basketball-and-international-football-games/"><u>[New] Elite List Best Apps for Live Basketball and International Football Games</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-decrypting-the-mystery-understanding-unlisted-content-on-youtube/"><u>[New] In 2024, Decrypting the Mystery Understanding 'Unlisted' Content on YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-boost-your-channels-income-understanding-critical-view-thresholds/"><u>[Updated] Boost Your Channel's Income Understanding Critical View Thresholds</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-rage-quarters-and-swords-nintendo-switch-fighting-classics/"><u>[Updated] In 2024, Rage Quarters & Swords Nintendo Switch Fighting Classics</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-2-ways-to-fade-audio-in-ableton/"><u>2024 Approved 2 Ways to Fade Audio in Ableton</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-maximize-your-visuals-10-free-image-editing-tools-for-smartphones/"><u>2024 Approved Maximize Your Visuals 10 Free Image Editing Tools for Smartphones</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-tallying-up-mr-beasts-earnings/"><u>2024 Approved Tallying Up Mr. Beast's Earnings</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-youtube-music-reactions-years-top-ten-showcase/"><u>2024 Approved YouTube Music Reactions Year's Top Ten Showcase</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/enhance-your-storytelling-discover-how-chatgpt-aids-in-crafting-unique-novels/"><u>Enhance Your Storytelling: Discover How ChatGPT Aids in Crafting Unique Novels</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-motorola-edge-40-neo-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Motorola Edge 40 Neo to Other Android Devices? | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-key-points-in-youtube-monetization-overhaul/"><u>In 2024, Key Points in YouTube Monetization Overhaul</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ispoofer-is-not-working-on-samsung-galaxy-z-fold-5-fixed-drfone-by-drfone-virtual-android/"><u>iSpoofer is not working On Samsung Galaxy Z Fold 5? Fixed | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/ultimate-guide-to-free-dvd-burning-tools-for-windows-users-perfect-compatibility-with-windows-1187/"><u>Ultimate Guide to Free DVD Burning Tools for Windows Users - Perfect Compatibility with Windows 11/8/7</u></a></li>
+<li><a href="https://techtrends.techidaily.com/vollumfassende-autorisierungserwerbung-von-winx-dvd-ripper-premium-edition/"><u>Vollumfassende Autorisierungserwerbung Von WinX DVD Ripper Premium Edition</u></a></li>
 </ul></div>
 

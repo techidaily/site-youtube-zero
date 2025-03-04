@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to View YouTube Statistics?"
-date: 2025-02-11T21:37:27.871Z
-updated: 2025-02-15T07:21:42.120Z
+date: 2025-02-25T16:54:54.490Z
+updated: 2025-03-04T18:56:00.181Z
 tags:
   - ai video
   - ai youtube
@@ -40,10 +40,6 @@ The information available for each video includes how many new subscribers it at
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Making Better YouTube Videos with Filmora to Get More Views
 
 As one of the best video editing software for YouTube, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) provides lots of templates and effects with an intuitive interface, which saves much time. After editing, you can upload the video to YouTube directly when export. Download the free trial version below and start making YouTube videos with Filmora.
@@ -52,10 +48,6 @@ As one of the best video editing software for YouTube, [Filmora](https://tools.t
 
 [![Get free YouTube Subscribers Guide Banner](https://images.wondershare.com/filmora/article-images/get-free-youtube-subs-banner.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to View Your YouTube Statistics
 
 In order to view your YouTube Analytics, sign in to your YouTube account and go to your Creator Studio. From there, click into the Analytics tab in the menu on the left of your screen.
@@ -63,10 +55,6 @@ In order to view your YouTube Analytics, sign in to your YouTube account and go 
 In order to check which of your videos are performing the best, click on **Watch time** under **Watch time reports**. At the top of the page there’ll be a graph of your watch time in general, and if you scroll down you’ll see a list of your videos ranked by watch time. The best performing ones will be at the top and, to see more stats related to these high-performing videos, simply click on their titles. Afterwards, you’ll be able to click around the different sections in your Analytics and see reports relating to the specific video you clicked on.
 
 The two main types of analytics reports are Watch Time Reports and Interaction Reports.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1. Interpreting YouTube Watch Time Reports
 
@@ -81,10 +69,6 @@ Alongside watch time you can see the average duration individual viewers are wat
 In the watch time reports for individual videos, you will be able to see data on where your views are coming from and which demographics are watching the most. Where your viewers are watching, in terms of desktop or mobile, is also interesting data that is available in this section.
 
 Click here for more tips on[increasing your views](https://www.filmora.io/community-blog/12-proven-ways-to-increase-youtube-views-315.html).
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2. Interpreting YouTube Interaction Reports
 
@@ -118,10 +102,6 @@ Now that you know how to view YouTube statistics, what will you do with them?
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -143,24 +123,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-youtube-conversion-made-simple-learn-how-without-spending-a-dime/"><u>[New] 2024 Approved YouTube Conversion Made Simple – Learn How Without Spending a Dime</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-youtube-entrepreneurship-building-a-recognizable-brand/"><u>[New] 2024 Approved YouTube Entrepreneurship Building a Recognizable Brand</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-youtube-paid-content-guide-mastering-membership-for-monetization/"><u>[New] 2024 Approved YouTube Paid Content Guide Mastering Membership for Monetization</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-youtube-tagging-101-for-better-engagement/"><u>[New] 2024 Approved YouTube Tagging 101 for Better Engagement</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-the-complete-process-recording-youtube-livestream-on-multiple-platforms-for-2024/"><u>[New] The Complete Process Recording YouTube Livestream on Multiple Platforms for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-exploring-cinema-best-filming-cameras-from-35mm-to-point-and-shoot/"><u>[Updated] Exploring Cinema Best Filming Cameras From 35Mm to Point-and-Shoot</u></a></li>
-<li><a href="https://howto.techidaily.com/7-solutions-to-fix-error-code-963-on-google-play-of-xiaomi-redmi-k70e-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Error Code 963 on Google Play Of Xiaomi Redmi K70E | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>How to Get and Use Pokemon Go Promo Codes On Apple iPhone 14 Plus | Dr.fone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-12-best-vlogging-cameras-for-vloggers/"><u>In 2024, 12 Best Vlogging Cameras for Vloggers</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-become-a-youtube-gif-wizard-your-complete-online-transformation-tutorial/"><u>In 2024, Become a Youtube Gif Wizard Your Complete Online Transformation Tutorial</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-choose-your-perfect-wedding-tales-youtubes-finest-8/"><u>In 2024, Choose Your Perfect Wedding Tales - Youtube's Finest 8</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-configure-youtubes-audience-options-with-ease/"><u>In 2024, Configure YouTube's Audience Options with Ease</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-crafting-a-music-career-15-essential-video-tutorials-for-artists/"><u>In 2024, Crafting a Music Career 15 Essential Video Tutorials for Artists</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/laughter-labyrinths-by-ai-exploring-digital-jest/"><u>Laughter Labyrinths by AI: Exploring Digital Jest</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/mastering-time-lapse-with-your-samsung-phone-for-2024/"><u>Mastering Time Lapse with Your Samsung Phone for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/pre-upgrade-knowledge-key-elements-explained-for-2024/"><u>Pre-Upgrade Knowledge Key Elements Explained for 2024</u></a></li>
-<li><a href="https://techidaily.com/reset-pattern-lock-tutorial-for-realme-12-pro-5g-by-drfone-android-unlock-android-unlock/"><u>Reset pattern lock Tutorial for Realme 12 Pro 5G</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/solutions-for-device-not-found-on-windows-systems/"><u>Solutions for Device Not Found on Windows Systems</u></a></li>
-<li><a href="https://fox-metric.techidaily.com/step-by-step-guide-archiving-files-on-windows-pc-expert-tips-from-yl-computing/"><u>Step-by-Step Guide: Archiving Files on Windows PC - Expert Tips From YL Computing</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-audio-from-visuals-making-mp3s-from-instagram-content/"><u>[New] Audio From Visuals Making Mp3s From Instagram Content</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/slr-or-mirrorless-for-high-quality-video-recording-in-2024/"><u>[New] DSLR or Mirrorless for High-Quality Video Recording, In 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-cutting-edge-video-communities-eclipsing-youtube/"><u>[New] In 2024, Cutting-Edge Video Communities Eclipsing Youtube</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ost-reliable-platforms-to-gather-video-intro-templates/"><u>[New] Most Reliable Platforms to Gather Video Intro Templates</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/he-green-screen-revolution-access-comprehensive-tutorials-from-4-leading-youtube-educators/"><u>[New] The Green Screen Revolution Access Comprehensive Tutorials From 4 Leading YouTube Educators</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/he-new-face-of-collaboration-video-events-post-vidcon-for-2024/"><u>[New] The New Face of Collaboration Video Events Post-VidCon for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/outube-shorts-dividing-profits-among-making-crew-for-2024/"><u>[New] YouTube Shorts Dividing Profits Among Making Crew for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-mastering-avi-to-gif-conversion-windows-and-mac-edition-using-filmora/"><u>[Updated] 2024 Approved Mastering AVI-to-GIF Conversion Windows & Mac Edition Using Filmora</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-navigating-the-financial-aspects-of-youtube-success/"><u>[Updated] 2024 Approved Navigating the Financial Aspects of YouTube Success</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-a-step-by-step-approach-to-youtube-gold-music-reaction-magic/"><u>2024 Approved A Step-by-Step Approach to YouTube Gold Music Reaction Magic</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-harmonize-your-favorites-creating-custom-youtube-playlists/"><u>2024 Approved Harmonize Your Favorites Creating Custom YouTube Playlists</u></a></li>
+<li><a href="https://win11.techidaily.com/4-fixes-to-try-if-the-windows-snip-and-sketch-tool-wont-screenshot-the-entire-screen/"><u>4 Fixes to Try if the Windows Snip & Sketch Tool Won’t Screenshot the Entire Screen</u></a></li>
+<li><a href="https://app-tips.techidaily.com/explore-the-best-2022-mind-mapping-solutions-and-software-as-ranked-by-zdnet-experts/"><u>Explore the Best 2022 Mind Mapping Solutions and Software as Ranked by ZDNet Experts</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-funds-flowchart-from-sung-rhythms-to-visual-harmony/"><u>In 2024, Funds Flowchart From Sung Rhythms To Visual Harmony</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-hottest-online-hubs-for-metallic-3d-type-graphics/"><u>In 2024, Hottest Online Hubs for Metallic 3D Type Graphics</u></a></li>
+<li><a href="https://some-tips.techidaily.com/navigating-the-future-of-comfort-expertly-curated-list-of-2024s-leading-smart-thermostats-according-to-zdnet/"><u>Navigating the Future of Comfort: Expertly Curated List of 2024’S Leading Smart Thermostats According to ZDNET</u></a></li>
 </ul></div>
 

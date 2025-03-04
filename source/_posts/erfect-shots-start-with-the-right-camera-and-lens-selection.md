@@ -1,7 +1,7 @@
 ---
 title: "[New] Perfect Shots Start With The Right Camera & Lens Selection"
-date: 2025-02-09T19:57:21.778Z
-updated: 2025-02-15T11:54:34.664Z
+date: 2025-03-03T16:22:13.966Z
+updated: 2025-03-04T19:30:05.184Z
 tags:
   - ai video
   - ai youtube
@@ -61,10 +61,6 @@ With standard lenses or normal lenses, you won’t get the stretched out objects
 
 Out of all the other ranges in focal lengths, telephoto lenses will appear the most zoomed in. This can be beneficial for the shooter who wants to get a closer shot of a scene without having to physically be in close proximity to the scene. Objects that are further away in the background also appear larger and closer than they would appear on wide-angle or standard lenses.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Vlogging With Each Focal Length Group
 
 You can get your talking head footage using lenses from any of the three focal length groups. Depending on how you plan to vlog most of the time, though, one of the three focal lengths might be more suitable for you.
@@ -93,10 +89,6 @@ Focal lengths in camera lenses are measured in millimeters. You can vlog yoursel
 
  ![Crop Factor](https://images.wondershare.com/filmora/article-images/camera-lenses-crop-factor.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
 
 ### Focal Length Equivalency Table
@@ -118,17 +110,9 @@ This table shows you the focal lengths needed to achieve the same shot between c
 
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
 
  ![Camera lenses Aperture Range](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture-range.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Because larger aperture lenses let more light in, they need a shorter time for cameras to compose an image. This is why larger aperture lenses are also called “fast” lenses.
 
@@ -164,10 +148,6 @@ If, however, you are shooting most of your vlogs on a tripod, you won’t need a
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -189,19 +169,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-sonic-shakers-the-ultimate-audio-rippers-list/"><u>[New] 2024 Approved Sonic Shakers The Ultimate Audio Rippers List</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-the-ultimate-guide-to-choosing-a-screen-swivel-cam-for-your-needs/"><u>[New] 2024 Approved The Ultimate Guide to Choosing a Screen Swivel Cam for Your Needs</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-tips-and-tricks-to-add-tags-to-youtube-video/"><u>[New] 2024 Approved Tips & Tricks to Add Tags to YouTube Video</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-unleash-the-potential-customizing-your-youtube-channel-url/"><u>[New] 2024 Approved Unleash the Potential Customizing Your YouTube Channel Url</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-unlocking-earnings-a-step-by-step-guide-to-youtubes-monetization-on-mobile/"><u>[New] 2024 Approved Unlocking Earnings A Step-by-Step Guide to YouTube's Monetization on Mobile</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-unveiling-10-inspirational-workout-plans-for-video-creators/"><u>[New] 2024 Approved Unveiling 10 Inspirational Workout Plans for Video Creators</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/new-strategic-playlist-formation-your-guide-to-youtube-mastery/"><u>[New] Strategic Playlist Formation Your Guide to YouTube Mastery</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-ensuring-flawless-images-avoid-watermarks/"><u>[Updated] In 2024, Ensuring Flawless Images Avoid Watermarks</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/full-tutorial-to-bypass-your-vivo-y55s-5g-2023-face-lock-by-drfone-android/"><u>Full Tutorial to Bypass Your Vivo Y55s 5G (2023) Face Lock?</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-expertly-chosen-top-ten-cine-cameras-for-everyone/"><u>In 2024, Expertly Chosen Top Ten Cine-Cameras for Everyone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-circle-everything-you-need-to-know-on-xiaomi-14-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Circle Everything You Need to Know On Xiaomi 14 Ultra | Dr.fone</u></a></li>
-<li><a href="https://ai-video-translation.techidaily.com/new-2024-approved-top-9-choices-for-video-auto-translate/"><u>New 2024 Approved Top 9 Choices for Video Auto Translate</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/record-your-favorite-moments-8-methods-to-capture-tiktok-videos-using-various-devices-with-ease/"><u>Record Your Favorite Moments: 8 Methods to Capture TikTok Videos Using Various Devices with Ease</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/the-definitive-guide-to-owcs-mercury-pro-unrivaled-storage-experience/"><u>The Definitive Guide to OWC's Mercury Pro - Unrivaled Storage Experience</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/xpand-your-horizons-with-these-elite-science-yts-for-2024/"><u>[New] Expand Your Horizons with These Elite Science YTs for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-in-2024-avoid-watermarks-with-these-iphones-tricks-for-tiktok-videos/"><u>[New] In 2024, Avoid Watermarks with These iPhones Tricks for TikTok Videos</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-navigating-the-numbers-youtube-earnings-and-cpm-insights/"><u>[Updated] 2024 Approved Navigating the Numbers YouTube Earnings & CPM Insights</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-culinary-craftsmanship-innovative-naming-for-food-shows-for-2024/"><u>[Updated] Culinary Craftsmanship Innovative Naming for Food Shows for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-channel-conclusion-mastery-customized-screens-in-focus/"><u>[Updated] In 2024, Channel Conclusion Mastery Customized Screens in Focus</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-elevate-compositing-workflow-implementing-luts-in-ae/"><u>[Updated] In 2024, Elevate Compositing Workflow Implementing LUTs in AE</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-perfecting-the-art-of-slow-motion-in-snapchat-stories/"><u>[Updated] Perfecting the Art of Slow Motion in Snapchat Stories</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-pioneering-apps-for-synching-pictures-and-beats/"><u>2024 Approved Pioneering Apps For Synching Pictures & Beats</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-proven-youtube-seo-tricks-boosting-video-reach-and-visibility/"><u>2024 Approved Proven YouTube SEO Tricks Boosting Video Reach and Visibility</u></a></li>
+<li><a href="https://windows11.techidaily.com/conquer-network-analysis-on-windows-11-the-netstat-command-guide/"><u>Conquer Network Analysis on Windows 11: The Netstat Command Guide</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ng-edge-camera-technology-for-youtube-stars-for-2024/"><u>Cutting-Edge Camera Technology For YouTube Stars for 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/find-and-install-the-most-recent-drivers-for-your-toshiba-satellite-on-windows/"><u>Find & Install the Most Recent Drivers for Your Toshiba Satellite on Windows</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-professional-3d-creation-software-for-video-startups/"><u>In 2024, Professional 3D Creation Software for Video Startups</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/unlocking-the-upside-exploring-asmrs-advantages-for-2024/"><u>Unlocking the Upside Exploring ASMR's Advantages for 2024</u></a></li>
 </ul></div>
 

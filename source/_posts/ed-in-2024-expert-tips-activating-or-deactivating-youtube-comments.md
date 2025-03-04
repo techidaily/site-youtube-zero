@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Expert Tips  Activating or Deactivating YouTube Comments\""
-date: 2024-08-28T12:56:41.341Z
-updated: 2024-08-29T12:56:41.341Z
+date: 2025-03-03T19:09:58.524Z
+updated: 2025-03-04T18:58:32.446Z
 tags:
   - ai video
   - ai youtube
@@ -112,9 +112,6 @@ From under the **Audience** section in the right window of the **Video details**
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## FAQs About YouTube Comments
 
 #### 1\. Why can’t I comment on the YouTube video?
@@ -131,9 +128,6 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 
 ![Block YouTube   commnets](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
 Yes. When you turn off the comments, the existing comments disappear. When you turn them back on, all the previous comments reappear, and become visible to the audience.
@@ -148,23 +142,17 @@ It is easy to understand **how to turn on comments on YouTube**. The best thing 
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -173,8 +161,22 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-discovering-asmrs-improved-self-care-benefits/"><u>[New] 2024 Approved Discovering ASMR's Improved Self-Care Benefits</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-tips-for-engaging-video-blog-storytelling/"><u>[New] In 2024, Tips for Engaging Video Blog Storytelling</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/he-ultimate-user-friendly-untangle-for-youtube-earnings-assessment/"><u>[New] The Ultimate User-Friendly Untangle for YouTube Earnings Assessment</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-customize-your-video-to-fit-seamlessly-in-instagram/"><u>[Updated] 2024 Approved Customize Your Video to Fit Seamlessly in Instagram</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-explore-10-premier-yoga-streams-for-wellness-boost/"><u>[Updated] 2024 Approved Explore 10 Premier Yoga Streams for Wellness Boost</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-tune-tastic-transfers-find-your-favorite-youtube-songs-with-top-6-free-android-apps/"><u>[Updated] In 2024, Tune-Tastic Transfers Find Your Favorite Youtube Songs with Top 6 Free Android Apps</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-swift-steps-to-personalize-your-in-game-sonic-presence-in-pubg/"><u>[Updated] Swift Steps to Personalize Your In-Game Sonic Presence in PUBG</u></a></li>
+<li><a href="https://article-helps.techidaily.com/craft-comical-caricatures-using-giphys-kit-for-2024/"><u>Craft Comical Caricatures Using Giphy's Kit for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/download-premium-bollywood-classics-in-hd-your-ultimate-guide-to-the-best-10-films-on-google/"><u>Download Premium Bollywood Classics in HD - Your Ultimate Guide to the Best 10 Films on Google!</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-essential-insights-on-asmr-videos/"><u>In 2024, Essential Insights on ASMR Videos</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-a-nokia-c12-pro-easily-by-drfone-android/"><u>In 2024, How To Unlock a Nokia C12 Pro Easily?</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/izing-earnings-on-youtube-universal-device-accessibility-for-2024/"><u>Maximizing Earnings on YouTube Universal Device Accessibility for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/iques-for-rapid-deletion-of-youtube-feedback-for-2024/"><u>Techniques for Rapid Deletion of Youtube Feedback for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/the-financial-worth-one-million-youtube-eyes/"><u>The Financial Worth One Million YouTube Eyes</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/shing-online-music-potential-with-imovie-and-youtube-for-2024/"><u>Unleashing Online Music Potential with iMovie & YouTube for 2024</u></a></li>
+</ul></div>
 

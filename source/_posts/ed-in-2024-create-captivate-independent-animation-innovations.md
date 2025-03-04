@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Create, Captivate  Independent Animation Innovations\""
-date: 2025-02-11T22:26:43.188Z
-updated: 2025-02-14T16:37:29.349Z
+date: 2025-02-26T17:22:32.552Z
+updated: 2025-03-04T17:54:44.622Z
 tags:
   - ai video
   - ai youtube
@@ -51,17 +51,9 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **[Mt. Mograph](https://www.youtube.com/channel/UCSUSgx9qc%5FNydrOL59xbJIA)**
 
 On this YouTube channel, motion graphics specialist Matt offers free animation tutorials using a variety of programs including Adobe After Effects and Cinema 4D. His lessons are for a range of skill levels, from beginner to advanced. If you are just starting out then Mt.Mograph is a great resource.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **[Richard Harrington on Lynda](https://www.lynda.com/Rich-Harrington/120-1.html)**
 
@@ -69,27 +61,15 @@ Lynda isn’t free, but the 10-day free trial period is definitely long enough f
 
 What’s great about this course is that it assumes you have no animation experience, and it walks you through the main thing a lot of YouTubers want to learn animation for – creating an animated logo.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **[Bloop Animation](https://www.bloopanimation.com/)**
 
  Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **[Video Copilot](http://www.videocopilot.net/)**
 
 This site has a huge number of free After Effects tutorials. There are basic introductory lessons, and really advanced classes on creating custom cinematic FX, like explosions. There’s even a playlist on title design, which will be useful for anyone looking to create an intro sequence for their videos.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -112,18 +92,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://driver-error.techidaily.com/alert-intermittent-mouse-functionality-in-window-10/"><u>[Alert]: Intermittent Mouse Functionality in Window 10</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-secrets-for-top-audio-quality-no-need-for-a-microphone/"><u>[New] 2024 Approved Secrets for Top Audio Quality, No Need for a Microphone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-the-journey-to-exceptional-educational-content-creating-impactful-vids-on-youtube/"><u>[New] 2024 Approved The Journey to Exceptional Educational Content Creating Impactful Vids on YouTube</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/new-a-comprehensive-guide-to-thumbnail-production-for-2024/"><u>[New] A Comprehensive Guide to Thumbnail Production for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-mastering-the-basics-of-asmr-video-content/"><u>[Updated] Mastering the Basics of ASMR Video Content</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-fake-gps-on-xiaomi-redmi-k70-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>How To Fake GPS On Xiaomi Redmi K70 For Mobile Legends? | Dr.fone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-boost-your-channels-crafting-captivating-yt-descriptions-using-custom-templates/"><u>In 2024, Boost Your Channels Crafting Captivating YT Descriptions Using Custom Templates</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-boost-your-channels-following-by-a-thousand/"><u>In 2024, Boost Your Channels' Following by a Thousand</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-convert-with-confidence-best-apps-to-turn-spotify-into-youtube-channels/"><u>In 2024, Convert with Confidence Best Apps to Turn Spotify Into YouTube Channels</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/24-cutting-edge-techniques-pushing-boundaries-in-youtube-cinematography/"><u>In 2024, Cutting Edge Techniques Pushing Boundaries in YouTube Cinematography</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-no-more-black-fringe-in-youtube-videos/"><u>In 2024, No More Black Fringe in YouTube Videos</u></a></li>
-<li><a href="https://games-able.techidaily.com/is-a-dual-feature-gaming-screen-beneficial/"><u>Is a Dual-Feature Gaming Screen Beneficial?</u></a></li>
-<li><a href="https://games-able.techidaily.com/resolving-component-shortage-alert-on-devices/"><u>Resolving “Component Shortage” Alert on Devices</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/rom-idea-to-impact-advanced-editing-techniques-for-youtube-creators-for-2024/"><u>[New] From Idea to Impact Advanced Editing Techniques for YouTube Creators for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-comparing-digital-platform-profits-dailymovement-to-youtube-revenue/"><u>[Updated] 2024 Approved Comparing Digital Platform Profits DailyMovement to YouTube Revenue</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-an-easy-to-follow-guide-to-applying-cc-license-types-for-2024/"><u>[Updated] An Easy-to-Follow Guide to Applying CC License Types for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-brand-makeover-made-easy-revel-in-our-array-of-over-50-free-online-promotional-artwork/"><u>[Updated] Brand Makeover Made Easy Revel in Our Array of over 50 Free Online Promotional Artwork!</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-ultimate-battle-of-video-capturing-apps/"><u>[Updated] In 2024, Ultimate Battle of Video Capturing Apps</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-ultimate-guide-to-youtube-app-on-iphones-and-androids/"><u>[Updated] In 2024, Ultimate Guide to YouTube App on iPhones and Androids</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-how-to-animate-and-make-your-own-effects/"><u>2024 Approved How to Animate and Make Your Own Effects</u></a></li>
+<li><a href="https://win11.techidaily.com/accelerate-the-flow-of-tasks-with-fast-outlook/"><u>Accelerate the Flow of Tasks with Fast Outlook</u></a></li>
+<li><a href="https://win-outstanding.techidaily.com/come-eseguire-efficacemente-il-ripristino-di-windows-11-tramite-una-chiavetta-usb-scopri-i-4-metodi-migliori/"><u>Come Eseguire Efficacemente Il Ripristino Di Windows 11 Tramite Una Chiavetta USB: Scopri I 4 Metodi Migliori</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/o-optimize-youtube-tagstitledescription-for-more-views/"><u>How to Optimize YouTube Tags/Title/Description for More Views</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-laughter-ledger-ranking-the-highest-viral-jokes/"><u>In 2024, Laughter Ledger Ranking the Highest Viral Jokes</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Understanding Light Settings in YouTube Video Editing"
-date: 2025-02-13T18:59:01.140Z
-updated: 2025-02-15T00:34:32.522Z
+date: 2025-02-25T16:17:03.866Z
+updated: 2025-03-04T20:06:20.423Z
 tags:
   - ai video
   - ai youtube
@@ -60,10 +60,6 @@ Home lighting is another source of light that many new YouTubers use. In the pas
 
 ![Mixed Lighting](https://images.wondershare.com/filmora/article-images/home-lighting-for-youtube-videos.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Notice how the color of Daniel's skin looks much more orange here (above) than the color of the skin in the two side-by-side window lighting examples? The side of the face also appears to look bluer. This all happened because he mixed up different color temperatures shining out of the two lights (cooler window light and warmer ceiling light).
 
 Most home lighting is warmer in its color temperature. If you want to use your home lights without everything being orange-tinted, you’ll need to switch out your light bulbs for daytime LED light bulbs.
@@ -78,29 +74,17 @@ If you rather not deal with all the window and home lighting challenges, you can
 
 The first thing you’ll want to do to set up studio lighting in your home is to pick a room to film in and eliminate as much external lighting as you can. Use blinds, curtains, towels, or any thick fabric to block sunlight from shining into your room.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2. 3-Point Lighting
 
 The most common setup for studio lighting is 3-point lighting. For this kind of lighting you’ll need three lights: a key light, a fill light, and a back light (also called a hair light).
 
 ![3-Point Lighting](https://images.wondershare.com/filmora/article-images/youtube-lighting-3-point-lighting.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Out of the three lights, the key light should be the brightest. When it is positioned to the left of you (as shown in the diagram above) your right side will have shadows.
 
 To minimize the shadows on your right side, use a weaker light as a fill light. You don’t want your fill light to completely eliminate all your shadows or else your shot will look flat.
 
 Lastly, a backlight positioned behind you can give an appealing highlight to the ends of your head and even help to separate your hair from blending into your background if both happen to be dark.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 3. 4-Point Lighting
 
@@ -117,10 +101,6 @@ For more information on lighting equipment, check out my [Top 17 Video Lighting 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -143,15 +123,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-4-top-choices-for-seamless-pcmac-video-capture/"><u>[New] 2024 Approved 4 Top Choices for Seamless PC/Mac Video Capture</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-streamline-your-youtube-productions-with-pc-editing-techniques/"><u>[New] 2024 Approved Streamline Your YouTube Productions with PC Editing Techniques</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-ultimate-online-video-snatcher-download-favorites-instantly/"><u>[New] 2024 Approved Ultimate Online Video Snatcher Download Favorites Instantly</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-unlock-the-power-of-cutting-for-beginner-editors/"><u>[New] 2024 Approved Unlock the Power of Cutting for Beginner Editors</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-visionedit-ace/"><u>[New] 2024 Approved VisionEdit Ace</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-cutting-edge-6-software-choices-for-effortless-background-erasing/"><u>[New] Cutting-Edge 6 Software Choices for Effortless Background Erasing</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-insider-tips-skyrocketing-your-canva-experience/"><u>[Updated] Insider Tips Skyrocketing Your Canva Experience</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-step-into-hd-color-on-windows-watch-edit-relish-videos/"><u>[Updated] Step Into HD Color on Windows Watch, Edit, Relish Videos</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/5-ways-to-track-itel-p55t-without-app-drfone-by-drfone-virtual-android/"><u>5 Ways to Track Itel P55T without App | Dr.fone</u></a></li>
-<li><a href="https://howto.techidaily.com/what-to-do-if-google-play-services-keeps-stopping-on-samsung-galaxy-a15-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What to Do if Google Play Services Keeps Stopping on Samsung Galaxy A15 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/asterful-moments-a-deep-dive-into-youtube-to-facebook-sharing/"><u>[New] Masterful Moments A Deep Dive Into YouTube-to-Facebook Sharing</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-2024-approved-leveraging-likeability-for-business-profits-on-fb/"><u>[Updated] 2024 Approved Leveraging Likeability for Business Profits on FB</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-premier-20-no-cost-pubg-thumbnail-assemblies/"><u>[Updated] 2024 Approved Premier 20 No-Cost PUBG Thumbnail Assemblies</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-skyrocket-your-streaming-status-three-winning-techniques-for-newbies/"><u>[Updated] Skyrocket Your Streaming Status Three Winning Techniques for Newbies</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-action-cam-showdown-2022-hero5-black-vs-ultra-30-streaming/"><u>2024 Approved Action Cam Showdown 2022 Hero5 Black Vs. Ultra 30 Streaming</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-how-you-can-get-paid-for-videos/"><u>2024 Approved How You Can Get Paid for Videos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-vloggers-solution-excellent-camera-stabilization/"><u>2024 Approved Vloggers' Solution Excellent Camera Stabilization</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-use-google-assistant-on-your-lock-screen-of-tecno-camon-20-phone-by-drfone-android/"><u>How to Use Google Assistant on Your Lock Screen Of Tecno Camon 20 Phone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-seamless-audio-transfer-best-iphone-tools-for-youtube-to-mp3/"><u>In 2024, Seamless Audio Transfer Best iPhone Tools for YouTube-to-MP3</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ful-techniques-including-yt-videos-in-slides/"><u>Powerful Techniques Including YT Videos in Slides</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/professional-filmmakers-choices-17-best-lights-for-2024/"><u>Professional Filmmakers' Choices #17 Best Lights for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/the-ultimate-chatbot-question-gpt-pluses-or-perplexities/"><u>The Ultimate Chatbot Question: GPT Pluses or Perplexities?</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/understanding-filmoras-creative-certification-protocol-for-2024/"><u>Understanding Filmora's Creative Certification Protocol for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/unveiling-the-positive-aspects-and-negative-points-of-chatgpt-plus/"><u>Unveiling The Positive Aspects And Negative Points Of ChatGPT Plus</u></a></li>
 </ul></div>
 

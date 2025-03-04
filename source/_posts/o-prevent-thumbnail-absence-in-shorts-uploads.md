@@ -1,7 +1,7 @@
 ---
 title: "How to Prevent Thumbnail Absence in Shorts Uploads"
-date: 2025-02-13T09:36:21.776Z
-updated: 2025-02-15T06:45:47.159Z
+date: 2025-03-02T16:11:22.846Z
+updated: 2025-03-04T16:39:54.379Z
 tags:
   - ai video
   - ai youtube
@@ -27,10 +27,6 @@ That said, it is a problem you want to solve. Here are 7 FAQs about YouTube Shor
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Q1\. Can I Customize YouTube Shorts Thumbnails?
 
 Yes, you can. YouTube did allow short-form video creators to upload custom thumbnails for their Shorts. However, they aren't that optimized. For instance, some people may not see them on the Shorts shelf. Also, if you share a link to the video somewhere else, the old video thumbnail may show instead of the new one.
@@ -40,10 +36,6 @@ Adding a custom thumbnail for YouTube Shorts is the same as adding one for long-
 * Open the YouTube mobile app. Click the "Plus" icon at the bottom center > "Create Short." Upload, edit, and post your video.
 
 ![creating shorts on youtube app](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-change-thumbnail-1.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * Get to your desktop computer or laptop. Open your channel's YouTube Studio.
 
@@ -94,10 +86,6 @@ Of course, ensuring that the video quality is high is key to getting more views.
 
 ![filmora mobile feature showcase](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-filmora.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 The best thing is that you don't need to transfer the video from your phone to your computer and back. Wondershare Filmora is available on mobile. And it's one of the best tools for enhancing a short-form video.
 
 Short-form video watchers love filters, transitions, and effects. And Filmora gives you access to all of that. It provides you with fun and amazing filters, effects, transitions, and stamps that can add a wow factor to your short-form video.
@@ -154,14 +142,6 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 ![watching shorts like normal video mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-5.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 Unfortunately, custom thumbnails not showing on Shorts does not have a fix yet. So to attract viewers, you must leverage the things in your control. You must title your videos in a way that will make users click the video. Also, adding effects and filters on the video using an editor like Wondershare Filmora can help.
@@ -175,10 +155,6 @@ Users can subscribe to Shorts channels. And if they see that your videos are wel
 The best thing is that you don't need to transfer the video from your phone to your computer and back. Wondershare Filmora is available on mobile. And it's one of the best tools for enhancing a short-form video.
 
 Short-form video watchers love filters, transitions, and effects. And Filmora gives you access to all of that. It provides you with fun and amazing filters, effects, transitions, and stamps that can add a wow factor to your short-form video.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Q6\. Do YouTube Shorts Make Money?
 
@@ -198,17 +174,9 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 ![shorts tab on the youtube website](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-1.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Pause the video.
 
 ![paused a shorts video](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-2.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * Click "Library" on the left panel.
 
@@ -232,17 +200,9 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 ![library tab on youtube mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-3.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Scroll down to find "Liked Videos." Click on it.
 
 ![liked videos section on youtube mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-4.JPG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * Select the Shorts video you just watched. It should be at the top of the list.
 
@@ -275,19 +235,24 @@ Users can subscribe to Shorts channels. And if they see that your videos are wel
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-starting-strong-with-these-trendy-15-video-intros/"><u>[New] 2024 Approved Starting Strong with These Trendy 15 Video Intros</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-the-monetary-map-mr-beasts-financials-uncovered/"><u>[New] 2024 Approved The Monetary Map Mr. Beast’s Financials Uncovered</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-the-path-to-higher-engagement-essential-shortcuts-for-youtubers/"><u>[New] 2024 Approved The Path to Higher Engagement Essential Shortcuts for YouTubers</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-top-50-digital-rich-list/"><u>[New] 2024 Approved Top 50 Digital Rich List</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-unraveling-the-secrets-to-dynamic-youtube-trailers-in-filmora/"><u>[New] 2024 Approved Unraveling the Secrets to Dynamic YouTube Trailers in Filmora</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-video-revenue-battlefield-dm-versus-yo-analysis/"><u>[New] 2024 Approved Video Revenue Battlefield Dm Versus Yo Analysis</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-perfecting-podcast-production-an-ultimate-tutorial-for-high-quality-zoom-recordings/"><u>[New] In 2024, Perfecting Podcast Production An Ultimate Tutorial for High-Quality Zoom Recordings</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-the-backlink-journey-paving-a-path-to-youtube-success-for-2024/"><u>[Updated] The Backlink Journey Paving a Path to YouTube Success for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-the-future-of-content-creation-profitability-on-youtube/"><u>2024 Approved The Future of Content Creation Profitability on YouTube</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/becoming-a-youtube-pro-the-ultimate-picture-post-guide-for-2024/"><u>Becoming a YouTube Pro The Ultimate Picture Post Guide for 2024</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/graphics-support-failure-noted/"><u>Graphics Support Failure Noted</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-music-files-from-sony-xperia-1-v-by-fonelab-android-recover-music/"><u>How To Restore Missing Music Files from Sony Xperia 1 V</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-navigating-cutting-edge-imaging-a-shoppers-selection-process/"><u>In 2024, Navigating Cutting-Edge Imaging A Shopper's Selection Process</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/the-ultimate-elgoog-insight-mastering-the-features-of-the-top-mirror-website/"><u>The Ultimate ElgooG Insight: Mastering the Features of the Top Mirror Website</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/reakdown-of-mr-beasts-financial-powerhouse/"><u>[New] Breakdown of Mr. Beast's Financial Powerhouse</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-sdr-to-hdri-pioneers-expert-tips-and-techniques/"><u>[New] In 2024, SDR to HDRI Pioneers Expert Tips and Techniques</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ey-elements-of-successful-youtube-channel-imagery-for-2024/"><u>[New] Key Elements of Successful YouTube Channel Imagery for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/aster-your-youtube-content-with-superior-webm-converters/"><u>[New] Master Your YouTube Content with Superior WebM Converters</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/he-art-of-crafting-youtube-playlists-for-optimal-listening/"><u>[New] The Art of Crafting YouTube Playlists for Optimal Listening</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nlocking-the-secrets-of-your-personalized-youtube-playlists/"><u>[New] Unlocking the Secrets of Your Personalized Youtube Playlists</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-webcam-integration-in-gaming-setup-mastery/"><u>[New] Webcam Integration in Gaming Setup Mastery</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/outubes-secrets-integrating-text-overlays-in-your-clips/"><u>[New] YouTube's Secrets Integrating Text Overlays in Your Clips</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-streamlining-your-technique-for-better-home-recordings/"><u>[Updated] In 2024, Streamlining Your Technique for Better Home Recordings</u></a></li>
+<li><a href="https://android-location.techidaily.com/for-people-wanting-to-mock-gps-on-vivo-x-flip-devices-drfone-by-drfone-virtual/"><u>For People Wanting to Mock GPS on Vivo X Flip Devices | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/y-high-stakes-views-yts-1-to-10-rankings-for-2024/"><u>Hourly High-Stakes Views YT's #1 to #10 Rankings for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-reset-a-vivo-s17e-phone-that-is-locked-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset a Vivo S17e Phone That Is Locked | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-stop-fb-push-notifications-and-messages/"><u>How to Stop FB Push Notifications and Messages</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-swift-introduction-the-art-of-green-screening/"><u>In 2024, Swift Introduction The Art of Green Screening</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-the-top-5-android-apps-that-use-fingerprint-sensor-to-lock-your-apps-on-infinix-hot-40-pro-by-drfone-android/"><u>In 2024, The Top 5 Android Apps That Use Fingerprint Sensor to Lock Your Apps On Infinix Hot 40 Pro</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ring-metadata-the-power-of-accurate-video-tags/"><u>Mastering Metadata The Power of Accurate Video Tags</u></a></li>
+<li><a href="https://extra-support.techidaily.com/methods-for-extracting-video-tweets-as-compact-mp3-files-for-2024/"><u>Methods for Extracting Video Tweets as Compact MP3 Files for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/review-of-lenovo-thinkpad-x1-fold-innovative-foldability-meets-imperfections/"><u>Review of Lenovo ThinkPad X1 Fold: Innovative Foldability Meets Imperfections</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/the-symphony-of-social-sharing-adding-audio-to-instagram/"><u>The Symphony of Social Sharing Adding Audio to Instagram</u></a></li>
 </ul></div>
 
