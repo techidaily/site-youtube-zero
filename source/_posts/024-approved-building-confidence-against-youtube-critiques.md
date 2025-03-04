@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Building Confidence Against YouTube Critiques\""
-date: 2024-08-16T04:14:25.397Z
-updated: 2024-08-17T04:14:25.397Z
+date: 2025-02-12T09:29:29.921Z
+updated: 2025-02-15T01:54:27.359Z
 tags:
   - ai video
   - ai youtube
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/128a52db05a06f83263e58b5a6a26485493e4674a
  Mar 27, 2024• Proven solutions
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
 
@@ -54,20 +58,21 @@ thumbnail: https://thmb.techidaily.com/128a52db05a06f83263e58b5a6a26485493e4674a
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -76,12 +81,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-guides-on-creating-cost-free-youtube-beginnings-and-conclusions/"><u>[New] In 2024, Guides on Creating Cost-Free YouTube Beginnings & Conclusions</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/outube-live-pro-tips-outfitting-with-excellent-webcams-for-2024/"><u>[New] YouTube Live Pro Tips Outfitting with Excellent Webcams for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-comparing-tiktok-and-youtube-shorts-for-personal-content-creation/"><u>[Updated] Comparing TikTok & YouTube Shorts for Personal Content Creation</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-breakdown-of-profit-from-a-million-youtube-watches/"><u>[Updated] In 2024, Breakdown of Profit From a Million Youtube Watches</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-learning-legends-esteemed-ed-streams-online/"><u>[Updated] In 2024, Learning Legends Esteemed Ed Streams Online</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-the-definitive-iphone-podcast-download-guide-for-2024/"><u>[Updated] The Definitive iPhone Podcast Download Guide for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-learn-money-tricks-top-13-beginner-friendly-income-strategies-on-reddit/"><u>2024 Approved Learn Money Tricks Top 13 Beginner-Friendly Income Strategies on Reddit</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-waveform-wisdom-dimming-audio-with-expertise-in-premiere/"><u>2024 Approved Waveform Wisdom Dimming Audio with Expertise in Premiere</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/2024-approved-youtubes-creative-commons-license-explained-simply/"><u>2024 Approved YouTube's Creative Commons License Explained Simply</u></a></li>
+<li><a href="https://fox-triigers.techidaily.com/boost-your-pcs-efficiency-by-updating-device-drivers-tips-from-yl-computing/"><u>Boost Your PC's Efficiency by Updating Device Drivers - Tips From YL Computing</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ing-through-boundaries-optimizing-videos-for-maximum-traction/"><u>Breaking Through Boundaries Optimizing Videos for Maximum Traction</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/bypassing-dev-error-5573-a-comprehensive-tutorial-for-playstation-xbox-and-pc-users/"><u>Bypassing 'Dev Error 5573': A Comprehensive Tutorial for PlayStation, Xbox & PC Users</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/o-add-edit-and-optimize-youtube-tagstitledescription-for-more-views/"><u>How to Add, Edit and Optimize YouTube Tags/Title/Description for More Views</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-remove-forgotten-pin-of-your-asus-rog-phone-7-by-drfone-android/"><u>How to Remove Forgotten PIN Of Your Asus ROG Phone 7</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-audio-enhancement-for-online-video-creators/"><u>In 2024, Audio Enhancement for Online Video Creators</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/master-voice-customization-on-ps-playstation-devices-for-2024/"><u>Master Voice Customization on PS PlayStation Devices for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/mline-your-youtube-shorts-thumbnail-process/"><u>Streamline Your YouTube Shorts Thumbnail Process</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ring-a-triad-of-topical-youtube-tracks/"><u>Tailoring a Triad of Topical YouTube Tracks</u></a></li>
+<li><a href="https://os-tips.techidaily.com/top-rated-iphone-charger-devices/"><u>Top Rated iPhone Charger Devices</u></a></li>
+</ul></div>
 
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

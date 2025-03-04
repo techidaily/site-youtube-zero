@@ -1,7 +1,7 @@
 ---
 title: "\"Quick Fixes for Professional-Looking YouTube Thumbnails\""
-date: 2024-08-23T08:20:05.265Z
-updated: 2024-08-24T08:20:05.265Z
+date: 2025-02-09T23:37:56.026Z
+updated: 2025-02-15T03:12:22.571Z
 tags:
   - ai video
   - ai youtube
@@ -35,6 +35,10 @@ Youtube is one of the widely and most used video-sharing platforms all around th
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to make a thumbnail for Youtube using AI Portrait
 
 With time, Filmora brings new and advanced features for its users to equip them with all the necessary tools required for effective and efficient video editing. One of its latest features is AI Portrait. This feature has several uses and benefits. This feature is designed for Gamers, Vlogger, and other related genres to help them make their videos stand out from the crowd and gain more clicks and views. AI Portrait contains several effects that help you make the human element of the video separate from the background and make it more obvious. We can also use the AI Portrait effects to make beautiful and attractive thumbnails for your Youtube. Follow these steps to create a stunning thumbnail for your Youtube videos.
@@ -51,9 +55,17 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step3](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step4.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 04:** Choose a background of your choice for your thumbnail. You can choose a background from the sample colors provided by Filmora.
 
 ![ai-portrait-thumbnail-step4](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step4.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 05:** If you want to use your custom background, you can import it into the Filmora by clicking import or dragging and dropping it in the media section.
 
@@ -62,6 +74,10 @@ With time, Filmora brings new and advanced features for its users to equip them 
 **Step 06:** Import your video the same way into the media folder of Filmora and drag it into the timeline and place it above your background.
 
 ![ai-portrait-thumbnail-step6](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step6.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 07:** Select your footage, go to the Effects tab and click on AI Portraits. It will open up all the effects related to AI Portraits. These AI Portrait features help you separate the human from a background without using a green screen or anything else.
 
@@ -78,6 +94,10 @@ With time, Filmora brings new and advanced features for its users to equip them 
 **Step 10:** The effect will be applied to the footage. Now the background has been removed from the footage and ready to be used on your custom background. You can adjust the human accordingly where it looks perfect.
 
 ![ai-portrait-thumbnail-step10](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step10.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 11:** Now it is time to add a title into your thumbnail to highlight what the video is all about. Go to the Titles, and select lower thirds. You can also select any of the titles types which best suits your needs. Drop the title into the timeline above the footage and adjust it accordingly. Now double click on the header to edit and rename it.
 
@@ -103,14 +123,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -119,12 +136,22 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-principles-of-evolving-media-artistry/"><u>[New] 2024 Approved Principles of Evolving Media Artistry</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ow-to-enhance-clarity-of-online-video-content/"><u>[New] How to Enhance Clarity of Online Video Content</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-graph-gems-2017s-statistical-youtube-surprises/"><u>[Updated] Graph Gems 2017'S Statistical YouTube Surprises</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-highest-ranking-youtube-tracker-for-popular-video-insight/"><u>2024 Approved Highest-Ranking YouTube Tracker for Popular Video Insight</u></a></li>
+<li><a href="https://win-luxury.techidaily.com/1728475606994-gmail/"><u>Gmailにおける重要メールの安全確保手段：専門家が解説！</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-achieving-smooth-video-playback-on-portable-devices/"><u>In 2024, Achieving Smooth Video Playback on Portable Devices</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/in-2024-step-by-step-guide-integrating-audio-into-your-reels/"><u>In 2024, Step-by-Step Guide Integrating Audio Into Your Reels</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-stumble-upon-substantial-comment-sections/"><u>In 2024, Stumble upon Substantial Comment Sections</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ing-along-to-mimicked-melodies/"><u>Laughing Along to Mimicked Melodies</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/master-the-art-of-fb-video-ads-with-a-complimentary-kit-for-2024/"><u>Master the Art of FB Video Ads with a Complimentary Kit for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/izing-video-impact-post-upload-edit-tips-for-youtube-for-2024/"><u>Maximizing Video Impact Post-Upload Edit Tips for YouTube for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ating-the-obscure-screen-issue-in-youtube-for-2024/"><u>Navigating the Obscure Screen Issue in Youtube for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/quick-and-easy-way-to-record-iphone-screens-for-2024/"><u>Quick & Easy Way to Record iPhone Screens for 2024</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/simple-techniques-for-fixing-gpus-only/"><u>Simple Techniques for Fixing GPUs Only</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1722971561572-soil-composition-preferences-including-ph-level-organic-matter-content-and-drainage-properties/"><u>Soil Composition Preferences Including pH Level, Organic Matter Content, and Drainage Properties</u></a></li>
+</ul></div>
 
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

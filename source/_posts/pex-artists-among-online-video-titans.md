@@ -1,7 +1,7 @@
 ---
 title: "[New] Apex Artists Among Online Video Titans"
-date: 2025-01-26T04:32:42.425Z
-updated: 2025-02-01T06:30:49.702Z
+date: 2025-02-13T19:06:32.039Z
+updated: 2025-02-15T09:57:48.576Z
 tags:
   - ai video
   - ai youtube
@@ -59,13 +59,13 @@ In this article, we will take you through the 5 most popular creator channels on
 
 ![PewDiePie](https://images.wondershare.com/filmora/article-images/pew-die-pie.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 YouTube's most well-known superstar Felix Arvid Ulf Kjellberg was born 1989 in Gothenburg. PewDiePie’s channel has made this Swedish comedian, Vlogger, and gamer based in Brighton, England, a global celebrity whose videos have reached record audiences. Felix created his YouTube channel in 2010 and in only six short years the PewDiePie YouTube channel received over 16 billion views and it is currently among the most viewed channels ever.
 
 The most common videos on Felix's channel are gaming videos in which he comments and reacts to the game as he plays through it. PewDiePie’s videos are full of goofy and genuine content that amuses its spectators. Felix's YouTube channel remains by far the most subscribed channel with more than 57 million subscribers, more than 25 million more than the channel in second. He frequently appears in marketing campaigns and other social media events and is widely considered as the most influential gaming commentator of our time.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ###  2\.  HolaSoyGerman
 
@@ -83,17 +83,9 @@ More than 25 million subscribers who follow this gaming commentator. The El Rubi
 
 Based in Madrid, El Rubius OMG first became popular in Spanish-speaking countries, and as his fame increased he gained recognition throughout the world. During 2012 his channel became the most subscribed Spanish speaking channel, and on April 21, 2016, El Rubius received the 'YouTuber of the Year' award during the 1st Play Awards celebration in Palma De Mallorca. In addition to being one of the most popular YouTubers of all time, Rubén is also a published author whose first book 'The Troll Book' was the bestselling book in Spain for 8 weeks.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ###  4\.  Smosh
 
 ![Smosh](https://images.wondershare.com/filmora/article-images/smosh.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Originally, Smosh was a channel run by sketch comedy duo Ian Andrew Hecox and Anthony Padilla. They started the Smosh YouTube channel in 2005 and since then they have grown their team to include more creators, and their content to include animation and gaming. Smosh has become much more than two funny guys on YouTube – it is a wildly successful content company.
 
@@ -101,13 +93,13 @@ Most channels that have one viral video do not go on to have sustained success o
 
 In 2017, Anthony Padilla chose to leave Smosh to focus on his own solo YouTube channel.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 5\.  Fernanfloo
 
 ![Fernanfloo](https://images.wondershare.com/filmora/article-images/fernan-floo.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Yet another enormously popular YouTuber that comes from a Spanish speaking country whose channel attracted millions of subscribers. A 24-year-old Salvadoran named Luis Fernando Flores Alvarado is the man behind one of the most subscribed YouTube channels of all time. The Fernanfloo channel was created in 2011, and in February 2014 it had only 100,000 subscribers. By August 2014, Alvarado's channel reached 1 million subscribers, making him one of YouTube's biggest success stories. The videos featured on Feranfloo channel mostly cover gaming topics, but with a touch of comedy which makes Alvarado's videos unique.
 
@@ -117,15 +109,23 @@ At the end of 2015, Alvarado launched the Fenanfloo mobile app that had 2.3 mill
 
 Looking for a live [YouTube subscriber chart](https://tools.techidaily.com/wondershare/filmora/download/)?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Edit YouTube Videos with Full-Featured Video Editing Software
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -148,14 +148,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-perfecting-your-look-essential-makeup-tips-and-product-reviews/"><u>[New] 2024 Approved Perfecting Your Look Essential Makeup Tips & Product Reviews</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/new-become-proficient-at-note-management-through-mematic/"><u>[New] Become Proficient at Note Management Through Mematic</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-everything-you-need-to-know-about-the-youtube-shorts-fund/"><u>[Updated] 2024 Approved Everything You Need to Know About the YouTube Shorts Fund</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-inhibit-surprise-youtube-recommendations/"><u>[Updated] 2024 Approved Inhibit Surprise YouTube Recommendations</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-how-to-convert-youtubes-audios-to-mp3-safely-step-by-step-guide/"><u>[Updated] How To Convert YouTube's Audios to MP3 Safely - Step-by-Step Guide</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/sequencing-the-autobots-and-decepticons-how-to-watch-every-transformers-movie-in-order/"><u>Sequencing the Autobots and Decepticons: How to Watch Every Transformers Movie in Order</u></a></li>
-<li><a href="https://fox-where.techidaily.com/soluciones-efectivas-para-restaurar-contactos-borrados-del-iphone-1314-guia-paso-a-paso/"><u>Soluciones Efectivas Para Restaurar Contactos Borrados Del iPhone 13/14 – Guía Paso a Paso</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/solving-the-windows-update-error-code-0x802n401c-on-your-windows-11-pc/"><u>Solving the 'Windows Update Error Code 0X802n401c' On Your Windows 11 PC</u></a></li>
-<li><a href="https://win11.techidaily.com/solving-the-application-was-unable-to-start-in-win1011/"><u>Solving The Application Was Unable to Start in Win10/11</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-bring-your-video-to-life-from-standard-to-hdri-excellence-for-2024/"><u>[New] Bring Your Video to Life From Standard to HDRI Excellence for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-crafting-content-for-successful-instagram-story-segments/"><u>[New] Crafting Content for Successful Instagram Story Segments</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/emystifying-the-math-of-youtube-ratio-perfection-for-2024/"><u>[New] Demystifying the Math of YouTube Ratio Perfection for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-groundbreaking-6-modern-mc-residentials/"><u>[New] Groundbreaking 6 Modern MC Residentials</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nveiling-fake-followers-trap-on-youtube-landscapes-for-2024/"><u>[New] Unveiling Fake Followers' Trap on YouTube Landscapes for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-dive-into-high-quality-audio-7-royalty-free-selections/"><u>[Updated] Dive Into High-Quality Audio 7 Royalty-Free Selections</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-present-moment-vr-equipment-review/"><u>[Updated] Present Moment VR Equipment Review</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/eliminating-directx-setup-failure-causes/"><u>Eliminating DirectX Setup Failure Causes</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-insightful-guide-to-the-top-10-low-cost-online-channels-for-photo-editing-artists/"><u>In 2024, Insightful Guide to the Top 10 Low-Cost Online Channels for Photo Editing Artists</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-taxonomy-of-video-and-film-capture-systems/"><u>In 2024, Taxonomy of Video and Film Capture Systems</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/roguelike-vs-roguelite-debates-and-history/"><u>Roguelike Vs. Roguelite Debates and History</u></a></li>
+<li><a href="https://media-tips.techidaily.com/step-by-step-guide-streaming-high-resolution-content-from-windows-11-to-your-apple-tv-series/"><u>Step-by-Step Guide: Streaming High-Resolution Content From Windows 11 to Your Apple TV Series</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/est-laptops-for-video-editing-you-should-know/"><u>The Best Laptops For Video Editing You Should Know</u></a></li>
+<li><a href="https://data-recovery.techidaily.com/unrivaled-file-resurrection-platform-expertly-engineered-for-retrieving-any-type-of-digital-information/"><u>Unrivaled File Resurrection Platform: Expertly Engineered for Retrieving Any Type of Digital Information</u></a></li>
 </ul></div>
 

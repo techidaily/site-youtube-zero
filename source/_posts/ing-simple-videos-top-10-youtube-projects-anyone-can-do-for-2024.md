@@ -1,7 +1,7 @@
 ---
 title: "\"Creating Simple Videos  Top 10 YouTube Projects Anyone Can Do for 2024\""
-date: 2025-01-28T04:48:02.017Z
-updated: 2025-02-01T06:11:25.123Z
+date: 2025-02-14T00:09:16.281Z
+updated: 2025-02-14T20:12:34.689Z
 tags:
   - ai video
   - ai youtube
@@ -46,6 +46,10 @@ They say that less is more, so let's have a look at how you can apply this princ
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Introduce Yourself
 
 Let the world know who you are and what you do. If you are planning on starting a YouTube channel, or if you’ve already been posting videos on a topic but haven’t formally introduced yourself, it’s a great idea to put some thought into an introduction video. Producing such a YouTube video will enable you to introduce yourself to your future subscribers and give them an idea as to what your channel is all about.
@@ -72,10 +76,6 @@ Everywhere around you, there are items you can review. The Apple Watch and the l
 
 Review videos can also be a source of revenue because a lot of companies sponsor YouTubers who review their products.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 5\. Your Favorite Songs / Movies / Etc
 
 Are you a Tarantino fan? Why not? When you are struggling to find inspiration for your videos, just think about the things you like. Your subscribers are interested in you, so they’ll be interested in knowing about your favorite movies or music albums. Books, movies, and music are an inexhaustible source of fresh ideas because there is always a new song or a film you can talk about in your video.
@@ -83,7 +83,7 @@ Are you a Tarantino fan? Why not? When you are struggling to find inspiration fo
 You can do a ‘my 5 favorite songs’ type of video, or talk in detail about just one favorite.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 6\. What’s on Your Phone?
@@ -91,10 +91,6 @@ You can do a ‘my 5 favorite songs’ type of video, or talk in detail about ju
 There were over two billion smartphone users worldwide in 2017, and this number is only going to continue rising in the next couple of years. Furthermore, thousands of YouTubers are already producing unimaginable amounts of videos about the latest apps or smartphone devices.
 
 Finding a way to talk about the apps you like to use the most can be a good idea if you want to attract more visitors to your YouTube channel. However, you need to be clear about whether this is a lifestyle or vlog-style video covering a topic that usually exists in the tech genre, or if you are a tech YouTuber, so as not to confuse your audience (you don’t want people to start expecting app reviews if that’s not what you usually do).
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 7\. Make a Slideshow
 
@@ -108,6 +104,10 @@ Education is our only hope for a better world so if you know how to do something
 
 YouTube channels that feature tutorials often have millions of followers, because YouTube is a popular place to go when you need information.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 9\. 10 Things About You
 
 Being open is important, so why not share 10 things about yourself you think your audience would find interesting or which you think are important for people to know. The top 10 things structure is often used in YouTube videos because it provides a clear rhythm to a video clip, and it enables you to gradually increase the tension as the video progresses.
@@ -115,7 +115,7 @@ Being open is important, so why not share 10 things about yourself you think you
 These types of videos tend to create a better relationship with your audience because they make the viewer feel as if they know the person on the screen.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 10\. Video Rant
@@ -126,15 +126,15 @@ Don't try to fake a rant, because they only work if they are natural. Scripting 
 
 Do you have any [easy video ideas for other creators](https://tools.techidaily.com/wondershare/filmora/download/) to try?
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Start Editing Videos with Beginner-friendly Software
 
 If you start your YouTube channel but have no video editing experience, Wondershare Filmora will definitely help you get over the problems. Download Filmora now!
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -159,24 +159,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-a-filmmakers-dream-the-8-best-no-fee-video-editors-on-the-market/"><u>[New] 2024 Approved A Filmmaker's Dream The 8 Best No-Fee Video Editors on the Market</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-how-to-compose-captivating-youtube-intros-for-free/"><u>[New] 2024 Approved How To Compose Captivating YouTube Intros for FREE</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ombining-youtube-and-imovie-for-professional-results/"><u>[New] Combining YouTube and iMovie for Professional Results</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/n-2024-from-dull-to-delightful-how-to-craft-standout-youtube-thumbnails/"><u>[New] In 2024, From Dull to Delightful How To Craft Standout YouTube Thumbnails</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/rofessional-level-editing-at-zero-price-8-exceptional-software-picks/"><u>[New] Professional-Level Editing at Zero Price 8 Exceptional Software Picks</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-all-you-need-to-know-about-youtube-shorts-fund/"><u>[Updated] 2024 Approved All You Need to Know About YouTube Shorts Fund</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-melody-migration-transitioning-playlists-across-platforms/"><u>[Updated] 2024 Approved Melody Migration Transitioning Playlists Across Platforms</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-the-elite-club-of-youtubes-favorite-shorter-videos/"><u>[Updated] In 2024, The Elite Club of YouTube's Favorite Shorter Videos</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-harvest-haven-top-10-sims-like-stardew-valley/"><u>2024 Approved Harvest Haven Top 10 Sims Like Stardew Valley</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/first-footsteps-into-frame-finesse-a-novices-guide-to-hd-content/"><u>First Footsteps Into Frame Finesse A Novice's Guide to HD Content</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-find-ispoofer-pro-activation-key-on-poco-m6-pro-5g-drfone-by-drfone-virtual-android/"><u>How to Find iSpoofer Pro Activation Key On Poco M6 Pro 5G? | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-remove-mdm-from-iphone-15-pro-max-without-a-computer-by-drfone-ios-unlock-ios-unlock/"><u>How to Remove MDM from iPhone 15 Pro Max without a computer?</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/in-2024-watch-this-top-music-reaction-videos-of-2023/"><u>In 2024, Watch This! Top Music Reaction Videos of 2023</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ize-your-content-interaction/"><u>Maximize Your Content Interaction</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/211385764-9781647554446-monsters-of-the-northeast/"><u>Monsters of the Northeast | Free Book</u></a></li>
-<li><a href="https://win11.techidaily.com/regaining-control-reinstate-disabled-features-with-win11-fixes/"><u>Regaining Control: Reinstate Disabled Features with Win11 Fixes</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/roku-tv-mastery-controlling-without-a-physical-remote-techniques-and-tricks/"><u>Roku TV Mastery: Controlling Without a Physical Remote - Techniques and Tricks</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/rt-of-warmth-in-winter-top-5-video-backdrop-choices/"><u>The Art of Warmth in Winter Top 5 Video Backdrop Choices</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ltimate-inspirational-recruiter-playlist/"><u>The Ultimate Inspirational Recruiter Playlist</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-how-to-make-your-facebook-video-stand-out/"><u>[New] 2024 Approved How to Make Your Facebook Video Stand Out</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-the-ultimate-plan-for-streaming-google-meet-on-youtube/"><u>[New] 2024 Approved The Ultimate Plan for Streaming Google Meet on YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-the-ultimate-resource-for-youtube-studio-edition-crafting/"><u>[New] 2024 Approved The Ultimate Resource for YouTube Studio Edition Crafting</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-ultimate-tutorial-looping-techniques-for-maximum-watcher-satisfaction/"><u>[New] 2024 Approved Ultimate Tutorial Looping Techniques for Maximum Watcher Satisfaction</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-gopro-hero5-black-vs-hero5-standard/"><u>[New] GoPro Hero5 Black vs Hero5 Standard</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-implementing-instagram-story-opinion-polls-effectively/"><u>[Updated] 2024 Approved Implementing Instagram Story Opinion Polls Effectively</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-live-gaming-shows-set-up-with-obs/"><u>2024 Approved Live Gaming Shows Set Up with OBS</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/delving-into-instagrams-videography-restriction/"><u>Delving Into Instagram's Videography Restriction</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-xiaomi-redmi-k70-prowithwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Xiaomi Redmi K70 Prowith/without a PC</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-adding-subtitles-a-step-by-step-youtube-video-approach/"><u>In 2024, Adding Subtitles A Step-by-Step YouTube Video Approach</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-beauty-brilliance-masterclasses-and-product-explorations/"><u>In 2024, Beauty Brilliance Masterclasses and Product Explorations</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-bypassing-blackouts-with-video-tips/"><u>In 2024, Bypassing Blackouts with Video Tips</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-creating-impactful-youtube-conclusion/"><u>In 2024, Creating Impactful YouTube Conclusion</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-discovering-clarity-in-your-craft-our-choice-of-top-12-vlogging-cameras/"><u>In 2024, Discovering Clarity in Your Craft Our Choice of Top 12 Vlogging Cameras</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-reboot-and-revive-how-to-reset-final-cut-pro-x-for-smooth-video-editing/"><u>New Reboot and Revive How to Reset Final Cut Pro X for Smooth Video Editing</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/setting-up-your-own-ev-charging-station-essential-information-for-beginners/"><u>Setting Up Your Own EV Charging Station: Essential Information for Beginners</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/top-10-free-melodies-for-deep-meditation-and-inner-peace/"><u>Top 10 Free Melodies for Deep Meditation and Inner Peace</u></a></li>
 </ul></div>
 

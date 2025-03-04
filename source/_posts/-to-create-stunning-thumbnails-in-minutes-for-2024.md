@@ -1,7 +1,7 @@
 ---
 title: "Learn to Create Stunning Thumbnails in Minutes for 2024"
-date: 2024-08-23T08:19:56.038Z
-updated: 2024-08-24T08:19:56.038Z
+date: 2025-02-10T09:48:56.485Z
+updated: 2025-02-14T20:50:36.910Z
 tags:
   - ai video
   - ai youtube
@@ -35,6 +35,10 @@ Youtube is one of the widely and most used video-sharing platforms all around th
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to make a thumbnail for Youtube using AI Portrait
 
 With time, Filmora brings new and advanced features for its users to equip them with all the necessary tools required for effective and efficient video editing. One of its latest features is AI Portrait. This feature has several uses and benefits. This feature is designed for Gamers, Vlogger, and other related genres to help them make their videos stand out from the crowd and gain more clicks and views. AI Portrait contains several effects that help you make the human element of the video separate from the background and make it more obvious. We can also use the AI Portrait effects to make beautiful and attractive thumbnails for your Youtube. Follow these steps to create a stunning thumbnail for your Youtube videos.
@@ -46,6 +50,10 @@ With time, Filmora brings new and advanced features for its users to equip them 
 **Step 02:** Make sure that the aspect ratio of your project is 16:9\. To do that, click on a screen-shaped icon below the preview screen and select "Change Project Aspect Ratio."
 
 ![ai-portrait-thumbnail-step2](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step2.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 03:** Change the Aspect Ratio to 16:9 if it is not set to it already. 16:9 aspect ratio is the standard size of Youtube thumbnails that represents the best possible results.
 
@@ -71,13 +79,25 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step8](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step8.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 09:** To make a thumbnail for your Youtube, we have to remove the background of your footage first. To do that we have to apply Human Segmentation to the footage first. It will separate the human from the footage. Drag and drop the Human Segmentation effect into the footage in the timeline. Once you drop it into the footage, it will ask you to purchase this feature to export the footage. Since we are not trying to export the footage, we are only creating a thumbnail, click on "Try It". Once the background is removed, you can add other effects as well. Drag and drop the "Human Border" into the footage. It creates an outline around the human in your footage.
 
 ![ai-portrait-thumbnail-step9](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step9.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 10:** The effect will be applied to the footage. Now the background has been removed from the footage and ready to be used on your custom background. You can adjust the human accordingly where it looks perfect.
 
 ![ai-portrait-thumbnail-step10](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step10.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 11:** Now it is time to add a title into your thumbnail to highlight what the video is all about. Go to the Titles, and select lower thirds. You can also select any of the titles types which best suits your needs. Drop the title into the timeline above the footage and adjust it accordingly. Now double click on the header to edit and rename it.
 
@@ -103,14 +123,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -119,12 +136,21 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-free-editing-powerhouses-top-9-simplified-video-tools/"><u>[New] 2024 Approved Free Editing Powerhouses Top 9 Simplified Video Tools</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/inding-the-perfect-pair-matching-mics-with-every-type-of-youtubers-style/"><u>[New] Finding the Perfect Pair Matching Mics with Every Type of YouTuber's Style</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/iggles-in-the-garage-ingenious-funny-video-concepts-for-youtubers-for-2024/"><u>[New] Giggles in the Garage Ingenious Funny Video Concepts for YouTubers for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-darkened-snapshots-skilled-dos-and-donts-of-low-light-photos/"><u>[New] In 2024, Darkened Snapshots Skilled Do's & Don'ts of Low Light Photos</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-playlist-power-instagrams-musical-edge/"><u>[New] In 2024, Playlist Power Instagram's Musical Edge</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-comprehending-drone-systems-mechanics-and-applications-explained/"><u>[Updated] Comprehending Drone Systems Mechanics and Applications Explained</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-converting-youtube-to-gif-a-comprehensive-online-process-for-2024/"><u>[Updated] Converting YouTube to GIF A Comprehensive Online Process for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-instagrams-audio-alteration-the-ultimate-guide/"><u>2024 Approved Instagram's Audio Alteration The Ultimate Guide</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-stellar-channels-best-10-apps-for-artistic-banner-design-for-2024/"><u>Craft Stellar Channels Best 10 Apps for Artistic Banner Design for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/evasion-techniques-in-online-impersonation-scams/"><u>Evasion Techniques in Online Impersonation Scams</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-prime-asmr-channels-for-auditory-delight/"><u>In 2024, Prime ASMR Channels for Auditory Delight</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/the-secret-sauce-of-profitable-fb-ads-with-dynamic-animation/"><u>The Secret Sauce of Profitable FB Ads with Dynamic Animation</u></a></li>
+<li><a href="https://tools.techidaily.com/ultrafxvps/products/"><u>Ultrafxvps's Products</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-the-best-of-the-best-highlight-video-creation-tools-compared-for-2024/"><u>Updated The Best of the Best Highlight Video Creation Tools Compared for 2024</u></a></li>
+</ul></div>
 
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->

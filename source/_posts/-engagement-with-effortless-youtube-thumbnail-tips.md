@@ -1,7 +1,7 @@
 ---
 title: "Boost Engagement with Effortless Youtube Thumbnail Tips"
-date: 2024-08-23T08:19:35.169Z
-updated: 2024-08-24T08:19:35.169Z
+date: 2025-02-08T08:48:04.938Z
+updated: 2025-02-14T17:04:35.102Z
 tags:
   - ai video
   - ai youtube
@@ -63,17 +63,33 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step6](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step6.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 07:** Select your footage, go to the Effects tab and click on AI Portraits. It will open up all the effects related to AI Portraits. These AI Portrait features help you separate the human from a background without using a green screen or anything else.
 
 ![ai-portrait-thumbnail-step7](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step11.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 08:** Double click on any of these effects to see how they will look like on your footage.
 
 ![ai-portrait-thumbnail-step8](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step8.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 09:** To make a thumbnail for your Youtube, we have to remove the background of your footage first. To do that we have to apply Human Segmentation to the footage first. It will separate the human from the footage. Drag and drop the Human Segmentation effect into the footage in the timeline. Once you drop it into the footage, it will ask you to purchase this feature to export the footage. Since we are not trying to export the footage, we are only creating a thumbnail, click on "Try It". Once the background is removed, you can add other effects as well. Drag and drop the "Human Border" into the footage. It creates an outline around the human in your footage.
 
 ![ai-portrait-thumbnail-step9](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step9.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 10:** The effect will be applied to the footage. Now the background has been removed from the footage and ready to be used on your custom background. You can adjust the human accordingly where it looks perfect.
 
@@ -95,6 +111,10 @@ This article on making a thumbnail for your Youtube is just an idea for you, and
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -103,14 +123,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -119,12 +136,22 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-precision-in-sound-cutting-out-unwanted-volume/"><u>[New] 2024 Approved Precision in Sound Cutting Out Unwanted Volume</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-reviving-retro-film-techniques-detailed-instructions/"><u>[New] 2024 Approved Reviving Retro Film Techniques Detailed Instructions</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-unlock-your-online-potential-with-these-top-tips-on-free-youtube-transcripts/"><u>[New] 2024 Approved Unlock Your Online Potential with These Top Tips on FREE YouTube Transcripts</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-yearly-roundup-premium-skype-recorder-options/"><u>[New] 2024 Approved Yearly Roundup Premium Skype Recorder Options</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/tylish-profiles-easy-downloads/"><u>[New] Stylish Profiles, Easy Downloads</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-constructive-approaches-to-defeating-digital-trolls-for-2024/"><u>[Updated] Constructive Approaches to Defeating Digital Trolls for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-essential-skills-for-youtube-gamers/"><u>[Updated] Essential Skills for YouTube Gamers</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/30plus-trending-youtube-shorts-hashtags-to-make-videos-go-viral/"><u>30+ Trending YouTube Shorts Hashtags to Make Videos Go Viral</u></a></li>
+<li><a href="https://blog-min.techidaily.com/best-3-software-to-transfer-files-tofrom-your-tecno-spark-20-pro-via-a-usb-cable-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Best 3 Software to Transfer Files to/from Your Tecno Spark 20 Pro via a USB Cable | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ing-youtube-engagement-top-11-seo-strategies-revealed-for-2024/"><u>Boosting YouTube Engagement Top 11 SEO Strategies Revealed for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-stop-life360-from-tracking-you-on-oppo-reno-10-proplus-5g-drfone-by-drfone-virtual-android/"><u>How to Stop Life360 from Tracking You On Oppo Reno 10 Pro+ 5G? | Dr.fone</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-pinnacle-goggles-ranking-best-5-for-drone-flyers/"><u>In 2024, Pinnacle Goggles Ranking Best 5 for Drone Flyers</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/soaring-past-competitors-mastering-drone-racing-and-best-fpv-drones/"><u>Soaring Past Competitors Mastering Drone Racing and Best FPV Drones</u></a></li>
+<li><a href="https://discover-answers.techidaily.com/step-by-step-tutorial-on-moving-data-to-and-from-a-samsung-t980-pro-nvme-drive/"><u>Step-by-Step Tutorial on Moving Data to and From a Samsung T980 Pro NVMe Drive</u></a></li>
+<li><a href="https://fox-http.techidaily.com/tag-and-showcase-a-podcast-episode/"><u>Tag and Showcase a Podcast Episode</u></a></li>
+</ul></div>
 
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->

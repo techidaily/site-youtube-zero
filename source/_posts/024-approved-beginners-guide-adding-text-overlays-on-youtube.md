@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Beginner's Guide  Adding Text Overlays on YouTube\""
-date: 2024-08-23T08:25:58.496Z
-updated: 2024-08-24T08:25:58.496Z
+date: 2025-02-14T08:54:59.478Z
+updated: 2025-02-14T16:39:33.988Z
 tags:
   - ai video
   - ai youtube
@@ -28,17 +28,29 @@ By captioning your YouTube videos you help to make them accessible to more poten
 
 This article will first explain how you can turn on subtitles for the videos you watch and then walk you through adding captions to your own videos.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How To Turn On Captions on YouTube
 
 In order for you to be able to view subtitles for a YouTube video the uploader of the video will need to have added them, unless you change your account settings to display automatic captions.
 
 ![captions](https://images.wondershare.com/filmora/article-images/captions-how-to-turn-on.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 To toggle subtitles on and off click on the Closed Captioning icon in the bottom right of your video player.
 
 If the creator of the video has not added captions then you can enable automatic captions by going into your **Account Settings** and selecting **Playback**. Check the box next to **Always Show Captions**, and then check   **Show Automatic Captions by Speech Recognition**. These captions may be flawed, but you will still be able to see the more accurate user submitted captions on videos that have them. The **Always Show Captions** feature may be useful not only to the hearing impaired, but to users who do not speak the same language as the video producer.
 
 If you want to change the language of the subtitles click on the settings icon (the one that looks like a gear) next to the closed captioning icon and choose your language next to   **Subtitles/CC** . If the language you want is not there select **Auto-Translate**  and then pick a language. Google Translate will be used to generate subtitles in your chosen language.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Adding YouTube Captions in 4 Steps
 
@@ -64,20 +76,21 @@ The easiest way to add subtitles to your videos is to use **Automatic Captioning
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -86,12 +99,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-channel-success-across-social-networks-youtube-plus-more/"><u>[New] 2024 Approved Channel Success Across Social Networks YouTube + More</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-find-the-perfect-free-video-editor-app-for-iphones-and-ipads/"><u>[New] 2024 Approved Find the Perfect Free Video Editor App for iPhones & iPads</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-how-to-safely-capture-your-favorite-youtube-audio-for-free/"><u>[New] 2024 Approved How to Safely Capture Your Favorite YouTube Audio for Free</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-navigating-the-short-form-space-youtubes-bite-vs-tiktok-written-by-a-marketing-analyst-with-expertise-in-social-media-trends-and-platforms/"><u>[New] 2024 Approved Navigating the Short-Form Space YouTube's Bite Vs. TikTok' Written by a Marketing Analyst with Expertise in Social Media Trends and Platforms.</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-protecting-content-rights-in-youtube-to-mp4-transfers/"><u>[New] 2024 Approved Protecting Content Rights in Youtube-to-MP4 Transfers</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-converting-iphones-solo-vids-into-duos/"><u>[New] Converting iPhones' Solo Vids Into Duos</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-surging-social-media-accelerating-instagram-interactions-for-2024/"><u>[Updated] Surging Social Media Accelerating Instagram Interactions for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/1-i-found-liquid-in-my-iphones-charging-port-what-are-my-next-steps-insights/"><u>1. 'I Found Liquid in My iPhone's Charging Port: What Are My Next Steps?' - Insights</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-traffic-elevate-rankings-essential-youtube-seo/"><u>Boost Traffic, Elevate Rankings - Essential YouTube SEO</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/lock-your-honor-magic-6-lite-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>Lock Your Honor Magic 6 Lite Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/novel-strategies-for-captivating-fb-video-marketing-for-2024/"><u>Novel Strategies for Captivating FB Video Marketing for 2024</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/rebuilding-ravaged-reels-by-leveraging-samples/"><u>Rebuilding Ravaged Reels: By Leveraging Samples</u></a></li>
+<li><a href="https://some-tips.techidaily.com/the-future-is-now-red-hats-artificial-intelligence-strategy-to-simplify-sysadmin-tasks/"><u>The Future Is Now: Red Hat's Artificial Intelligence Strategy to Simplify Sysadmin Tasks</u></a></li>
+</ul></div>
 
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
-<!-- affiliate ads end -->

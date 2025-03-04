@@ -1,7 +1,7 @@
 ---
 title: "\"7 Top-Rated Free Mobile Apps for Video Downloads for 2024\""
-date: 2024-08-23T08:21:39.500Z
-updated: 2024-08-24T08:21:39.500Z
+date: 2025-02-09T16:57:25.260Z
+updated: 2025-02-15T08:57:06.118Z
 tags:
   - ai video
   - ai youtube
@@ -69,9 +69,17 @@ For macOS 10.14 or later
 
 ![start filmora screen recording](https://images.wondershare.com/filmora/article-images/2023/select-screen-recorder-on-filmora.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 2:** You can now save the recorded YouTube playlist in different format diretly, or you can drag-and-drop the downloaded file to the timeline to get rid of the slicence part of the video by using the '[Slience Detection](https://tools.techidaily.com/wondershare/filmora/download/)' function.
 
 ![export downloaded youtube playlist](https://images.wondershare.com/filmora/article-images/2023/export-downloaded-youtube-playlist.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Want to Edit Videos with Ease and Share Them on YouTube Directly? Try This Out!
 
@@ -89,23 +97,18 @@ Want to Edit Videos with Ease and Share Them on YouTube Directly? Try This Out!
 
 ![youtube playlist downloader - Ddownr](https://images.wondershare.com/filmora/article-images/1-youtube-playlist-downloader.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 Once finished, it will present your download to you so you can easily save it to your device. The best part is that since Ddownr is online, you don't need to worry about downloading an application for a specific operating system. Simply visit the website, put in the link to your favorite video or playlist, and let the download commence.
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 3\. 4K Video Downloader (Windows, macOS, Linux)
 
 [4K Video Downloader](https://www.4kdownload.com/products/product-videodownloader) is an application for Windows, macOS, and Linux that allows you to download entire videos and playlists to watch or listen to later offline. This isn't just for audio, either – you can download entire videos in any quality, all the way up to 4k.
 
 ![youtube playlist downloader - 4k video downloader](https://images.wondershare.com/filmora/article-images/2-youtube-playlist-downloader.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
-<!-- affiliate ads end -->
 Want to enjoy that awesome video you were checking out without sacrificing the quality? 4K Video Downloader is going to be one of the best options to choose if video quality matters to you. What's best is that you can download your favorite videos and playlists on your computer and then move them over to your phone to enjoy on the go, if you'd like.
 
 YouTube Video Downloader & Editor
@@ -122,27 +125,12 @@ YouTube Video Downloader & Editor
 
 [YouTube Playlist Download](https://tools.techidaily.com/wondershare/filmora/download/) [YouTube Playlist Download](https://tools.techidaily.com/wondershare/filmora/download/) [YouTube Playlist Download](https://tools.techidaily.com/wondershare/filmora/download/) [Learn More >](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 4\. Loader.to (Web)
 
 [Loader.to](https://loader.to/) really couldn't make it any easier to get the video or playlist you would like to download in almost any format you can think of, without even worrying about downloading yet another software application. Like Ddownr, Loader.to is completely based online, so you can access it from anywhere you'd like, on any device.
 
 ![youtube playlist downloader - loader.to](https://images.wondershare.com/filmora/article-images/3-youtube-playlist-downloader.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 When you reach the homepage, you will be greeted with a menu allowing you to choose your format for audio and video and the URL to the video or playlist you would like to download. That is it – it couldn't be simpler. For folks looking for a quick and easy-to-use way to download a YouTube playlist online, this is one of the best places to start.
 
 ### 5\. By Click Downloader (Windows)
@@ -151,6 +139,10 @@ When you reach the homepage, you will be greeted with a menu allowing you to cho
 
 ![youtube playlist downloader - by click downloader](https://images.wondershare.com/filmora/article-images/4-youtube-playlist-downloader.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The software is completely free to use but limited to being available on only one platform. If you are coming from macOS, Linux, or a smartphone OS, you will need to look elsewhere. For Windows users, however, By Click Downloader is a solid YouTube playlist downloader that anyone can use and understand.
 
 ### 6\. Snapdownloader (Windows)
@@ -158,6 +150,10 @@ The software is completely free to use but limited to being available on only on
 [Snapdownloader](https://snapdownloader.com/) is another downloader software application that is only for Windows, which could limit some users. However, for the Windows-faithful out there, you have a great option to grab your favorite videos and playlists from YouTube for later viewing and listening. It supports more than just YouTube downloads, too – you can grab videos from Facebook and other sites in many different qualities, all the way up to 8k.
 
 ![youtube playlist downloader -snapdownloader](https://images.wondershare.com/filmora/article-images/5-youtube-playlist-downloader.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 To make things even easier for you, the application has a built-in video editor of sorts that allows you to trim your videos as you see fit, so if you need to make them a little smaller for simpler storage on low-capacity hard drives, this might be the best option for you to grab those YouTube playlists you love.
 
@@ -169,9 +165,6 @@ Try Filmora to Download YouTube Playlists & Videos and Edit for Free!
 
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg) ](https://app.adjust.com/w06dr6m%5F19za1f6)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ### 7\. iTubeGo (Windows, macOS, Android)
@@ -180,14 +173,8 @@ Try Filmora to Download YouTube Playlists & Videos and Edit for Free!
 
 ![youtube playlist downloader -itubego](https://images.wondershare.com/filmora/article-images/7-youtube-playlist-downloader.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Not only can you download your favorite videos and playlists, but you can also convert them into your favorite audio formats for simple listening at any time you'd like.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### 8\. Videoder (Windows, Android)
 
 [Videoder](https://www.videoder.com/) supports Windows and Android and is capable of downloading any of your favorite YouTube videos and playlists quickly and easily. The app sets itself apart with its own built-in web browser and ad blocker, so you can enjoy those videos with fewer annoying commercials.
@@ -212,9 +199,6 @@ When you want to scoop up those HD videos to watch later on, you want to make su
 
 This application is available for users of macOS.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 11\. YouTubePlaylist.cc (Web)
 
 [YouTubePlaylist.cc](https://youtubeplaylist.cc/) is one of the top destinations on the internet to download YouTube playlists and convert them directly into your favorite audio format before adding it to your phone or computer. This is a web-based platform, so you can be sure that you can easily download all of your favorite playlists without having to download a specialized application for the occasion.
@@ -222,8 +206,9 @@ This application is available for users of macOS.
 ![youtube playlist downloader - YouTubePlaylist.cc](https://images.wondershare.com/filmora/article-images/10-youtube-playlist-downloader.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Bonus Tip: The Best YouTube Video Editor - Wondershare Filmora
 
 Filmora is a great software application by Wondershare that allows you to [**edit your YouTube videos**](https://tools.techidaily.com/wondershare/filmora/download/) with absolute ease. You don't even need to be a video editing pro to get started because with Filmora's expert documentation and simple onboarding, anyone can pick it up and start editing videos as soon as they would like.
@@ -236,9 +221,6 @@ For Win 7 or later (64-bit)
 
 ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 [Create YouTube Video with AI](https://tools.techidaily.com/wondershare/filmora/download/)
 
 For macOS 10.14 or later
@@ -246,14 +228,15 @@ For macOS 10.14 or later
 ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
 
 <!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg) ](https://app.adjust.com/w06dr6m%5F19za1f6)
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Filmora own some new features to make video editing easier for you. Let's have a look at the new features.
@@ -266,8 +249,9 @@ Filmora own some new features to make video editing easier for you. Let's have a
 Anyone with a Windows or macOS computer can get started using Filmora right now to edit their YouTube videos to their liking and start racking up the views.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Which YouTube Playlist Downloader Will You Pick?
 
 Now that you know some of the very best YouTube playlist downloader applications around, you are all set to begin downloading your favorite videos and playlists so you can watch or listen to them at any point you would like when you are offline or on the go.
@@ -286,6 +270,10 @@ For macOS 10.14 or later
 
 ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg) ](https://app.adjust.com/w06dr6m%5F19za1f6)
 
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -298,14 +286,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -314,8 +299,26 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-add-fun-to-youtube-comments-a-quick-guide-to-emojis/"><u>[New] 2024 Approved Add Fun to YouTube Comments A Quick Guide to Emojis</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-macs-premier-selection-of-mp4-cutter-software/"><u>[New] 2024 Approved Mac's Premier Selection of MP4 Cutter Software</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-avoidance-techniques-for-oculus-motion-sickness-for-2024/"><u>[New] Avoidance Techniques for Oculus Motion Sickness for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/xpert-advice-on-selecting-the-best-lenses-for-filmmaking-for-2024/"><u>[New] Expert Advice on Selecting The Best Lenses For Filmmaking for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-frosted-feats-beijings-ice-showdown-highlights-for-2024/"><u>[New] Frosted Feats Beijing's Ice Showdown Highlights for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/tarting-your-channel-right-top-tier-tech-list/"><u>[New] Starting Your Channel Right Top-Tier Tech List</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-quick-tips-for-easy-youtube-thumbnail-acquisition-zero-price/"><u>[Updated] 2024 Approved Quick Tips for Easy YouTube Thumbnail Acquisition – Zero Price!</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-step-by-step-editing-and-enhancing-your-youtube-content/"><u>[Updated] 2024 Approved Step-by-Step Editing and Enhancing Your YouTube Content</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-extensive-examination-of-vsco-image-tools/"><u>[Updated] Extensive Examination of VSCO Image Tools</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-how-to-instantly-design-custom-coverage-for-your-short-videos/"><u>[Updated] In 2024, How To Instantly Design Custom Coverage For Your Short Videos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-streamlining-content-delivery-the-definitive-youtube-video-upload-guide/"><u>[Updated] In 2024, Streamlining Content Delivery The Definitive YouTube Video Upload Guide</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/chart-your-course-in-crypto-selecting-the-best-7-art-converters-for-2024/"><u>Chart Your Course in Crypto - Selecting the Best 7 Art Converters for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/crafting-an-affordable-high-performance-starfield-rig-below-1200-a-step-by-step-guide/"><u>Crafting an Affordable High-Performance Starfield Rig Below $1,200 - A Step-by-Step Guide</u></a></li>
+<li><a href="https://some-tips.techidaily.com/decoding-programming-languages-popularity-fluctuations-since-2016-lessons-and-predictions-codedigest/"><u>Decoding Programming Languages' Popularity Fluctuations Since 2016 - Lessons and Predictions | CodeDigest</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-get-creative-with-these-10-free-green-screen-apps-for-android-and-ios/"><u>In 2024, Get Creative with These 10 Free Green Screen Apps for Android and iOS</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-humor-hits-the-best-funny-youtube-short-ideas-on-the-block/"><u>In 2024, Humor Hits The Best Funny YouTube Short Ideas on the Block</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-prime-list-best-free-video-transcript-harvesters/"><u>In 2024, Prime List Best Free Video Transcript Harvesters</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/izing-engagement-10-tips-for-stellar-yt-shorts-content/"><u>Maximizing Engagement 10 Tips for Stellar YT Shorts Content</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/the-ultimate-guide-to-fixing-non-detectable-wi-fi-in-win11/"><u>The Ultimate Guide to Fixing Non-Detectable Wi-Fi in Win11</u></a></li>
+</ul></div>
 

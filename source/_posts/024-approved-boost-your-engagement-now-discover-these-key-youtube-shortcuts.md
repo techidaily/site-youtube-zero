@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Boost Your Engagement Now! - Discover These Key YouTube Shortcuts\""
-date: 2024-08-28T12:54:04.386Z
-updated: 2024-08-29T12:54:04.386Z
+date: 2025-02-09T21:15:43.007Z
+updated: 2025-02-14T21:56:44.551Z
 tags:
   - ai video
   - ai youtube
@@ -28,6 +28,10 @@ YouTube, as one of the most popular free streaming video portals, the majority o
 
 With that said, the following two-columned tables give you detailed information on the shortcut keys and their respective functions, so you don’t have to grab the mouse every time you want to navigate through the YouTube videos, or do any such similar tasks.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Amazing YouTube Keyboard Shortcuts You May Not Know
 
 To make things convenient for you, the shortcut keys are placed under their corresponding categories, where each category is in the form of a two-columned table.
@@ -40,6 +44,10 @@ While watching a YouTube video, there might be instances when you want to pause 
 | ----------------- | -------------------------------------- |
 | 'K'               | Play and Pause (Works as a toggle key) |
 | 'Spacebar'        | Play and Pause (Works as a toggle key) |
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Category 2: Scrolling YouTube Videos Back and Forth
 
@@ -60,9 +68,6 @@ If you’re watching videos on YouTube mobile app, you can use double-tap on the
 
 Long press the Video Player and swipe right will navigate the video forward; and long press the video player and wwipe left will navigate the video backward.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
-<!-- affiliate ads end -->
 ### Category 3: Manage Playback Speed
 
 This category contains information on increasing or decreasing the playback speed of a YouTube video:
@@ -73,8 +78,9 @@ This category contains information on increasing or decreasing the playback spee
 | 'SHIFT' + ',' (Comma)  | Decrease playback speed |
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Category 4: Managing the Captions
 
 This category talks about managing the video captions using the shortcut keys:
@@ -87,9 +93,6 @@ This category talks about managing the video captions using the shortcut keys:
 | '-' (Minus Key)    | Reduce the font size of the captions (Minus key on the Numpad isn't supported)                                       |
 | '+' (Plus Key)     | Increase the font size of the captions (Plus key on the Numpad isn't supported)                                      |
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Category 5: Managing the Audio Video
 
 This category shows the shortcut keys to manage audio for a YouTube video:
@@ -100,9 +103,6 @@ This category shows the shortcut keys to manage audio for a YouTube video:
 | '↑'               | Increase volume by 5% |
 | '↓'               | Decrease volume by 5% |
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Category 6: Switching Between Screen Modes
 
 The shortcut keys given in this table enable you to switch between different screen modes:
@@ -130,9 +130,9 @@ In this category, the navigation and management of shortcut keys for 360o and Vi
 | '+' (Plus Key on Keyboard)  | Increase font size                                    |
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Bonus: How to Get the YouTube Shortcut List with One-Click
 
 In this section, you will learn how to pull up the list of important YouTube shortcuts by pressing merely one key:
@@ -153,25 +153,23 @@ As one of the most popular video editing software among YouTubers, Filmora provi
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -180,8 +178,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-comic-corner-best-funny-content-on-the-planet-web/"><u>[New] 2024 Approved Comic Corner Best Funny Content on the Planet Web</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-elevate-your-yt-marketing-essential-tips-for-higher-rankings/"><u>[New] 2024 Approved Elevate Your YT Marketing Essential Tips for Higher Rankings</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-elevate-youtube-presence-ideal-release-windows/"><u>[New] 2024 Approved Elevate Youtube Presence Ideal Release Windows</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-embark-on-a-wanderlust-adventure-becoming-a-professional-travel-vlogger/"><u>[New] 2024 Approved Embark on a Wanderlust Adventure Becoming A Professional Travel Vlogger</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-expert-guide-to-creating-compact-engaging-youtube-content/"><u>[New] 2024 Approved Expert Guide to Creating Compact, Engaging YouTube Content</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-from-zero-to-youtube-pros-creating-an-account-rightly/"><u>[New] 2024 Approved From Zero to YouTube Pros Creating an Account Rightly</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-make-a-lasting-impression-youtubes-anime-style-subscribe-buttons-in-filmora/"><u>[New] 2024 Approved Make a Lasting Impression - YouTube's Anime-Style Subscribe Buttons in Filmora</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-making-compelling-media-previews-for-channels/"><u>[New] 2024 Approved Making Compelling Media Previews for Channels</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-paving-the-way-to-success-with-professional-insights-into-youtube-banners/"><u>[New] 2024 Approved Paving the Way to Success with Professional Insights Into YouTube Banners</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-advanced-strategies-for-capturing-fb-chats/"><u>[Updated] In 2024, Advanced Strategies for Capturing FB Chats</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-the-ultimate-mac-os-guide-for-screen-casting/"><u>[Updated] In 2024, The Ultimate Mac OS Guide for Screen Casting</u></a></li>
+<li><a href="https://blog-min.techidaily.com/1725287913026-winxvideo-ai-ai/"><u>無料で達成！Winxvideo AI - 最強高画質化AIソフトでプロ並みの美しい写真に。</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/excellence-in-action-recording-tech-for-2024/"><u>Excellence in Action Recording Tech for 2024</u></a></li>
+<li><a href="https://techidaily.com/lecart-essentiel-entre-reconnaissance-optique-de-caracteres-ocr-et-identification-par-projection-idp-quelles-sont-les-differences/"><u>L'Écart Essentiel Entre Reconnaissance Optique De Caractères (OCR) Et Identification Par Projection (IDP): Quelles Sont Les Différences ?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learn-catalan-quickly-just-minutes-a-day/"><u>Learn Catalan Quickly, Just Minutes a Day!</u></a></li>
+<li><a href="https://win-blog.techidaily.com/1722987181997-mortal-kombat-11-no-more-crashes-speedy-and-straightforward-fix-guide/"><u>Mortal Kombat 11 No More Crashes: Speedy & Straightforward Fix Guide</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/obile-marketers-blueprint-simple-pathway-to-youtube-success-for-2024/"><u>The Mobile Marketer's Blueprint Simple Pathway to YouTube Success for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/unstuck-with-your-corsair-keyboard-effective-solutions-for-restoration/"><u>Unstuck with Your Corsair Keyboard - Effective Solutions for Restoration</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/be-shorts-earning-blueprint/"><u>Youtube Shorts Earning Blueprint</u></a></li>
+</ul></div>
 

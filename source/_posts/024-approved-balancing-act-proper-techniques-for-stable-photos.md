@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Balancing Act  Proper Techniques for Stable Photos\""
-date: 2024-08-23T08:24:55.128Z
-updated: 2024-08-24T08:24:55.128Z
+date: 2025-02-10T08:05:41.415Z
+updated: 2025-02-14T23:45:59.332Z
 tags:
   - ai video
   - ai youtube
@@ -34,7 +34,15 @@ Wondershare Filmora has the best video stabilization tool is your videos have a 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Here are 3 of our favorite DIY tripods.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **DIY smartphone tripod using binder clips or hair clips**
 
@@ -54,13 +62,18 @@ And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
 
 <!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### **DIY adjustable tripod using books and a towel**
 
 You’ve probably heard a million times that you can stabilize your camera by sitting it down on any stable surface – on your desk, on a stack of books, up in a tree, etc. This is very true!
@@ -78,10 +91,6 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
-</a>
-<!-- affiliate ads end -->
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -91,8 +100,9 @@ Your wire should be fairly stiff and you’ll need three pieces the same length,
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 _All of your supplies plus the finished product._
 
 **Readying your legs**
@@ -115,23 +125,17 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -140,8 +144,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-download-essential-video-intros-for-beginners/"><u>[New] 2024 Approved Download Essential Video Intros for Beginners</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-efficient-ways-to-delete-previewed-content-from-youtubes-queue/"><u>[New] 2024 Approved Efficient Ways to Delete Previewed Content From YouTube's Queue</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-enhance-your-video-with-these-premium-free-audio-stores/"><u>[New] 2024 Approved Enhance Your Video with These Premium, Free Audio Stores</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-expertly-edited-content-choosing-the-best-editor/"><u>[New] 2024 Approved Expertly Edited Content Choosing The Best Editor</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-maximizing-your-youtube-presence-via-featured-channel-strategy/"><u>[New] 2024 Approved Maximizing Your Youtube Presence via Featured Channel Strategy</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-optimized-tag-management-the-best-7-free-online-extractor-tools-for-youtube/"><u>[New] 2024 Approved Optimized Tag Management The Best 7 Free Online Extractor Tools for YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-deep-dive-into-youtube-writers-workshop-space-for-2024/"><u>[New] A Deep Dive Into YouTube’ Writers' Workshop Space for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-list-makeup-tutorials-who-to-watch/"><u>[New] A-List Makeup Tutorials Who to Watch ?</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-revolutionize-streaming-top-converters-transform-4k-content/"><u>[New] Revolutionize Streaming Top Converters Transform 4K Content</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-5-secrets-to-preventing-blank-scenes-with-obs-recording/"><u>[Updated] 5 Secrets to Preventing Blank Scenes with OBS Recording</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-how-to-create-impactful-video-elements-cardsannotations/"><u>[Updated] In 2024, How to Create Impactful Video Elements Cards/Annotations</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-navigating-the-world-of-hand-gesture-recognition/"><u>2024 Approved Navigating the World of Hand Gesture Recognition</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-to-breakthrough-content-crafting-the-top-10-simplest-youtube-projects-for-2024/"><u>Basic to Breakthrough Content Crafting the Top 10 Simplest YouTube Projects for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/economical-4k-dslrmirrorless-cameras-for-2024/"><u>Economical 4K DSLR/Mirrorless Cameras for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-enable-usb-debugging-on-a-locked-vivo-y100t-phone-by-drfone-android/"><u>How To Enable USB Debugging on a Locked Vivo Y100t Phone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-upgrade-or-downgrade-iphone-se-2022-without-losing-anything-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Upgrade or Downgrade iPhone SE (2022) Without Losing Anything? | Dr.fone</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/unlocking-creative-potential-with-ig-reel-slow-motion/"><u>Unlocking Creative Potential with IG Reel Slow-Motion</u></a></li>
+</ul></div>
 

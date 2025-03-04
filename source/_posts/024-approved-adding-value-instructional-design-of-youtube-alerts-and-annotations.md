@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Adding Value  Instructional Design of YouTube Alerts & Annotations\""
-date: 2024-08-23T08:23:53.443Z
-updated: 2024-08-24T08:23:53.443Z
+date: 2025-02-13T09:14:49.588Z
+updated: 2025-02-15T11:59:41.006Z
 tags:
   - ai video
   - ai youtube
@@ -53,10 +53,18 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 ![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Click "Edit" tab under the video screen shot you want to add the card on
 * Click on the "Cards" tab
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
 * Click on the create button which will open the corresponding video
@@ -77,10 +85,18 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Apply changes
 
@@ -120,20 +136,21 @@ No matter what kind of annotations you are using, you should never use more than
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -142,12 +159,19 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-crafting-perfect-thumbnails-for-higher-clickthrough-rates/"><u>[New] 2024 Approved Crafting Perfect Thumbnails for Higher Clickthrough Rates</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-craft-your-fortune-terrarias-best-map-list/"><u>[New] In 2024, Craft Your Fortune Terraria's Best Map List</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-discover-the-leading-youtube-to-webm-converter-tools-for-2024/"><u>[Updated] Discover the Leading YouTube-to-WebM Converter Tools for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-in-the-front-row-ranked-no-8-image-synthesis-app/"><u>[Updated] In 2024, In the Front Row Ranked No. 8 Image Synthesis App</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-video-innovators-showcase-15-leading-youtube-unboxing-sites/"><u>[Updated] Video Innovators Showcase 15 Leading YouTube Unboxing Sites</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-professional-methodology-enabling-countdown-functionality-in-obs/"><u>2024 Approved Professional Methodology Enabling Countdown Functionality in OBS</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/audiovisual-excellence-on-youtube-through-enhancements-for-2024/"><u>Audiovisual Excellence on YouTube Through Enhancements for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/eyecatcher-firefox-tools-for-2024/"><u>EyeCatcher Firefox Tools for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/buffer-to-broadcast-learn-how-to-convert-your-youtube-viewing-into-a-screenshot-for-free-for-2024/"><u>From Buffer to Broadcast Learn How to Convert Your YouTube Viewing Into a Screenshot for Free for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-boosting-your-youtube-presence-key-tips-for-popularity/"><u>In 2024, Boosting Your YouTube Presence Key Tips for Popularity</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/navigating-nlp-titans-understanding-the-gpt-bert-chasm/"><u>Navigating NLP Titans: Understanding the GPT-BERT Chasm</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/top-15-no-cost-bootable-solutions-for-malware-protection/"><u>Top 15 No-Cost Bootable Solutions for Malware Protection</u></a></li>
+</ul></div>
 
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

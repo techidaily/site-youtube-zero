@@ -1,7 +1,7 @@
 ---
 title: "Steps for Controlling Video Comment Settings in YouTube for 2024"
-date: 2024-08-23T08:21:11.151Z
-updated: 2024-08-24T08:21:11.151Z
+date: 2025-02-10T17:01:25.670Z
+updated: 2025-02-14T16:09:17.084Z
 tags:
   - ai video
   - ai youtube
@@ -64,11 +64,19 @@ Click the **Settings** icon from the bottom of the left pane one more time. On t
 
 ![Set up YouTube video  Comments visibility](https://images.wondershare.com/filmora/article-images/set-up-youtube-comments-visibilities.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 3\. Set Comment Allowance for Videos
 
 Back on the **YouTube Studio** page, click **Content** from the left pane. From the right section, check the **Video** box at the top of the list to select all the videos the channel has. Click **Edit** from the column header, and click **Comments** from the menu that comes up. From the **New value** drop-down list, choose your preferred allowance option for the comments, click **UPDATE VIDEOS** from the upper-right area, check the **I understand the implications of this action** box, and click **UPDATE VIDEOS** to allow comments on all the videos of the channel.
 
 ![Turn on or off YouTube content commnets settings](https://images.wondershare.com/filmora/article-images/turn-on-off-channel-content-comments-settings.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### **Additional Info about Comments Options**
 
@@ -89,6 +97,10 @@ Selecting this option holds all the comments from all the users, and waits for y
 * **Disable comments**
 
 When this option is selected, no one can post a comment to the video(s) whatsoever.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: Turn on or Turn off Comments for Specific Videos
 
@@ -113,8 +125,9 @@ From under the **Audience** section in the right window of the **Video details**
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
 <!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## FAQs About YouTube Comments
 
 #### 1\. Why can’t I comment on the YouTube video?
@@ -132,8 +145,9 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 ![Block YouTube   commnets](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
 Yes. When you turn off the comments, the existing comments disappear. When you turn them back on, all the previous comments reappear, and become visible to the audience.
@@ -148,24 +162,17 @@ It is easy to understand **how to turn on comments on YouTube**. The best thing 
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -174,8 +181,21 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/-step-by-step-approach-to-professional-video-sharing/"><u>[New] A Step-by-Step Approach to Professional Video Sharing</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-elevating-video-branding-the-art-and-science-of-youtube-image-designs/"><u>[New] In 2024, Elevating Video Branding The Art and Science of Youtube Image Designs</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-unlocking-the-potential-of-minecraft-recording-with-macos/"><u>[New] Unlocking the Potential of Minecraft Recording with MacOS</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/outube-glamour-a-guide-to-video-color-balance/"><u>[New] YouTube Glamour A Guide to Video Color Balance</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-football-game-analysis-premier-insights-in-graphs/"><u>[Updated] Football Game Analysis Premier Insights in Graphs</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-explore-9-simple-and-economical-editing-solutions-for-your-projects/"><u>2024 Approved Explore 9 Simple & Economical Editing Solutions for Your Projects</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-transform-your-content-reach-with-strategic-tagging-insight/"><u>2024 Approved Transform Your Content Reach with Strategic Tagging Insight</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/decoding-ages-in-a-windows-configuration/"><u>Decoding Ages in a Windows Configuration</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/elevate-your-visual-narrative-with-top-ae-text-configurations/"><u>Elevate Your Visual Narrative with Top AE Text Configurations</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/empowering-tiktok-sharing-on-twitter-networks/"><u>Empowering TikTok Sharing on Twitter Networks</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/expert-tips-for-efficient-screenshotting-with-zd-softwares-advanced-features-for-2024/"><u>Expert Tips for Efficient Screenshotting with ZD Software's Advanced Features for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-pictures-files-from-tecno-spark-20-proplus-by-fonelab-android-recover-pictures/"><u>How To Restore Missing Pictures Files from Tecno Spark 20 Pro+.</u></a></li>
+<li><a href="https://facebook.techidaily.com/stop-universal-notification-service-fb/"><u>Stop Universal Notification Service: FB</u></a></li>
+<li><a href="https://techtrends.techidaily.com/troubleshooting-steps-for-the-elusive-dciman32dll-error/"><u>Troubleshooting Steps for the Elusive dciman32.dll Error</u></a></li>
+</ul></div>
 

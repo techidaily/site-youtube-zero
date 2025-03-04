@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Exploring the Depths of Video Talks on YouTube\""
-date: 2024-08-16T04:14:48.760Z
-updated: 2024-08-17T04:14:48.760Z
+date: 2025-02-11T20:07:08.755Z
+updated: 2025-02-15T06:44:17.009Z
 tags:
   - ai video
   - ai youtube
@@ -61,6 +61,10 @@ Besides the comment search feature, the YouTube Studio also has some in-built se
 
 You can combine these additional filters to narrow your comments search for YouTube.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: Using YCS – YouTube Comment Search Extension
 
 You can use the YouTube Comment Search browser extension supported by Google Chrome to help you search YouTube comments effortlessly. To use it, follow these steps below.
@@ -72,13 +76,11 @@ You can use the YouTube Comment Search browser extension supported by Google Chr
 5. Now type your keywords, press Enter, and YCS will show all comments having the keyword you typed.
 
 ![YouTube Comment Search Extension](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
-<!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 3: Using Comments Search for YouTube Extension
 
 If you are looking for an easy method to search YouTube comments, you can use the Comments Search for YouTube extension. Google Chrome supports this extension that allows you to search comments on YouTube without leaving the website.
@@ -111,9 +113,6 @@ Did you post a comment on your favorite celebrity’s video? Do you think it may
 
 YouTube has now added this feature which you can see all the comments you ever posted on YouTube in one place.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ### How to Use the Comment History feature to Search Comments?
 
 You can see all the comments you have posted in the Comment History in a few quick steps.
@@ -123,15 +122,17 @@ You can see all the comments you have posted in the Comment History in a few qui
 3. Click on the History option and then you will find the option called Comments on the right side of your YouTube History page. Click on it to see all your YouTube comments.
 
 ![YouTube History Comment](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 You can also access the Comments History page directly from [here](https://www.youtube.com/feed/history/comment%5Fhistory).
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 5: How to Find Out Who Posts the Most Comments on Your YouTube Videos?
 
 If you are a creator on YouTube, the comments section becomes very important. Subscribers comment words of praise, encouragement, and feedback which help you grow. You may want to keep track of your most loyal followers. The best way to know that is by knowing who comments most on your videos.
@@ -154,8 +155,9 @@ YouTube is a global platform to share helpful and entertaining videos. The comme
 Find feedback or questions. Report offensive comments. If you are a regular YouTube user, use our tips and tricks to search comments quickly and grow your channel.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -164,14 +166,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -180,8 +179,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-professional-gimbals-and-tripods-for-youtube-starters/"><u>[New] 2024 Approved Professional Gimbals & Tripods for YouTube Starters</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-intriguing-ways-to-twist-images/"><u>[New] Intriguing Ways to Twist Images</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/he-blueprint-for-producing-high-impact-youtube-videos/"><u>[New] The Blueprint for Producing High-Impact YouTube Videos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-how-to-execute-flawless-wirecast-broadcasts-on-youtube/"><u>[Updated] How to Execute Flawless WireCast Broadcasts on YouTube</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-screen-recording-google-meets-on-mobile-devices/"><u>[Updated] In 2024, Screen Recording Google Meets on Mobile Devices</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-unlock-the-secrets-of-smooth-and-seamless-keying-in-videography/"><u>[Updated] In 2024, Unlock the Secrets of Smooth and Seamless Keying in Videography</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-the-photographers-list-of-top-10-lenses/"><u>2024 Approved The Photographer's List of Top 10 Lenses</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-youtube-shorts-success-top-10-steps-to-stand-out/"><u>2024 Approved Youtube Shorts Success - Top 10 Steps to Stand Out</u></a></li>
+<li><a href="https://howto.techidaily.com/4-solutions-to-fix-unfortunately-your-app-has-stopped-error-on-tecno-pova-6-pro-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Solutions to Fix Unfortunately Your App Has Stopped Error on Tecno Pova 6 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/9-solutions-to-fix-vivo-x-flip-system-crash-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Solutions to Fix Vivo X Flip System Crash Issue | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ehensive-coverage-coalition-picking-an-mcn/"><u>Comprehensive Coverage Coalition Picking an MCN</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/t-tips-on-jump-cuts-for-dynamic-video-editing/"><u>Expert Tips on Jump Cuts for Dynamic Video Editing</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/o-download-youtube-tunes-without-risk-for-free/"><u>How to Download YouTube Tunes Without Risk for Free</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-the-soft-bricked-honor-v-purse-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix the Soft Bricked Honor V Purse? | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-get-the-apple-id-verification-code-from-iphone-11-in-the-best-ways-by-drfone-ios/"><u>How To Get the Apple ID Verification Code From iPhone 11 in the Best Ways</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-12-pro-max-to-other-iphone-12-pro-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone 12 Pro Max to other iPhone 12 Pro devices? | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-playlist-extraction-step-by-step-from-youtubes-archive/"><u>In 2024, Playlist Extraction - Step by Step From YouTube's Archive</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-pocket-playlist-portraits-actors-and-audio-art/"><u>In 2024, Pocket Playlist Portraits Actors & Audio Art</u></a></li>
+<li><a href="https://blog-min.techidaily.com/1726028033216-pc/"><u>PC向けに効果的なオンライン英会話の録画・録音テクニック</u></a></li>
+</ul></div>
 

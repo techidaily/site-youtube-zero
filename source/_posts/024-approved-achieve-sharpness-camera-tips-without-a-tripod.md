@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Achieve Sharpness  Camera Tips Without a Tripod\""
-date: 2024-08-23T08:25:22.505Z
-updated: 2024-08-24T08:25:22.505Z
+date: 2025-02-11T17:01:13.043Z
+updated: 2025-02-15T09:12:04.720Z
 tags:
   - ai video
   - ai youtube
@@ -34,6 +34,10 @@ Wondershare Filmora has the best video stabilization tool is your videos have a 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Here are 3 of our favorite DIY tripods.
 
 ### **DIY smartphone tripod using binder clips or hair clips**
@@ -54,13 +58,18 @@ And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### **DIY adjustable tripod using books and a towel**
 
 You’ve probably heard a million times that you can stabilize your camera by sitting it down on any stable surface – on your desk, on a stack of books, up in a tree, etc. This is very true!
@@ -78,9 +87,6 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
-<!-- affiliate ads end -->
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -90,8 +96,9 @@ Your wire should be fairly stiff and you’ll need three pieces the same length,
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 _All of your supplies plus the finished product._
 
 **Readying your legs**
@@ -115,22 +122,20 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -139,8 +144,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-dominating-search-results-essential-youtube-seo-tricks/"><u>[New] 2024 Approved Dominating Search Results Essential YouTube SEO Tricks</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-earning-edge-exploiting-youtube-studio-for-global-viewers/"><u>[New] 2024 Approved Earning Edge Exploiting YouTube Studio for Global Viewers</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-mastering-video-trailers-on-youtube-via-filmora-tools/"><u>[New] 2024 Approved Mastering Video Trailers on YouTube via Filmora Tools</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-scaling-your-income-with-beauty-tutorials/"><u>[New] 2024 Approved Scaling Your Income with Beauty Tutorials</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-scaling-your-influence-with-youtube-shorts-strategy/"><u>[New] 2024 Approved Scaling Your Influence with YouTube Shorts Strategy</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-pioneering-exercise-videos-to-keep-your-viewers-active/"><u>[New] 8 Pioneering Exercise Videos To Keep Your Viewers Active</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-a-detailed-walkthrough-for-crafting-and-changing-your-videos-covers-on-facebook-for-2024/"><u>[New] A Detailed Walkthrough for Crafting and Changing Your Videos' Covers on Facebook for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-the-screencast-guide-to-flawless-presentations-and-demos/"><u>[Updated] In 2024, The Screencast Guide to Flawless Presentations and Demos</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-visionaries-convergence-dissecting-virtual-reality-augmented-and-mixed-realms-for-2024/"><u>[Updated] Visionaries Convergence Dissecting Virtual Reality, Augmented & Mixed Realms for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-configure-and-gauge-the-complete-guide-to-crafting-and-measuring-fb-instream-ads/"><u>2024 Approved Configure & Gauge The Complete Guide to Crafting and Measuring FB Instream Ads</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-clarity-unleashed-secrets-to-high-quality-audio/"><u>Aural Clarity Unleashed Secrets to High-Quality Audio</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-the-essential-guide-for-instagram-video-uploads-from-pcmac/"><u>In 2024, The Essential Guide for Instagram Video Uploads From PC/Mac</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/list-of-pokemon-go-joysticks-on-infinix-hot-40i-drfone-by-drfone-virtual-android/"><u>List of Pokémon Go Joysticks On Infinix Hot 40i | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/online-games-under-siege-security-alert/"><u>Online Games Under Siege: Security Alert!</u></a></li>
+<li><a href="https://fox-ssl.techidaily.com/overcoming-challenges-the-role-of-politics-in-maintaining-strength-for-precious-metals-and-crude-analysis-from-yl-software/"><u>Overcoming Challenges: The Role of Politics in Maintaining Strength for Precious Metals and Crude – Analysis From YL Software</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/precise-methods-for-creating-impactful-client-spots-on-film-for-2024/"><u>Precise Methods for Creating Impactful Client Spots on Film for 2024</u></a></li>
+<li><a href="https://network-issues.techidaily.com/rectifying-inconsistent-backlight-on-hp-screens/"><u>Rectifying Inconsistent Backlight on HP Screens</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-to-prevent-youtube-channels-mobile-and-desktop-methods/"><u>Steps to Prevent Youtube Channels Mobile and Desktop Methods</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/-wealthy-digital-creators/"><u>Ultra-Wealthy Digital Creators</u></a></li>
+</ul></div>
 
